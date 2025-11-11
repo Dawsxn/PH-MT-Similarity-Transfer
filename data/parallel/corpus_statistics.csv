@@ -1,0 +1,7 @@
+pair,role,src_lang,tgt_lang,num_lines,src_words,tgt_words
+en-tl,baseline + distant,english,tagalog,2948,62810,62619
+bik-tl,similar donor,bikolano,tagalog,2948,57918,62619
+en-hil,baseline + distant,english,ilonggo,2948,62810,67835
+msb-hil,similar donor,masbatenyo,ilonggo,2948,65377,67835
+en-war,baseline + distant,english,waray,2948,62810,65094
+hil-war,similar donor,ilonggo,waray,2948,67835,65094

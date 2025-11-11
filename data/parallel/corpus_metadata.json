@@ -1,0 +1,93 @@
+{
+  "description": "Parallel corpora for Philippine low-resource language MT with similarity transfer",
+  "creation_date": "2025-11-08",
+  "source": "Bible (Matthew, Mark, Luke)",
+  "total_pairs": 6,
+  "sentences_per_corpus": 2948,
+  "language_pairs": [
+    {
+      "pair": "en-tl",
+      "role": "baseline + distant",
+      "src_code": "en",
+      "tgt_code": "tl",
+      "src_lang": "english",
+      "tgt_lang": "tagalog",
+      "num_lines": 2948,
+      "src_words": 62810,
+      "tgt_words": 62619,
+      "src_file": "..\\data\\parallel\\en-tl\\en-tl.en",
+      "tgt_file": "..\\data\\parallel\\en-tl\\en-tl.tl",
+      "ref_file": "..\\data\\parallel\\en-tl\\en-tl.ref"
+    },
+    {
+      "pair": "bik-tl",
+      "role": "similar donor",
+      "src_code": "bik",
+      "tgt_code": "tl",
+      "src_lang": "bikolano",
+      "tgt_lang": "tagalog",
+      "num_lines": 2948,
+      "src_words": 57918,
+      "tgt_words": 62619,
+      "src_file": "..\\data\\parallel\\bik-tl\\bik-tl.bik",
+      "tgt_file": "..\\data\\parallel\\bik-tl\\bik-tl.tl",
+      "ref_file": "..\\data\\parallel\\bik-tl\\bik-tl.ref"
+    },
+    {
+      "pair": "en-hil",
+      "role": "baseline + distant",
+      "src_code": "en",
+      "tgt_code": "hil",
+      "src_lang": "english",
+      "tgt_lang": "ilonggo",
+      "num_lines": 2948,
+      "src_words": 62810,
+      "tgt_words": 67835,
+      "src_file": "..\\data\\parallel\\en-hil\\en-hil.en",
+      "tgt_file": "..\\data\\parallel\\en-hil\\en-hil.hil",
+      "ref_file": "..\\data\\parallel\\en-hil\\en-hil.ref"
+    },
+    {
+      "pair": "msb-hil",
+      "role": "similar donor",
+      "src_code": "msb",
+      "tgt_code": "hil",
+      "src_lang": "masbatenyo",
+      "tgt_lang": "ilonggo",
+      "num_lines": 2948,
+      "src_words": 65377,
+      "tgt_words": 67835,
+      "src_file": "..\\data\\parallel\\msb-hil\\msb-hil.msb",
+      "tgt_file": "..\\data\\parallel\\msb-hil\\msb-hil.hil",
+      "ref_file": "..\\data\\parallel\\msb-hil\\msb-hil.ref"
+    },
+    {
+      "pair": "en-war",
+      "role": "baseline + distant",
+      "src_code": "en",
+      "tgt_code": "war",
+      "src_lang": "english",
+      "tgt_lang": "waray",
+      "num_lines": 2948,
+      "src_words": 62810,
+      "tgt_words": 65094,
+      "src_file": "..\\data\\parallel\\en-war\\en-war.en",
+      "tgt_file": "..\\data\\parallel\\en-war\\en-war.war",
+      "ref_file": "..\\data\\parallel\\en-war\\en-war.ref"
+    },
+    {
+      "pair": "hil-war",
+      "role": "similar donor",
+      "src_code": "hil",
+      "tgt_code": "war",
+      "src_lang": "ilonggo",
+      "tgt_lang": "waray",
+      "num_lines": 2948,
+      "src_words": 67835,
+      "tgt_words": 65094,
+      "src_file": "..\\data\\parallel\\hil-war\\hil-war.hil",
+      "tgt_file": "..\\data\\parallel\\hil-war\\hil-war.war",
+      "ref_file": "..\\data\\parallel\\hil-war\\hil-war.ref"
+    }
+  ]
+}
