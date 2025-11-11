@@ -1,0 +1,59 @@
+{
+  "description": "Train/Dev/Test splits for MT training",
+  "random_seed": 42,
+  "split_ratios": {
+    "train": 0.8,
+    "dev": 0.1,
+    "test": 0.1
+  },
+  "total_sentences": 2948,
+  "split_sizes": {
+    "train": 2358,
+    "dev": 294,
+    "test": 296
+  },
+  "language_pairs": [
+    {
+      "pair": "en-tl",
+      "train": 2358,
+      "dev": 294,
+      "test": 296,
+      "total": 2948
+    },
+    {
+      "pair": "bik-tl",
+      "train": 2358,
+      "dev": 294,
+      "test": 296,
+      "total": 2948
+    },
+    {
+      "pair": "en-hil",
+      "train": 2358,
+      "dev": 294,
+      "test": 296,
+      "total": 2948
+    },
+    {
+      "pair": "msb-hil",
+      "train": 2358,
+      "dev": 294,
+      "test": 296,
+      "total": 2948
+    },
+    {
+      "pair": "en-war",
+      "train": 2358,
+      "dev": 294,
+      "test": 296,
+      "total": 2948
+    },
+    {
+      "pair": "hil-war",
+      "train": 2358,
+      "dev": 294,
+      "test": 296,
+      "total": 2948
+    }
+  ]
+}
