@@ -1,0 +1,50 @@
+{
+  "best_global_step": 590,
+  "best_metric": 3.150072146049002,
+  "best_model_checkpoint": "..\\models\\tagalog_experimental_stage1_lora\\checkpoint-590",
+  "epoch": 1.0,
+  "eval_steps": 500,
+  "global_step": 590,
+  "is_hyper_param_search": false,
+  "is_local_process_zero": true,
+  "is_world_process_zero": true,
+  "log_history": [
+    {
+      "epoch": 1.0,
+      "grad_norm": 1.2136025428771973,
+      "learning_rate": 0.0002006779661016949,
+      "loss": 8.5013,
+      "step": 590
+    },
+    {
+      "epoch": 1.0,
+      "eval_bleu": 3.150072146049002,
+      "eval_loss": 7.914686679840088,
+      "eval_runtime": 498.6206,
+      "eval_samples_per_second": 0.59,
+      "eval_steps_per_second": 0.148,
+      "step": 590
+    }
+  ],
+  "logging_steps": 500,
+  "max_steps": 1770,
+  "num_input_tokens_seen": 0,
+  "num_train_epochs": 3,
+  "save_steps": 500,
+  "stateful_callbacks": {
+    "TrainerControl": {
+      "args": {
+        "should_epoch_stop": false,
+        "should_evaluate": false,
+        "should_log": false,
+        "should_save": true,
+        "should_training_stop": false
+      },
+      "attributes": {}
+    }
+  },
+  "total_flos": 640897775566848.0,
+  "train_batch_size": 4,
+  "trial_name": null,
+  "trial_params": null
+}
