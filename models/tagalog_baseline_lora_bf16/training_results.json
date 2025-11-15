@@ -1,0 +1,27 @@
+{
+  "pair": "en-tl",
+  "stage": "Baseline (Direct LoRA + BF16)",
+  "model_source": "facebook/mbart-large-50",
+  "bf16_enabled": true,
+  "lora_config": {
+    "r": 8,
+    "alpha": 16,
+    "dropout": 0.1,
+    "target_modules": [
+      "q_proj",
+      "v_proj"
+    ]
+  },
+  "train_results": {
+    "train_loss": 8.12120906161723,
+    "train_runtime": 1874.5439
+  },
+  "eval_results": {
+    "eval_loss": 7.774249076843262,
+    "eval_bleu": 10.779307512360619,
+    "eval_runtime": 514.7481,
+    "eval_samples_per_second": 0.571,
+    "eval_steps_per_second": 0.144,
+    "epoch": 3.0
+  }
+}
