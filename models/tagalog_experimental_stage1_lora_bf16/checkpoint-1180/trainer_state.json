@@ -1,6 +1,6 @@
 {
   "best_global_step": 1180,
-  "best_metric": 3.3243178354371383,
+  "best_metric": 3.379977043529628,
   "best_model_checkpoint": "..\\models\\tagalog_experimental_stage1_lora_bf16\\checkpoint-1180",
   "epoch": 2.0,
   "eval_steps": 500,
@@ -11,34 +11,34 @@
   "log_history": [
     {
       "epoch": 1.0,
-      "grad_norm": 0.9268858432769775,
+      "grad_norm": 0.9309493899345398,
       "learning_rate": 0.0002001694915254237,
-      "loss": 8.5181,
+      "loss": 8.519,
       "step": 590
     },
     {
       "epoch": 1.0,
-      "eval_bleu": 2.945093109429939,
-      "eval_loss": 7.875887393951416,
-      "eval_runtime": 770.9107,
-      "eval_samples_per_second": 0.381,
-      "eval_steps_per_second": 0.096,
+      "eval_bleu": 2.806730759421962,
+      "eval_loss": 7.8781657218933105,
+      "eval_runtime": 789.7864,
+      "eval_samples_per_second": 0.372,
+      "eval_steps_per_second": 0.094,
       "step": 590
     },
     {
       "epoch": 2.0,
-      "grad_norm": 0.9856417775154114,
+      "grad_norm": 0.9711588025093079,
       "learning_rate": 0.00010016949152542372,
-      "loss": 7.8556,
+      "loss": 7.8461,
       "step": 1180
     },
     {
       "epoch": 2.0,
-      "eval_bleu": 3.3243178354371383,
-      "eval_loss": 7.780865669250488,
-      "eval_runtime": 980.9715,
-      "eval_samples_per_second": 0.3,
-      "eval_steps_per_second": 0.075,
+      "eval_bleu": 3.379977043529628,
+      "eval_loss": 7.771973609924316,
+      "eval_runtime": 775.6043,
+      "eval_samples_per_second": 0.379,
+      "eval_steps_per_second": 0.095,
       "step": 1180
     }
   ],
