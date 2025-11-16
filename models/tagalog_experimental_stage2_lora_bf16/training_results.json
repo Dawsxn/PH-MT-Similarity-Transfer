@@ -1,0 +1,27 @@
+{
+  "pair": "en-tl",
+  "stage": "Stage 2 (Baseline after Similar LoRA + BF16)",
+  "model_source": "..\\models\\tagalog_experimental_stage1_lora_bf16\\final_model",
+  "bf16_enabled": true,
+  "lora_config": {
+    "r": 8,
+    "alpha": 16,
+    "dropout": 0.1,
+    "target_modules": [
+      "q_proj",
+      "v_proj"
+    ]
+  },
+  "train_results": {
+    "train_loss": 7.805893582274011,
+    "train_runtime": 5593.2864
+  },
+  "eval_results": {
+    "eval_loss": 7.667052268981934,
+    "eval_bleu": 8.583521266466144,
+    "eval_runtime": 866.2468,
+    "eval_samples_per_second": 0.339,
+    "eval_steps_per_second": 0.085,
+    "epoch": 3.0
+  }
+}
