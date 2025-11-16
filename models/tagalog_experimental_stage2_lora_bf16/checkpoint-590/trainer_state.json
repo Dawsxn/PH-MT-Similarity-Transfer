@@ -1,7 +1,7 @@
 {
   "best_global_step": 590,
-  "best_metric": 3.150072146049002,
-  "best_model_checkpoint": "..\\models\\tagalog_experimental_stage1_lora\\checkpoint-590",
+  "best_metric": 8.583521266466144,
+  "best_model_checkpoint": "..\\models\\tagalog_experimental_stage2_lora_bf16\\checkpoint-590",
   "epoch": 1.0,
   "eval_steps": 500,
   "global_step": 590,
@@ -11,18 +11,18 @@
   "log_history": [
     {
       "epoch": 1.0,
-      "grad_norm": 1.2136025428771973,
-      "learning_rate": 0.0002006779661016949,
-      "loss": 8.5013,
+      "grad_norm": 1.2616167068481445,
+      "learning_rate": 0.0002001694915254237,
+      "loss": 7.7774,
       "step": 590
     },
     {
       "epoch": 1.0,
-      "eval_bleu": 3.150072146049002,
-      "eval_loss": 7.914686679840088,
-      "eval_runtime": 498.6206,
-      "eval_samples_per_second": 0.59,
-      "eval_steps_per_second": 0.148,
+      "eval_bleu": 8.583521266466144,
+      "eval_loss": 7.667052268981934,
+      "eval_runtime": 271.0586,
+      "eval_samples_per_second": 1.085,
+      "eval_steps_per_second": 0.273,
       "step": 590
     }
   ],

@@ -521,7 +521,7 @@
   "pad_token": "<pad>",
   "sep_token": "</s>",
   "sp_model_kwargs": {},
-  "src_lang": "tl_XX",
+  "src_lang": "en_XX",
   "tgt_lang": "tl_XX",
   "tokenizer_class": "MBartTokenizer",
   "unk_token": "<unk>"
