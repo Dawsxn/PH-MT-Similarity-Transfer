@@ -1,0 +1,66 @@
+{
+  "best_global_step": 1184,
+  "best_metric": 27.250861367551448,
+  "best_model_checkpoint": "..\\models\\tagalog_experimental_stage2_nllb_lora_bf16\\checkpoint-1184",
+  "epoch": 2.0,
+  "eval_steps": 500,
+  "global_step": 1184,
+  "is_hyper_param_search": false,
+  "is_local_process_zero": true,
+  "is_world_process_zero": true,
+  "log_history": [
+    {
+      "epoch": 1.0,
+      "grad_norm": 0.26603877544403076,
+      "learning_rate": 3.3361486486486486e-05,
+      "loss": 6.3537,
+      "step": 592
+    },
+    {
+      "epoch": 1.0,
+      "eval_bleu": 27.042315199705083,
+      "eval_loss": 6.078166961669922,
+      "eval_runtime": 1202.5483,
+      "eval_samples_per_second": 0.491,
+      "eval_steps_per_second": 0.062,
+      "step": 592
+    },
+    {
+      "epoch": 2.0,
+      "grad_norm": 0.1971956193447113,
+      "learning_rate": 1.6694819819819822e-05,
+      "loss": 6.2375,
+      "step": 1184
+    },
+    {
+      "epoch": 2.0,
+      "eval_bleu": 27.250861367551448,
+      "eval_loss": 6.0613627433776855,
+      "eval_runtime": 1373.2419,
+      "eval_samples_per_second": 0.43,
+      "eval_steps_per_second": 0.054,
+      "step": 1184
+    }
+  ],
+  "logging_steps": 500,
+  "max_steps": 1776,
+  "num_input_tokens_seen": 0,
+  "num_train_epochs": 3,
+  "save_steps": 500,
+  "stateful_callbacks": {
+    "TrainerControl": {
+      "args": {
+        "should_epoch_stop": false,
+        "should_evaluate": false,
+        "should_log": false,
+        "should_save": true,
+        "should_training_stop": false
+      },
+      "attributes": {}
+    }
+  },
+  "total_flos": 2572258841198592.0,
+  "train_batch_size": 8,
+  "trial_name": null,
+  "trial_params": null
+}
