@@ -16,15 +16,15 @@
     ]
   },
   "train_results": {
-    "train_loss": 7.148961247624578,
-    "train_runtime": 2912.3951
+    "train_loss": 6.666841639378504,
+    "train_runtime": 3373.4711
   },
   "eval_results": {
-    "eval_loss": 6.163384437561035,
-    "eval_bleu": 25.241087842258956,
-    "eval_runtime": 345.6673,
-    "eval_samples_per_second": 1.71,
-    "eval_steps_per_second": 0.214,
+    "eval_loss": 6.090036392211914,
+    "eval_bleu": 26.34778865346449,
+    "eval_runtime": 346.7572,
+    "eval_samples_per_second": 2.226,
+    "eval_steps_per_second": 0.28,
     "epoch": 3.0
   }
 }
