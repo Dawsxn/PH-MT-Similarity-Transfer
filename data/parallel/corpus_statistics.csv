@@ -1,8 +1,8 @@
 pair,role,src_lang,tgt_lang,num_lines,src_words,tgt_words
-en-tl,baseline + distant,english,tagalog,5916,127070,128195
-bik-tl,similar donor,bikolano,tagalog,5916,120285,128195
-war-tl,similar donor,waray,tagalog,5916,134982,128195
-en-hil,baseline + distant,english,ilonggo,5916,127070,140962
-msb-hil,similar donor,masbatenyo,ilonggo,5916,135135,140962
-en-war,baseline + distant,english,waray,5916,127070,134982
-hil-war,similar donor,ilonggo,waray,5916,140962,134982
+en-tl,baseline + distant,english,tagalog,7723,167425,167713
+bik-tl,similar donor,bikolano,tagalog,7723,161801,167713
+war-tl,similar donor,waray,tagalog,7723,180807,167713
+en-hil,baseline + distant,english,ilonggo,7723,167425,188467
+msb-hil,similar donor,masbatenyo,ilonggo,7723,182695,188467
+en-war,baseline + distant,english,waray,7723,167425,180807
+hil-war,similar donor,ilonggo,waray,7723,188467,180807

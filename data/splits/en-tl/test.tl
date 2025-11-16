@@ -1,593 +1,773 @@
-Buhat nang magsimula ang sanlibutan ay hindi narinig kailanman na binuksan ng sinuman ang mga mata ng isang taong ipinanganak na bulag.
-Ngunit sumagot siya at sinabi, ‘Katotohanang sinasabi ko sa inyo, hindi ko kayo nakikilala.’
-Ang buong bilang ng mga sumampalataya ay may pagkakaisa sa puso at kaluluwa; sinuma'y walang nagsabing kanya ang anuman sa kanyang mga ari-arian, kundi lahat nilang pag-aari ay para sa lahat.
-upang kayo'y maging mga anak ng inyong Ama na nasa langit, sapagkat pinasisikat niya ang kanyang araw sa masasama at sa mabubuti, at nagpapaulan sa mga matuwid at sa mga di-matuwid.
-Sinabi ni Pedro kay Jesus, “Panginoon, mabuti na tayo ay naririto. Kung ibig mo, ay gagawa ako rito ng tatlong tolda, isa sa iyo, isa kay Moises, at isa kay Elias.”
-“upang maging mabuti ang inyong kalagayan at ikaw ay mabuhay nang matagal sa ibabaw ng lupa.”
-Siya'y kanilang tinanong, “Sino ang taong nagsabi sa iyo, ‘Buhatin mo ang iyong higaan at lumakad ka?’”
-Kapag nagsimulang mangyari ang mga bagay na ito, tumingala kayo at itaas ninyo ang inyong mga ulo, sapagkat malapit na ang katubusan ninyo.”
-Ngunit nang makita ng kanyang mga amo na wala na ang inaasahan nilang pakinabang ay hinuli nila sina Pablo at Silas, at kinaladkad sila sa pamilihan, sa harapan ng mga pinuno.
-Hindi sa kami ay may kakayahan mula sa aming sarili upang angkinin ang anuman na nagmula sa amin, kundi ang aming kakayahan ay mula sa Diyos;
-“Kaya't naglakbay ako patungo sa Damasco na taglay ang awtoridad at pahintulot ng mga punong pari.
-Sumagot ang mga Judio sa kanya, “Hindi ba tama ang aming sinabi na ikaw ay isang Samaritano at mayroon kang demonyo?”
-Subalit sinabi ni Abraham, ‘Nasa kanila si Moises at ang mga propeta, hayaan mo silang makinig sa kanila.’
-Ngunit kung sa pamamagitan ng Espiritu ng Diyos ay nagpapalayas ako ng mga demonyo, dumating na nga sa inyo ang kaharian ng Diyos.
-Sinasabi ko sa inyo, Hindi! Subalit malibang kayo'y magsisi, mapapahamak din kayong lahat tulad nila.
-kaamuan, at pagpipigil sa sarili. Laban sa mga ito ay walang kautusan.
-na nagsasabi, “Ikaw na gigiba sa templo, at sa ikatlong araw ay itatayo ito, iligtas mo ang iyong sarili! Kung ikaw ang Anak ng Diyos, bumaba ka sa krus!”
-Si Jesus, pagtingin sa kanya ay minahal siya at sinabi, “Isang bagay ang kulang sa iyo. Humayo ka, ipagbili mo ang lahat at ibigay mo ang salapi sa dukha, at magkakaroon ka ng kayamanan sa langit. At pumarito ka, sumunod ka sa akin.”
-na dumarating sa pangalan ng Panginoon!
-Sinabi ng isang tinig mula sa langit, “Ito ang minamahal kong Anak, sa kanya ako lubos na nalulugod.”
-Kaya't umalis si Ananias at pumasok sa bahay. Ipinatong niya ang kanyang mga kamay kay Saulo at sinabi niya, “Kapatid na Saulo, isinugo ako ng Panginoong Jesus na nagpakita sa iyo sa daan sa iyong pagpunta rito upang muli mong tanggapin ang iyong paningin, at mapuspos ka ng Espiritu Santo.”
-sapagkat hindi nila nauunawaan ang tungkol sa mga tinapay, kundi tumigas ang kanilang mga puso.
-Isa pa sa mga alagad ay nagsabi sa kanya, “Panginoon, hayaan mo muna akong makauwi at mailibing ko ang aking ama.”
-May taong naniniwala na makakain ang lahat ng mga bagay; ngunit ang mahina ay kumakain ng mga gulay.
-Nang sumunod na araw, nagtipon sa Jerusalem ang kanilang mga pinuno, ang matatanda at ang mga eskriba;
-Aking ninakawan ang ibang mga iglesya sa pamamagitan ng pagtanggap ng sahod mula sa kanila upang makapaglingkod sa inyo.
-Madalas ko silang pinarurusahan sa lahat ng mga sinagoga at pinipilit ko silang manlapastangan; at sa nag-aalab na pagkagalit sa kanila ay pinag-uusig ko sila maging sa mga lunsod sa ibang lupain.
-Walang sinumang nakakita kailanman sa Diyos. Ang Diyos na tanging Anak na nasa kandungan ng Ama ang nagpakilala sa kanya.
-Gaya ng nasusulat,
-Sumigaw siya nang malakas at sinabi, “Pinagpala ka sa mga babae, at pinagpala ang bunga ng iyong sinapupunan!
-Subalit nalalaman natin kung saan nagmula ang taong ito, subalit ang Cristo, pagdating niya ay walang makakaalam kung saan siya magmumula.”
-Kaya't sinasabi rin niya sa isa pang awit,
-Ipinagbilin niya sa kanya na huwag sabihin kaninuman. “Humayo ka, magpakita ka sa pari, at maghandog ka ayon sa iniutos ni Moises dahil ikaw ay naging malinis, bilang patotoo sa kanila.”
-Dumating sila sa Bethsaida. At dinala nila sa kanya ang isang lalaking bulag at ipinakiusap sa kanyang hipuin siya.
-Nang marinig niya na iyon ay si Jesus na taga-Nazaret, nagsimula siyang magsisigaw at magsabi, “Jesus, Anak ni David, mahabag ka sa akin!”
-Paanong hindi ninyo naunawaan na ang sinabi ko ay hindi tungkol sa tinapay? Ngunit mag-ingat kayo sa lebadura ng mga Fariseo at mga Saduceo!”
-Hanggang ngayo'y wala pa kayong hinihinging anuman sa pangalan ko. Kayo'y humingi at kayo'y tatanggap, upang malubos ang inyong kagalakan.
-sapagkat siya'y mabuting lalaki at puspos ng Espiritu Santo at ng pananampalataya. At napakaraming tao ang idinagdag sa Panginoon.
-na sa kanya ang buong katawan na nakalapat na mabuti at nagkakaisa sa pamamagitan ng bawat litid, ayon sa paggawa sa sukat ng bawat bahagi ay nagpapalaki sa katawan tungo sa ikatitibay ng sarili sa pag-ibig.
-Pagpasok niya sa Capernaum ay lumapit sa kanya ang isang senturion na nakikiusap sa kanya,
-Sumagot naman si Pedro at sinabi sa kanya, “Ipaliwanag mo sa amin ang talinghaga.”
-Sinabi ng babae sa kanya, “Nalalaman ko na darating ang Mesiyas (ang tinatawag na Cristo). Pagdating niya, ay ipahahayag niya sa amin ang lahat ng mga bagay.”
-Habang sila'y nagtataka tungkol dito, biglang may dalawang lalaki na nakasisilaw ang mga damit ang tumayo sa tabi nila.
-Sapagkat hindi ang mga tagapakinig ng kautusan ang siyang ganap sa harapan ng Diyos, kundi ang tumutupad sa kautusan ay aariing-ganap.
-“Mag-ingat kayo na huwag ninyong gawin ang inyong kabanalan sa harap ng mga tao upang makita nila. Sapagkat kung gayon, wala kayong gantimpala mula sa inyong Ama na nasa langit.
-Nang siya'y makita nila ay nagtaka sila at sinabi sa kanya ng kanyang ina, “Anak, bakit ginawa mo sa amin ang ganito? Tingnan mo, ang iyong ama at ako ay naghahanap sa iyo na may pag-aalala.”
-Si Pedro ay sumunod sa kanya sa malayo, hanggang sa loob ng patyo ng pinakapunong pari; at nakiumpok siya sa mga kawal, at nagpainit ng sarili sa apoy.
-Gaya naman ng sinasabi niya sa Hoseas,
-Pagkatapos ay sinabi ni Jesus sa kanila, “Huwag kayong matakot. Humayo kayo at sabihin ninyo sa aking mga kapatid na pumunta sila sa Galilea, at doon ay makikita nila ako.”
-At inilalaan ko sa inyo kung paanong ang Ama ay naglaan para sa akin ng isang kaharian,
-Nagpapatotoo siya ng kanyang nakita at narinig, ngunit walang taong tumatanggap ng kanyang patotoo.
-Pabanalin mo sila sa katotohanan; ang salita mo ay katotohanan.
-Ito nga ang ikatlong pagpapakita ni Jesus sa mga alagad, pagkatapos na siya'y bumangon mula sa mga patay.
-na umaaliw sa atin sa lahat ng ating kapighatian, upang maaliw natin ang nasa anumang kapighatian, sa pamamagitan ng kaaliwan na inialiw sa atin ng Diyos.
-Ang gumagamit sa langit sa pagsumpa ay nanunumpa sa trono ng Diyos at sa kanya na nakaupo doon.
-Sinasabi ko sa inyo, nanaog patungo sa kanyang bahay ang taong ito na inaring-ganap sa halip na ang isa. Sapagkat ang bawat nagmamataas sa kanyang sarili ay ibababa, ngunit ang nagpapakababa sa kanyang sarili ay itataas.”
-Muling sinabi sa kanila ni Jesus, “Kapayapaan ang sumainyo. Kung paanong sinugo ako ng Ama ay sinusugo ko rin naman kayo.”
-Tumindig ang pinakapunong pari at sinabi sa kanya, “Wala ka bang isasagot? Ano itong ibinibintang ng mga ito laban sa iyo?”
-Ngunit siya'y sumagot at sinabi sa kanya, “Panginoon, kahit na ang mga aso sa ilalim ng hapag ay kumakain ng mga nalaglag na pagkain ng mga anak.”
-Pasakop kayo sa isa't isa dahil sa takot kay Cristo.
-Gayon nga ang nagtitipon ng kayamanan para sa kanyang sarili, subalit hindi mayaman sa Diyos.”
-At ang ilan sa mga eskriba ay sumagot, “Guro, mahusay ang iyong pagsagot.”
-Makinig kayo! Akong si Pablo ay nagsasabi sa inyo na kung kayo'y patutuli, si Cristo ay hindi magiging pakinabang sa inyo.
-kami ay nagpaalam sa isa't isa. Pagkatapos, lumulan na kami sa barko at sila'y umuwi na sa kanilang mga bahay.
-Sapagkat kung paano sa mga araw na iyon bago bumaha, sila'y kumakain at umiinom, at nag-aasawa at pinag-aasawa, hanggang sa araw na pumasok si Noe sa barko,
-Sumagot si Pilato, “Ang naisulat ko ay naisulat ko na.”
-At di rin nila sasabihin, ‘Tingnan ninyo, naririto o naroroon!’ Sapagkat masdan ninyo, ang kaharian ng Diyos ay nasa inyo.”
-ni Matatias, ni Amos, ni Nahum, ni Esli, ni Nagai,
-kanilang hahagupitin siya at papatayin at sa ikatlong araw siya ay muling mabubuhay.”
-Siya'y maghahari sa sambahayan ni Jacob magpakailanman at hindi magwawakas ang kanyang kaharian.”
-Kumain silang lahat at nabusog. Kinuha nila ang mga lumabis na pinagputul-putol na tinapay, at napuno ang labindalawang kaing.
-Sinabi sa kanya ni Jesus, “Maria.” Humarap siya, at sinabi sa kanya sa wikang Hebreo, “Rabboni!” (na ang ibig sabihin ay Guro).
-na nagpapatotoo sa mga Judio at gayundin sa mga Griyego tungkol sa pagsisisi tungo sa Diyos at pananampalataya sa ating Panginoong Jesu-Cristo.
-Sinenyasan nila ang kanyang ama, kung ano ang ibig niyang itawag sa sanggol.
-Sila'y kanyang tinanong, “Ano ang ipinakikipagtalo ninyo sa kanila?”
-at ibinigay sa kanya ang aklat ni propeta Isaias. Binuksan niya ang aklat, at natagpuan ang dako na kung saan ay nasusulat:
-Sino ang makapaglalarawan sa kanyang lahi?
-Siya'y humiwalay sa kanila na may agwat na isang pukol ng bato. Siya'y lumuhod at nanalangin,
-Habang naglalakad sila sa daan ay may nagsabi sa kanya, “Ako'y susunod sa iyo saan ka man magpunta.”
-Sa simula ay ang Salita, at ang Salita ay kasama ng Diyos, at ang Salita ay Diyos.
-Sinabi nila sa kanya, “Dadalhin niya ang mga masasamang taong iyon sa kakilakilabot na kamatayan at ang ubasan ay ipagkakatiwala niya sa ibang mga magsasaka na magbibigay sa kanya ng mga bunga sa kanilang kapanahunan.”
-Sinabi niya sa kanila, “Dahil maliit ang inyong pananampalataya. Sapagkat katotohanang sinasabi ko sa inyo, kung mayroon kayong pananampalataya na kasinglaki ng butil ng binhi ng mustasa, sasabihin ninyo sa bundok na ito, ‘Lumipat ka roon mula rito,’ at ito'y lilipat; at sa inyo ay walang hindi maaaring mangyari.
-Gaya ng inyong bahagyang pagkakilala sa amin, na kami ay inyong maipagmalaki gaya ninyo na aming ipinagmamalaki sa araw ng Panginoong Jesus.
-Kaya't kanyang tinanong siya ng matagal subalit si Jesus ay hindi sumagot ng anuman.
-At sa pamamagitan ng pananampalataya sa kanyang pangalan, ang kanyang pangalan ang nagpalakas sa taong ito na inyong nakikita at nakikilala. Ang pananampalataya sa pamamagitan ni Jesus ang nagkaloob sa taong ito ng ganitong sakdal na kalusugan sa harapan ninyong lahat.
-sinasabi ba ninyo tungkol sa kanya na hinirang ng Ama at sinugo sa sanlibutan, ‘Ikaw ay lumalapastangan,’ sapagkat sinasabi ko, ‘Ako ay Anak ng Diyos?’
-Sapagkat nasusulat na si Abraham ay nagkaroon ng dalawang anak, isa mula sa aliping babae, at ang isa ay sa babaing malaya.
-Tumakbo kaagad ang isa sa kanila at kumuha ng isang espongha, pinuno ito ng suka, inilagay sa isang tambo, at ibinigay sa kanya upang inumin.
-Ipinatong ni Jesus ang kanyang mga kamay sa kanya at kaagad siyang naunat at niluwalhati niya ang Diyos.
-Ngunit si Pablo ay nanatili pa ng ilang araw, pagkatapos ay nagpaalam na sa mga kapatid, at buhat doo'y naglakbay patungo sa Siria, at kasama niya sina Priscila at Aquila. Inahit niya ang kanyang buhok sa Cencrea, sapagkat siya'y may panata.
-Hindi pa ba ninyo nalalaman na ang anumang pumapasok sa bibig ay tumutuloy sa tiyan, at inilalabas sa daanan ng dumi?
-Kung mayroong lugar na hindi kayo tanggapin at ayaw kayong pakinggan, sa pag-alis ninyo ay ipagpag ninyo ang alikabok na nasa inyong mga paa bilang patotoo laban sa kanila.”
-At hinamak siya at nilibak ni Herodes at ng mga kawal na kasama niya. Sinuotan siya ng maringal na damit at ibinalik kay Pilato.
-Sapagkat kung tayo'y naging kasama niya na katulad ng kanyang kamatayan, ay magkakagayon din naman tayo sa kanyang muling pagkabuhay.
-At nang siya'y papalapit na sa pintuan ng bayan, inilalabas ang isang taong namatay. Siya'y nag-iisang anak na lalaki ng kanyang ina na isang balo. Kasama niya ang napakaraming tao mula sa bayan.
-Nang mag-umaga na, nagkatipon ang kapulungan ng matatanda sa bayan, ang mga punong pari, at gayundin ang mga eskriba. Kanilang dinala siya sa kanilang Sanhedrin, at sinabi nila,
-Ito ang mga nasa tabi ng daan na nahasikan ng salita. Nang kanilang mapakinggan ito, agad dumating si Satanas at inagaw ang salitang inihasik sa kanila.
-Sila'y kanyang pinapanhik sa kanyang bahay at hinainan sila ng pagkain. Siya at ang kanyang buong sambahayan ay nagalak na sumampalataya siya sa Diyos.
-at mga tanda sa lupa sa ibaba, dugo, at apoy, at makapal na usok.
-Kung ang sinuman ay maglilingkod sa akin ay dapat sumunod sa akin, at kung saan ako naroroon, ay naroroon din ang lingkod ko. Kung ang sinuman ay maglilingkod sa akin, siya'y pararangalan ng Ama.
-At ginawa nga ng mga tumanggap ng salapi ang ayon sa itinuro sa kanila. Ang salitang ito ay kumalat sa mga Judio hanggang sa araw na ito.
-Si Pablo na apostol—hindi mula sa mga tao, o sa pamamagitan man ng tao, kundi sa pamamagitan ni Jesu-Cristo, at ng Diyos Ama, na muling bumuhay sa kanya mula sa mga patay—
-Kung siya'y ating pabayaan ng ganito, ang lahat ng mga tao ay maniniwala sa kanya. Darating ang mga Romano at wawasakin ang ating Templo at ang ating bansa.”
-ngunit yamang ito ay usapin tungkol sa mga salita at mga pangalan at sa inyong sariling kautusan, kayo na ang bahala rito; wala akong hangad na maging hukom sa mga bagay na ito.”
-Kailangang ako'y magmalaki, kahit ito'y hindi kapaki-pakinabang, ngunit ako ay magpapatuloy sa mga pangitain at mga pahayag ng Panginoon.
-Lahat ay nagsalita ng mabuti tungkol sa kanya at namangha sa mga mapagpalang salita na lumabas sa kanyang bibig. At sinabi nila, “Hindi ba ito ay anak ni Jose?”
-“Darating ang ugat ni Jesse,
-Sinabi niya, ‘Hindi, amang Abraham, subalit kung ang isang mula sa mga patay ay pumunta sa kanila, sila'y magsisisi.’
-Sumagot siya sa kanila at sinabi, “Bakit lumalabag naman kayo sa utos ng Diyos dahil sa inyong tradisyon?
-Sumagot si Jesus, “Ang pangunahin ay, ‘Pakinggan mo Israel: Ang Panginoon nating Diyos, ang Panginoon ay iisa.
-“Ang isang manghahasik ay humayo upang maghasik ng binhi. Sa kanyang paghahasik, ang ilan ay nahulog sa tabi ng daan, napagyapakan, at ito'y kinain ng mga ibon sa himpapawid.
-Walang may higit pang dakilang pag-ibig kaysa rito, na ibigay ng isang tao ang kanyang buhay dahil sa kanyang mga kaibigan.
-Ang bahagi ng kasulatan na binabasa niya ay ito:
-Kung paanong minahal ako ng Ama, ay gayundin naman minamahal ko kayo. Manatili kayo sa aking pagmamahal.
-At sinabi sa kanya ng diyablo, “Ibibigay ko sa iyo ang lahat ng kapangyarihang ito, at ang kaluwalhatian nila, sapagkat ito'y naibigay na sa akin, at ibinibigay ko kung kanino ko ibig.
-At sa kanyang pintuan ay nakahandusay ang isang pulubi na ang pangala'y Lazaro, na punô ng mga sugat,
-Sapagkat kayo, mga kapatid, ay tinawag sa kalayaan; subalit huwag lamang ninyong gagamitin ang inyong kalayaan bilang isang kadahilanan para sa laman, kundi sa pamamagitan ng pag-ibig ay maging alipin kayo ng isa't isa.
-Noo'y ikasiyam ng umaga nang siya'y kanilang ipinako sa krus.
-Sana'y mapagtiisan ninyo ako sa kaunting kahangalan. Subalit tunay na nagtitiis kayo sa akin!
-Sapagkat kung kayo'y sumasampalataya kay Moises ay sasampalataya kayo sa akin, sapagkat siya'y sumulat tungkol sa akin.
-Sapagkat ako'y bumaba mula sa langit hindi upang gawin ko ang aking sariling kalooban, kundi ang kalooban ng nagsugo sa akin.
-Subalit marami pa ring ibang mga bagay na ginawa si Jesus, na kung susulating isa-isa, sa palagay ko, kahit sa sanlibutan mismo ay hindi magkakasiya ang mga aklat na isusulat.
-May dalawang taong nanghiram sa isang taong nagpapautang. Ang isa'y umutang ng limang daang denario at ang isa'y limampu.
-“Mapapalad ang mga inuusig dahil sa katuwiran, sapagkat kanila ang kaharian ng langit.
-Siya'y kanilang tinanong, “Kung gayo'y, ikaw ba si Elias?” At sinabi niya, “Hindi ako.” “Ikaw ba ang propeta?” At siya'y sumagot, “Hindi.”
-Subalit nalalaman ko na ang pag-ibig ng Diyos ay wala sa inyo.
-“Pumasok kayo sa makipot na pintuan, sapagkat maluwang ang pintuan at malapad ang daang patungo sa kapahamakan, at marami ang pumapasok doon.
-“Kayong mga Israelita, pakinggan ninyo ang mga salitang ito: Si Jesus na taga-Nazaret, isang lalaking pinatunayan ng Diyos sa inyo sa pamamagitan ng mga gawang makapangyarihan, mga kababalaghan at mga tanda na ginawa ng Diyos sa pamamagitan niya sa gitna ninyo, gaya ng nalalaman ninyo—
-“Ako'y naparito upang maghagis ng apoy sa lupa at nais ko sana na ito ay nagniningas na!
-At kanilang sinabi, “Manampalataya ka sa Panginoong Jesus at maliligtas ka, ikaw at ang iyong sambahayan.”
-baka sila'y makakita sa kanilang mga mata,
-hanggang sa araw na ito.”
-Kaya't sinabi ng kanyang mga magulang, “Siya'y may sapat na gulang na, tanungin ninyo siya.”
-At sinabi niya sa kanya, ‘Magaling, mabuting alipin. Sapagkat naging tapat ka sa kakaunti, mamahala ka sa sampung lunsod.’
-Siya'y bumaba sa Capernaum, na isang bayan ng Galilea. At siya'y nagturo sa kanila sa araw ng Sabbath.
-Hindi sa may ibang ebanghelyo, kundi mayroong ilan na nanggugulo sa inyo at nagnanais na baluktutin ang ebanghelyo ni Cristo.
-At bakit? Sapagkat hindi ko kayo minamahal? Alam ito ng Diyos!
-Sinabi niya sa kanya, ‘Hinahatulan kita mula sa sarili mong bibig, ikaw na masamang alipin. Alam mo na ako'y taong mahigpit, na kumukuha ng hindi ko itinabi, at gumagapas ng hindi ko inihasik.
-Kaya't kunin ninyo ang buong baluti ng Diyos, upang kayo'y makatagal sa araw na masama, at kung magawa na ninyo ang lahat ay tumayong matatag.
-Kayo noo'y mga patay sa inyong mga pagsalangsang at mga kasalanan,
-Hindi ba sinabi ng kasulatan na ang Cristo ay manggagaling sa binhi ni David, at mula sa Bethlehem, ang bayan ni David?”
-Nang makakain na sila nang sapat, pinagaan nila ang barko sa pamamagitan ng pagtatapon ng trigo sa dagat.
-Tinawag niya ang maraming tao pati ang kanyang mga alagad, at sa kanila'y sinabi, “Kung ang sinuman ay nagnanais sumunod sa akin, siya ay tumanggi sa kanyang sarili, pasanin ang kanyang krus at sumunod sa akin.
-Ano nga ang ating sasabihin? Ang kautusan ba'y kasalanan? Huwag nawang mangyari. Gayunma'y hindi ko sana nakilala ang kasalanan, kung hindi sa pamamagitan ng kautusan; sapagkat hindi ko sana nakilala ang pag-iimbot kung hindi sinasabi ng kautusan, “Huwag kang mag-iimbot.”
-At titipunin sa harapan niya ang lahat ng mga bansa at kanyang pagbubukud-bukurin ang mga tao na gaya ng pagbubukud-bukod ng pastol sa mga tupa at sa mga kambing,
-Pagkatapos sila'y dumating sa lupain ng mga Gadareno, na katapat ng Galilea.
-Kaya't isinugo namin sina Judas at Silas na magsasabi sa inyo ng gayunding mga bagay sa pamamagitan ng salita ng bibig.
-Kaya't sa ganang akin, nasasabik din akong ipangaral ang ebanghelyo sa inyong mga nasa Roma.
-Nabalitaan ni Jesus na siya'y pinalayas nila at nang kanyang makita siya, ay sinabi niya, “Sumasampalataya ka ba sa Anak ng Tao?”
-Ang nanggagaling sa itaas ay mataas sa lahat, ang galing sa lupa ay taga-lupa nga, at nagsasalita tungkol sa mga bagay sa lupa; ang nanggagaling sa langit ay mataas sa lahat.
-Sa alinmang bahay kayo pumasok, doon kayo tumigil, at buhat doo'y umalis kayo.
-ni ipahihintulot man na ang iyong Banal ay makakita ng kabulukan.
-At sinabi naman ng isa pa, “Ako'y susunod sa iyo, Panginoon, subalit hayaan mo muna akong magpaalam sa mga nasa bahay ko.”
-“Ganito ang ginawa ng Panginoon sa akin nang mga araw na ako'y kanyang bigyang-pansin upang alisin ang aking kahihiyan sa gitna ng mga tao.”
-At sinabi sa kanila ni Pedro, “Magsisi kayo, at magpabautismo ang bawat isa sa inyo sa pangalan ni Jesu-Cristo upang mapatawad ang inyong mga kasalanan; at tatanggapin ninyo ang kaloob ng Espiritu Santo.
-Kinabukasan, lumabas kami at dumating sa Cesarea; at pumasok kami sa bahay ni Felipe na ebanghelista, na isa sa pito, at nanatili kaming kasama niya.
-“Kayo'y yaong patuloy na kasama ko sa mga pagsubok sa akin.
-Ililigtas kita sa mga kababayan mo at sa mga Hentil, na sa kanila'y isinusugo kita,
-At kung may sinumang magsabi sa inyo, ‘Masdan ninyo, narito ang Cristo!’ o, ‘Nariyan siya!’ huwag ninyong paniwalaan.
-Si Juan ay nakadamit ng balahibo ng kamelyo, may sinturong balat sa kanyang baywang, at kumakain ng mga balang at pulot-pukyutan.
-Ano sa palagay mo, alin sa tatlong ito, ang naging kapwa tao sa nahulog sa kamay ng mga tulisan?”
-Paanong naririnig natin, ng bawat isa sa atin, ang ating sariling wikang kinagisnan?
-Nagtatali sila ng mabibigat na pasanin at mahihirap dalhin, at ipinapatong nila sa mga balikat ng mga tao; ngunit ayaw nila mismong galawin ang mga iyon ng kanilang daliri.
-Ngunit sinabi ni Pablo, “Hindi ako baliw, kagalang-galang na Festo; kundi mga salita ng katotohanan at katuwiran ang sinasabi ko.
-Nang mga araw na iyon, siya'y nagkasakit at namatay. Nang siya'y mahugasan na nila, kanilang ibinurol siya sa isang silid sa itaas.
-Sapagkat kung ipahahayag mo sa pamamagitan ng iyong bibig si Jesus na Panginoon, at sasampalataya ka sa iyong puso na binuhay siyang muli ng Diyos mula sa mga patay, ay maliligtas ka.
-upang kung mabihisan na niyon ay hindi kami matagpuang hubad.
-At sasagot ang Hari at sasabihin sa kanila, ‘Katotohanang sinasabi ko sa inyo, yamang ginawa ninyo ito sa isa sa pinakamaliit sa mga kapatid kong ito, ay sa akin ninyo ginawa.’
-At sabihin ninyo sa may-ari ng bahay, ‘Sinasabi ng Guro sa iyo, “Saan ang silid para sa panauhin na doon ay aking kakainin ang Paskuwa na kasalo ng aking mga alagad?”’
-ang mga nasa Judea ay tumakas na patungo sa mga bundok.
-Subalit nang unang araw ng sanlinggo sa pagbubukang-liwayway, pumunta sila sa libingan, dala ang mga pabango na kanilang inihanda.
-Kaya ang pananampalataya ay nanggagaling sa pakikinig, at ang pakikinig ay sa pamamagitan ng salita ni Cristo.
-Mula noon, si Jesus ay hindi na naglalakad nang hayagan sa gitna ng mga Judio, kundi pumunta siya sa lupaing malapit sa ilang, sa isang bayan na tinatawag na Efraim. Siya'y nanirahan doon kasama ng mga alagad.
-Sinabi ni Jesus sa kanila, “Tatanungin ko kayo ng isang tanong. Sagutin ninyo ako at sasabihin ko sa inyo kung sa anong awtoridad ko ginagawa ang mga bagay na ito.
-Nang dumating si Pablo sa hagdanan, siya'y binuhat na ng mga kawal dahil sa karahasan ng napakaraming tao.
-Samantalang sinisiksik si Jesus ng napakaraming tao upang makinig ng salita ng Diyos, siya'y nakatayo sa tabi ng lawa ng Genesaret.
-Para sa gayong tao, ang kaparusahang ito ng nakararami ay sapat na.
-Ngunit inyong itinakuwil ang Banal at ang Matuwid at inyong hininging ipagkaloob sa inyo ang isang mamamatay-tao,
-Ang hindi nagmamahal sa akin ay hindi tumutupad ng aking mga salita, at ang salitang inyong narinig ay hindi akin, kundi sa Amang nagsugo sa akin.
-Ang Espiritu mismo ang nagpapatotoo kasama ng ating espiritu na tayo'y mga anak ng Diyos.
-At sinabi nila sa kanila ang sinabi ni Jesus at kanilang pinayagan sila.
-Nang matupad na nila ang lahat ng mga bagay na nasusulat tungkol sa kanya, kanilang ibinaba siya sa punungkahoy at inilagay sa isang libingan.
-Sinabi ni Pedro, “Ananias, bakit napadaig ka kay Satanas at nagsinungaling ka sa Espiritu Santo, at itago ang bahagi ng pinagbilhan ng lupa?
-Kaya't muling sinabi sa kanila ni Jesus, “Katotohanang sinasabi ko sa inyo, ako ang pintuan ng mga tupa.
-Sapagkat sinasabi ng kasulatan, “Ang bawat sumasampalataya sa kanya ay hindi malalagay sa kahihiyan.”
-Ngunit nang dumating ang pagdiriwang ng kaarawan ni Herodes, sumayaw sa gitna nila ang anak na babae ni Herodias, at ito ay ikinatuwa ni Herodes.
-Nakakita si Jesus ng isang batang asno, at sumakay siya roon, gaya ng nasusulat,
-Ang ilan sa nakatayo roon ay nagsabi sa kanila, “Anong ginagawa ninyo na inyong kinakalagan ang batang asno?”
-Nang magkulang ng alak, sinabi ng ina ni Jesus sa kanya, “Wala silang alak.”
-Sa sinumang sumampal sa iyo sa pisngi, iharap mo naman ang kabila, at sa sinumang umagaw ng iyong balabal, huwag mong ipagkait pati ang iyong tunika.
-Ang sumasampalataya sa Anak ay may buhay na walang hanggan; ngunit ang hindi sumusunod sa Anak ay hindi makakakita ng buhay, kundi ang poot ng Diyos ay nananatili sa kanya.
-Hinawakan niya ang kamay ng bata at sinabi sa kanya, “Talitha cum,” na ang kahulugan ay “Munting batang babae, sinasabi ko sa iyo, bumangon ka!”
-At pagdating niya, kanyang susumbatan ang sanlibutan tungkol sa kasalanan, sa katuwiran, at sa kahatulan:
-Pagkatapos na matanggap ang kapirasong tinapay, si Satanas ay pumasok sa kanya. Sinabi sa kanya ni Jesus, “Gawin mong mabilis ang iyong gagawin.”
-Ito ang dahilan kaya't madalas akong nahahadlangan sa pagpunta sa inyo.
-Sinasabi ko nga, natisod ba sila upang mahulog? Huwag nawang mangyari. Subalit sa pagkahulog nila'y dumating ang kaligtasan sa mga Hentil, upang pukawin sila sa paninibugho.
-Ang maraming tao ay sama-samang tumindig laban sa kanila; at pinunit ng mga hukom ang mga damit nina Pablo at Silas, at ipinag-utos na hagupitin sila.
-At sila'y pinaalis niya sa hukuman.
-Puspusin nawa kayo ng Diyos ng pag-asa, ng buong kagalakan at kapayapaan sa pananampalataya, upang kayo'y sumagana sa pag-asa sa pamamagitan ng kapangyarihan ng Espiritu Santo.
-ay ipinag-utos ng pinunong kapitan na siya'y ipasok sa himpilan at sinabing siya'y siyasatin na may paghagupit upang malaman niya kung anong dahilan at sila'y nagsigawan nang gayon laban sa kanya.
-Pagkatapos na sila'y manatili roon ng ilang panahon, sila'y payapang pinabalik ng mga kapatid sa mga nagsugo sa kanila.
-Ngunit sinabi niya sa kanila, “Huwag kayong magtaka; hinahanap ninyo si Jesus na taga-Nazaret na ipinako sa krus. Siya'y muling binuhay. Wala siya rito. Tingnan ninyo ang dakong pinaglagyan nila sa kanya!
-Pumasok din ang alagad na unang dumating sa libingan at kanyang nakita at siya'y naniwala.
-Kaya, may dalawang taong pupunta sa bukid, ang isa'y kukunin, at ang isa'y iiwan.
-at ipinagpalit nila ang kaluwalhatian ng Diyos na hindi nasisira sa mga imaheng kahawig ng tao na nasisira, at ng mga ibon, ng mga hayop na may apat na paa at ng mga gumagapang.
-Sapagkat ang Diyos ang nagsabi, “Magningning ang ilaw sa kadiliman,” na siyang tumatanglaw sa aming mga puso upang magbigay-liwanag sa pagkakilala sa kaluwalhatian ng Diyos sa mukha ni Jesu-Cristo.
-At paglabas niya nang ikatlong oras, nakita niya ang iba sa pamilihan na nakatayong walang ginagawa.
-Sinabi naman ni Jesus sa kanila, “Kayo ba'y lumabas na may mga tabak at mga pamalo upang dakpin ako na parang isang tulisan?
-Tumakbo sila sa palibot ng buong lupaing iyon at pinasimulan nilang dalhin ang mga maysakit na nasa kanilang higaan, saanman nila mabalitaan na naroon siya.
-Sinabi sa kanila ni Simon Pedro, “Mangingisda ako.” Sinabi nila sa kanya, “Kami ay sasama rin sa iyo.” Sila'y umalis at sumakay sa bangka. Nang gabing iyon ay wala silang nahuli.
-Nang marinig ito ng napakaraming tao, namangha sila sa kanyang aral.
-Siya'y sinundan ng napakaraming tao, at ng mga babaing nagdadalamhati at nag-iiyakan para sa kanya.
-Kaya't sa dahilang ito, tinawag ko kayo upang makipagkita at makipag-usap sa inyo, yamang dahil sa pag-asa ng Israel ay nagagapos ako ng tanikalang ito.”
-Nang masabi na ni Jesus ang mga bagay na ito, tumingala siya sa langit at sinabi, “Ama, dumating na ang oras, luwalhatiin mo ang iyong Anak, upang luwalhatiin ka ng Anak,
-At siya'y may isang kapatid na tinatawag na Maria na naupo sa paanan ng Panginoon at nakinig sa kanyang salita.
-Katotohanang sinasabi ko sa inyo, kung ang sinuman ay tutupad ng aking salita, hindi siya makakakita ng kamatayan kailanman.”
-At tumindig nga siya at umalis. May isang lalaking taga-Etiopia, isang eunuko at tagapamahala ni Candace na reyna ng mga taga-Etiopia. Siya ang namamahala ng buong kayamanan ng reyna. Ang eunuko ay nagpunta sa Jerusalem upang sumamba.
-Isa sa mga Fariseo ay humiling kay Jesus na kumaing kasalo niya, at pagpasok niya sa bahay ng Fariseo siya'y naupo sa hapag.
-Nakita ng mga kasamahan ko noon ang liwanag, ngunit hindi nila narinig ang tinig ng nagsalita sa akin.
-Sapagkat nang kayo ay mga alipin pa ng kasalanan, kayo'y malalaya tungkol sa pagiging matuwid.
-Nagsugo siya at pinapugutan niya ng ulo si Juan sa bilangguan.
-Sinabi sa kanya ni Jesus, “Babae, maniwala ka sa akin na darating ang oras na inyong sasambahin ang Ama, hindi sa bundok na ito o sa Jerusalem.
-Ngunit kinuha ng mga magsasaka ang kanyang mga alipin at binugbog nila ang isa, pinatay ang iba, at pinagbabato ang isa pa.
-Lahat nang nakarinig sa kanya ay namangha, at nagsabi, “Hindi ba ito ang lalaking pumuksa sa Jerusalem sa mga tumatawag sa pangalang ito? At naparito siya para sa layuning ito, upang sila'y dalhing nakagapos sa harap ng mga punong pari.”
-at tayo'y hindi niya itinangi sa kanila, kundi nilinis ang kanilang mga puso sa pamamagitan ng pananampalataya.
-Sapagkat sa pagbubuhos niya ng pabangong ito sa aking katawan, ginawa niya iyon upang ihanda ako sa paglilibing.
-Sapagkat ang sinumang ikinahihiya ako at ang aking mga salita sa mapangalunya at makasalanang salinlahing ito ay ikahihiya rin naman siya ng Anak ng Tao, pagdating niyang nasa kaluwalhatian ng kanyang Ama na kasama ng mga banal na anghel.”
-at sa mga nakaupo sa lupain at lilim ng kamatayan,
-sapagkat hindi kami tumitingin sa mga bagay na nakikita, kundi sa mga bagay na hindi nakikita, sapagkat ang mga bagay na nakikita ay may katapusan, subalit ang mga bagay na hindi nakikita ay walang hanggan.
-Ngunit sinabi sa kanya ng Panginoon, “Pumunta ka sapagkat siya'y isang kasangkapang pinili ko upang dalhin ang aking pangalan sa harapan ng mga Hentil at ng mga hari, at ng mga anak ni Israel;
+Ngunit ang mga nagnanais yumaman ay nahuhulog sa tukso, at nabibitag sa maraming hangal at nakapipinsalang pagnanasa, na siyang naglulubog sa mga tao sa pagkawasak at kapahamakan.
 Ito ang unang pagtatala na ginawa nang si Quirinio ay gobernador sa Siria.
-Sumagot sa kanya si Jesus, “Lumayas ka, Satanas! sapagkat nasusulat, ‘Sambahin mo ang Panginoon mong Diyos, at siya lamang ang iyong paglingkuran.’”
-Sinabi nila sa kanya, “Babae, bakit ka umiiyak?” Sinabi niya sa kanila, “Sapagkat kinuha nila ang aking Panginoon, at hindi ko alam kung saan nila siya inilagay.”
-At ang nasa bubungan ay huwag nang bumaba, o pumasok upang maglabas ng anuman sa kanyang bahay.
-Sapagkat sinasabi ng kasulatan kay Faraon, “Dahil sa layuning ito, ay itinaas kita, upang aking maipakita sa pamamagitan mo ang aking kapangyarihan, at upang ang aking pangalan ay maipahayag sa buong lupa.”
-Ang maraming tao na sumunod sa kanya ay patuloy na sumisigaw, “Alisin siya!”
-Subalit nang dumating ang anak mong ito na lumustay ng iyong kabuhayan sa masasamang babae ay ipinagpatay mo pa siya ng pinatabang guya.’
-“Ngayon ay nababagabag ang aking kaluluwa. At ano ang aking sasabihin? ‘Ama, iligtas mo ako sa oras na ito?’ Ngunit dahil dito ay dumating ako sa oras na ito.
-Sa kautusan ay ipinag-utos sa amin ni Moises na batuhin ang mga ganyan. Ano ngayon ang iyong masasabi tungkol sa kanya?”
-Biglang nabuksan ang kanyang bibig, nakalaya ang kanyang dila, at siya'y nagsalita na pinupuri ang Diyos.
-Kanyang gagantihan ang bawat tao ayon sa kanyang mga gawa:
-Nang matikman ng pinuno ng handaan ang tubig na naging alak, at hindi niya alam kung saan ito nanggaling (subalit nalalaman ng mga lingkod na kumuha ng tubig), tinawag ng pinuno ng handaan ang lalaking bagong kasal.
-Kaya't marami sa mga Judio na sumama kay Maria at nakakita ng ginawa niya ang sumampalataya sa kanya.
-Pumunta ang lahat upang magpatala, bawat isa sa kanyang sariling bayan.
-“Kung magkasala laban sa iyo ang iyong kapatid, pumaroon ka at sabihin mo sa kanya ang kanyang pagkakamali kapag kayong dalawa lamang. Kung pakinggan ka niya, ay napanumbalik mo ang iyong kapatid.
-At pagkaawit nila ng isang himno ay nagtungo sila sa Bundok ng mga Olibo.
-Sa pagdaan ni Jesus sa tabi ng dagat ng Galilea, nakita niya sina Simon at ang kanyang kapatid na si Andres na naghahagis ng lambat sa dagat, sapagkat sila'y mga mangingisda.
-Muli siyang tinanong ni Pilato, “Wala ka bang isasagot? Tingnan mo kung gaano karami ang kanilang ibinibintang laban sa iyo.”
-Ngayon, mayroong pitong magkakapatid na lalaki. Nag-asawa ang panganay, at namatay na walang anak;
-Nabalitaan ng mga apostol at ng mga kapatid na nasa Judea na tinanggap din ng mga Hentil ang salita ng Diyos.
-Hinawakan niya sa kamay ang lalaking bulag at dinala niya sa labas ng nayon. Nang maduraan ang kanyang mga mata at maipatong ang kanyang mga kamay sa kanya, kanyang tinanong siya, “May nakikita ka bang anuman?”
-Sapagkat hindi mo hahayaan ang kaluluwa ko sa Hades,
-Sumagot siya sa kanila, “Sino ang aking ina at ang aking mga kapatid?”
-Pagkatapos ng Sabbath, sa pagbubukang-liwayway ng unang araw ng sanlinggo, si Maria Magdalena at ang isa pang Maria ay pumaroon upang tingnan ang libingan.
-At sinabi sa kanya, “Humayo ka, maghugas ka sa imbakan ng tubig ng Siloam” (na ang kahulugan ay Sinugo). Humayo nga siya at naghugas at bumalik na nakakakita.
-Ano sa palagay ninyo?” Sumagot sila at sinabi, “Karapat-dapat siya sa kamatayan.”
-Nang panahong iyon ay nagkaroon ng malaking gulo tungkol sa Daan.
-Alalahanin ninyo ang asawa ni Lot.
-Nakikilala ko siya sapagkat ako'y mula sa kanya, at siya ang nagsugo sa akin.”
-“Ang kanilang bibig ay punô ng panunumpa at kapaitan.”
-Ngunit sinabi sa kanya ni Pedro, “Ang iyong salapi'y mapahamak na kasama mo, sapagkat inakala mong makukuha mo ang kaloob ng Diyos sa pamamagitan ng salapi!
-Sila'y tinuruan niya ng maraming bagay sa pamamagitan ng mga talinghaga at sa kanyang pagtuturo ay sinabi niya sa kanila,
-Sina Pedro at Juan, pagkatapos na makapagpatotoo at masabi na nila ang salita ng Panginoon, ay bumalik sa Jerusalem na ipinangaral ang ebanghelyo sa maraming nayon ng mga Samaritano.
-Ngayon, ang mga pangako ay ginawa kay Abraham at sa kanyang binhi. Hindi sinasabi, “At sa mga binhi,” na tungkol sa marami; kundi tungkol sa iisa, “At sa iyong binhi,” na si Cristo.
-Nagsimulang magsalita si Pedro at kanyang sinabi, “Tunay ngang nauunawaan ko na walang kinikilingan ang Diyos,
-At nang makita ng mga alagad na siya ay lumalakad sa ibabaw ng dagat, nasindak sila, na nagsasabi, ‘Multo!’ Nagsigawan sila sa takot.
-Ngunit hindi sila makasalungat sa karunungan at sa Espiritu na sa pamamagitan nito'y nagsasalita siya.
-Pagkaraan ng tatlong araw, tinipon niya ang mga pinuno ng mga Judio at nang sila'y matipon na, ay sinabi niya sa kanila, “Mga kapatid, bagaman wala akong ginawang anuman laban sa bayan, o sa mga kaugalian ng ating mga ninuno, ay ibinigay akong bilanggo buhat sa Jerusalem sa mga kamay ng mga taga-Roma.
-Pagkatapos ay lumapit kay Jesus ang ina ng mga anak ni Zebedeo, na kasama ang kanyang mga anak na lalaki. Siya'y lumuhod sa kanya at may hiniling na isang bagay sa kanya.
-at itatapon nila ang mga ito sa pugon ng apoy. Doon ay magkakaroon ng pagtangis at pagngangalit ng mga ngipin.
-Lumabas ang buong bayan upang salubungin si Jesus at pagkakita nila sa kanya, pinakiusapan nila siyang umalis sa kanilang nasasakupan.
-Agad niyang tinawag sila at iniwan nila si Zebedeo na kanilang ama sa bangka na kasama ng mga upahang tauhan at sumunod sa kanya.
-Pagkatapos nilang manalangin, nayanig ang dakong pinagtitipunan nila at silang lahat ay napuno ng Espiritu Santo, at kanilang ipinahayag na may katapangan ang salita ng Diyos.
-Nagharap sila ng mga sinungaling na saksi na nagsabi, “Ang taong ito'y hindi tumitigil sa pagsasalita ng mga salitang laban sa Dakong Banal na ito at sa Kautusan.
-ngunit sumagot ang kanyang ina at nagsabi, “Hindi. Ang itatawag sa kanya ay Juan.”
-Nang marinig niya ito, tumakas si Moises at naging dayuhan sa lupain ng Midian, kung saan siya'y naging ama ng dalawang lalaki.
-na sinasabi, “Guro, sinabi ni Moises, ‘Kung mamatay ang isang tao na walang anak, pakakasalan ng kanyang kapatid na lalaki ang asawa niya, at magkakaroon ng mga anak para sa kanyang kapatid na lalaki.’
-Ang kanyang anyo ay tulad sa kidlat at ang kanyang pananamit ay maputing parang busilak.
-“Ang mga patriyarka, dahil sa inggit kay Jose ay ipinagbili siya sa Ehipto, ngunit ang Diyos ay kasama niya.
-[
-Pagkatapos ay sinabi niya sa alagad, “Narito ang iyong ina!” At mula noon ay dinala siya ng alagad sa kanyang sariling tahanan.
-Nais kong makaharap kayo ngayon at baguhin ang aking tono, sapagkat ako'y nag-aalinlangan tungkol sa inyo.
-Inihulog nila ang mga angkla at kanilang iniwan iyon sa dagat samantalang kinakalag ang mga tali ng mga ugit. Nang maitaas na nila sa hangin ang layag sa unahan ay nagtungo sila sa baybayin.
-Nang matapos pagbilinan ni Jesus ang kanyang labindalawang alagad, umalis siya roon upang magturo at mangaral sa mga bayan nila.
-na nang siya'y nasa Galilea, ay sumunod sa kanya at naglingkod sa kanya; at marami pang ibang mga babae na umahong kasama niya sa Jerusalem.
-at pinasimulan niyang bugbugin ang mga kapwa niya alipin, at nakisalo at nakipag-inuman sa mga lasing,
-Magkakaroon ng malalakas na lindol, at sa iba't ibang dako ay magkakaroon ng taggutom at mga salot, at magkakaroon ng mga bagay na kakilakilabot, at ng mga dakilang tanda mula sa langit.
-At ito ang buhay na walang hanggan, na ikaw ay makilala nila na iisang Diyos na tunay, at si Jesu-Cristo na iyong sinugo.
-Ibig siyang hadlangan ni Juan, na nagsasabi, “Ako ang dapat mong bautismuhan, at ikaw pa ang lumalapit sa akin?”
-Katotohanang sinasabi ko sa inyo, maliban na ang butil ng trigo ay mahulog sa lupa at mamatay, ito ay mananatiling nag-iisa. Ngunit kung ito'y mamatay, ay nagbubunga ng marami.
-At bumalik ang alipin, at iniulat ang mga bagay na ito sa kanyang panginoon. Sa galit ng may-ari ng bahay ay sinabi sa kanyang alipin, ‘Pumunta ka agad sa mga lansangan at sa makikipot na daan ng bayan, at dalhin mo rito ang mga dukha, ang mga pilay, ang mga bulag, at ang mga lumpo.’
-Ngunit kung paanong ang Diyos ay tapat, ang aming sinasabi sa inyo ay hindi “Oo at Hindi.”
-Subalit sinabi sa kanya ng Diyos, ‘Hangal, sa gabing ito ay kukunin ang iyong kaluluwa; at kanino kaya mapupunta ang mga bagay na inihanda mo?’
-Sapagkat sa pamamagitan niya, kapwa tayong makakalapit sa isang Espiritu patungo sa Ama.
-Siya'y iniligtas sa lahat ng kanyang kapighatian, at binigyan siya ng biyaya at karunungan sa harapan ng Faraon na hari ng Ehipto; at kanyang pinili siya upang mamahala sa Ehipto at sa buong bahay niya.
-Gayundin naman kayo, kapag nagawa na ninyo ang lahat ng mga bagay na iniutos sa inyo, inyong sabihin, ‘Kami'y mga aliping walang kabuluhan, ginawa lamang namin ang aming katungkulan.’”
-Sinabi sa kanya ni Jesus, “Ako nga iyon na kumakausap sa iyo!”
-idalangin ninyo sa Panginoon ng anihin, na magpadala ng mga manggagawa sa kanyang aanihin.”
-Sapagkat pumarito ako upang paglabanin ang lalaki at ang kanyang ama, ang anak na babae at ang kanyang ina, at ang manugang na babae at ang kanyang biyenang babae.
-Katotohanang sinasabi ko sa inyo, sinumang hindi tumatanggap sa kaharian ng Diyos na gaya ng isang maliit na bata ay hindi makakapasok doon.”
-Ito ay ayon sa walang hanggang panukala na kanyang ginawa kay Cristo Jesus na Panginoon natin,
-Ngunit ito'y sinabi niya tungkol sa Espiritu, na tatanggapin ng mga sumasampalataya sa kanya, sapagkat hindi pa ipinagkakaloob ang Espiritu, sapagkat si Jesus ay hindi pa niluluwalhati.
-‘Ibibigay ko sa iyo ang banal at mga maaasahang pangako kay David.’
-Mga minamahal, yamang taglay natin ang mga pangakong ito, linisin natin ang ating mga sarili mula sa bawat karumihan ng laman at espiritu, na ginagawang sakdal ang kabanalan sa pagkatakot sa Diyos.
-“Ngunit nang pumasok ang hari upang tingnan ang mga panauhin, may nakita siya roong isang tao na hindi nakadamit pangkasal.
-Kanyang isinama sina Pedro, Santiago at Juan, at nagsimula siyang malungkot at mabagabag.
-Ngunit may isang lalaki na ang pangalan ay Ananias ang nagbili ng isang ari-arian, na may pagsang-ayon ng kanyang asawang si Safira.
-Ngunit nang paligiran siya ng mga alagad, tumayo siya at pumasok sa lunsod. Kinabukasan, umalis siya kasama ni Bernabe patungo sa Derbe.
-Sapagkat marami ang darating sa aking pangalan, na nagsasabi, ‘Ako ang Cristo’ at ililigaw nila ang marami.
-[
-Sapagkat malapit ang Lidda sa Joppa, nang mabalitaan ng mga alagad na si Pedro ay naroroon, nagsugo sila sa kanya ng dalawang tao at ipinakiusap sa kanya, “Pumarito ka sa amin sa lalong madaling panahon.”
-Sinabi sa kanya ni Jesus, “Siya'y nakita mo na, at siya ang nakikipag-usap sa iyo.”
-Kung ang kanan mong mata ang sanhi ng iyong pagkakasala, dukitin mo ito at itapon, sapagkat mabuti pang mawalan ka ng isa sa mga bahagi ng iyong katawan kaysa ang buong katawan mo ay mapatapon sa impiyerno.
-Sino ang hahatol? Si Cristo Jesus na namatay, oo, siyang muling binuhay mula sa mga patay, na siya ring nasa kanan ng Diyos, na siya ring namamagitan para sa atin.
-Kung ang mga bagay na aking sinira ay aking muling itayo, pinatutunayan ko sa aking sarili na ako'y suwail.
-Magbatian kayo ng banal na halik. Binabati kayo ng lahat ng mga iglesya ni Cristo.
-Nagtangka pa siya na lapastanganin ang templo ngunit dinakip namin siya.
-naging anak ni Aram si Aminadab; naging anak ni Aminadab si Naashon; at naging anak ni Naashon si Salmon;
-Sumagot si Jesus at sinabi sa kanila, “Tatanungin ko rin kayo ng isang tanong, at kung sasabihin ninyo sa akin ang sagot ay sasabihin ko naman sa inyo kung sa anong awtoridad ginagawa ko ang mga bagay na ito.
-Subalit ang mula sa alipin ay ipinanganak ayon sa laman, at ang mula sa babaing malaya ay sa pamamagitan ng pangako.
-Subalit ano ang sinasabi ng kasulatan? “Palayasin ang aliping babae at ang kanyang anak, sapagkat hindi magmamana ang anak ng babaing alipin na kasama ng anak ng babaing malaya.”
-Kanyang sinagot sila, “Sinabi ko na sa inyo, at hindi kayo nakinig. Bakit ibig ninyong marinig uli? Ibig din ba ninyong maging mga alagad niya?”
-Nang makaraan na sina Pablo at Silas sa Amfipolis at sa Apolonia ay nakarating sila sa Tesalonica, kung saan ay may isang sinagoga ng mga Judio.
-Sinabi ni Jesus sa kanila, “Itinatanong ko sa inyo, ipinahihintulot ba sa kautusan na gumawa ng mabuti, o gumawa ng masama kung Sabbath? Magligtas ng buhay o pumuksa nito?”
-At sasabihin nila sa inyo, ‘Tingnan ninyo, naroroon’ o ‘Tingnan ninyo, naririto!’ Huwag kayong pumaroon o sumunod sa kanila.
-Nang sumunod na araw, lumapit siya sa kanila samantalang sila'y nag-aaway, at ibig sana niyang sila'y pagkasunduin, na sinasabi, ‘Mga ginoo, kayo'y magkapatid; bakit kayo nag-aaway?’
-At sila'y dumaan sa Pisidia at nagtungo sa Pamfilia.
-Kung may magsabi sa inyo, ‘Narito ang Cristo!’ o, ‘Tingnan ninyo naroon siya!’ huwag ninyong paniwalaan.
-At ang nagkanulo sa kanya ay nagbigay sa kanila ng isang hudyat, na sinasabi, “Ang aking halikan ay iyon na; hulihin ninyo siya at dalhin siyang may bantay.”
-Subalit kung ang ating kasamaan ay nagpapatibay sa katarungan ng Diyos, ano ang ating sasabihin? Ang Diyos ba ay di-makatarungan sa paglalapat ng parusa sa atin? (Nagsasalita ako sa paraan ng tao.)
-Ibinangon ng Diyos ng ating mga ninuno si Jesus, na inyong pinatay nang ibitin siya sa isang punungkahoy.
-Ngunit kapag nag-aayuno ka, lagyan mo ng langis ang iyong ulo, at maghilamos ka ng iyong mukha;
-Sinabi nga niya, “Isang maharlikang tao ang pumunta sa isang malayong lupain, upang tumanggap ng isang kaharian at pagkatapos ay bumalik.
-sapagkat bibigyan ko kayo ng salita at karunungan na hindi malalabanan o matututulan man ng lahat ng sumasalungat sa inyo.
-Sila ay nakiusap sa kanya na huwag silang utusang bumalik sa di-matarok na kalaliman.
-At siya'y lumabas at pumaroon, gaya ng kanyang nakaugalian, sa bundok ng mga Olibo at sumunod naman sa kanya ang mga alagad.
-Siya'y kanilang dinamitan ng kulay-ube, at nang makapagtirintas ng isang koronang tinik ay ipinutong nila ito sa kanya.
-Tinawag nilang Zeus si Bernabe at Hermes si Pablo, sapagkat siya ang pangunahing tagapagsalita.
-‘Tingnan ninyo, mga mapanlibak!
-Ang mga bagay na ito ay isang paghahambing, sapagkat ang mga babaing ito'y dalawang tipan. Ang isa ay si Hagar na mula sa bundok ng Sinai na nanganganak para sa pagkaalipin.
-Nang marinig ito ni Jesus, sinabi niya sa kanya, “Isang bagay pa ang kulang sa iyo. Anumang mayroon ka ay ipagbili mo, ipamahagi mo sa mga dukha, at magkakaroon ka ng kayamanan sa langit. At pumarito ka, sumunod ka sa akin.
-Iniunat ni Jesus ang kanyang kamay, at hinawakan niya ito na nagsasabi, “Ibig ko. Maging malinis ka.” At nalinis kaagad ang kanyang ketong.
-Subalit ngayo'y pinagsisikapan ninyo akong patayin, isang taong nagsasabi sa inyo ng katotohanan na aking narinig sa Diyos. Ito'y hindi ginawa ni Abraham.
-Nang bumaba si Jesus mula sa bundok, sinundan siya ng napakaraming tao;
-Mula nang oras na ikaanim ay nagdilim sa buong lupain hanggang sa oras na ikasiyam.
-Siya'y ginapos nila, dinala sa labas, at ibinigay nila kay Pilato na gobernador.
-Bumagsak ako sa lupa, at narinig ko ang isang tinig na nagsasabi sa akin, ‘Saulo, Saulo, bakit mo ako pinag-uusig?’
-Ano nga kung sa pagnanais ng Diyos na ipakita ang kanyang poot, at ipakilala ang kanyang kapangyarihan, ay nagtitiis na may pagtitiyaga sa mga kinapopootan niya na inihanda para sa pagkawasak;
-Lumabas sila sa lunsod, at pumunta sa kanya.
-Ngunit sinumang magkaila sa akin sa harapan ng mga tao, ay ipagkakaila ko rin naman sa harapan ng aking Ama na nasa langit.
-Nalalaman nila ang mga iniuutos ng Diyos, na ang mga gumagawa ng gayong mga bagay ay karapat-dapat sa kamatayan, ngunit hindi lamang nila ginagawa ang gayon kundi sinasang-ayunan pa ang gumagawa ng mga iyon.
-Sa pamamagitan nito'y naluluwalhati ang aking Ama, na kayo'y magbunga ng marami, at maging mga alagad ko.
-Sila'y sumagot sa kanya, “Ikaw ba'y taga-Galilea rin? Siyasatin mo at iyong makikita na sa Galilea ay walang lumitaw na propeta.”
-Pinaalis na niya ang maraming mga tao. Sumakay siya sa isang bangka at nagtungo sa nasasakupan ng Magdala.
-Samantala, si Saulo na may masidhing pagbabanta ng kamatayan laban sa mga alagad ng Panginoon ay pumunta sa pinakapunong pari.
-sapagkat ako'y hinirang niya upang ipangaral ang magandang balita sa mga dukha.
-Magbatian ang isa't isa ng banal na halik.
-sapagkat hindi pa ito dumarating sa kaninuman sa kanila, kundi sila'y nabautismuhan lamang sa pangalan ng Panginoong Jesus.
-Kumain ng manna sa ilang ang inyong mga ninuno, at sila'y namatay.
-Ngunit nang mabalitaan ni Jacob na may trigo sa Ehipto, sinugo niyang una ang ating mga ninuno.
-Ngunit ang maraming nauuna ay mahuhuli, at ang huli ay mauuna.”
-Humingi siya sa pinakapunong pari ng mga sulat para sa mga sinagoga sa Damasco upang kung siya'y makatagpo ng sinumang kabilang sa Daan, mga lalaki o mga babae, ay dadalhin niya silang nakagapos sa Jerusalem.
-At tayong lahat, na walang talukbong ang mukha, na nakikita ang kaluwalhatian ng Panginoon gaya ng sa isang salamin, ay nababago sa gayunding larawan, mula sa kaluwalhatian tungo sa kaluwalhatian, sapagkat ito ay mula sa Panginoon na siyang Espiritu.
-Katotohanang sinasabi ko sa inyo, ang nakikinig ng aking salita at sumasampalataya sa kanya na nagsugo sa akin ay may buhay na walang hanggan, at hindi darating sa kahatulan kundi lumipat na sa buhay mula sa kamatayan.
-“Sinasabi ko sa iyo, tumayo ka, damputin mo ang iyong higaan, at umuwi ka.”
-Sinabi niya ang mga bagay na ito sa sinagoga, samantalang siya'y nagtuturo sa Capernaum.
-Katotohanang sinasabi ko sa inyo, hindi lilipas ang lahing ito, hanggang sa maganap ang lahat ng mga bagay na ito.
-Ngunit upang malaman ninyo na ang Anak ng Tao ay may awtoridad sa lupa na magpatawad ng mga kasalanan”—sinabi niya sa lumpo—
-Sapagkat ang pangangasiwa sa paglilingkod na ito ay hindi lamang pumupuno sa pangangailangan ng mga banal, kundi umaapaw rin sa pamamagitan ng maraming pasasalamat sa Diyos.
-Sa halip, ang bagong alak ay dapat ilagay sa mga bagong sisidlang balat.
-‘Ang langit ang aking luklukan,
-Nang makita ng mga tao ang tandang ginawa niya ay kanilang sinabi, “Totoong ito nga ang propeta na darating sa sanlibutan.”
-Subalit kung paanong siya'y nakakakita ngayon, ay hindi namin alam, o kung sino ang nagbukas ng kanyang mga mata, ay hindi namin kilala. Tanungin ninyo siya, siya'y may sapat na gulang na, at siya'y magsasalita para sa kanyang sarili.”
-Samantala, ang iba ay sumisigaw ng isang bagay, at ang ilan ay iba naman, sapagkat ang kapulungan ay nasa kaguluhan at hindi nalalaman ng karamihan kung bakit sila'y nagkakatipon.
-Pagpasok nila sa bahay ay nakita nila ang sanggol na kasama ng kanyang inang si Maria. Nagpatirapa sila at sumamba sa kanya. Nang buksan nila ang kanilang mga kayamanan ay inihandog nila sa kanya ang mga kaloob na ginto, kamanyang at mira.
-Katotohanang sinasabi ko sa inyo, may ilan sa nakatayo rito, na hindi makakatikim ng kamatayan, hanggang makita nila ang Anak ng Tao na dumarating sa kanyang kaharian.”
-Habang kanilang dinadala siyang papalayo, hinuli nila si Simon na taga-Cirene na nanggaling sa bukid, at ipinasan sa kanya ang krus upang dalhin kasunod ni Jesus.
-At pagdating nito ay natagpuan nitong nawalisan at maayos na.
-na ipinain ang kanilang leeg para sa aking buhay, sa kanila'y hindi lamang ako ang nagpapasalamat, kundi pati ang lahat ng mga iglesya ng mga Hentil.
-Ikaw na nagsasabing huwag mangalunya, nangangalunya ka ba? Ikaw na nasusuklam sa mga diyus-diyosan, ninanakawan mo ba ang mga templo?
-Siya'y sumigaw at sinabi, ‘Amang Abraham, maawa ka sa akin, at suguin mo si Lazaro, upang itubog niya sa tubig ang dulo ng kanyang daliri, at palamigin ang aking dila, sapagkat naghihirap ako sa apoy na ito.’
-Ang kanyang awa ay sa mga natatakot sa kanya
-Aking nakita at pinatotohanan kong ito ang Anak ng Diyos.”
-Ngunit kung ang Espiritu niyaong bumuhay na muli kay Jesus ay nananatili sa inyo, siya na bumuhay na muli kay Cristo mula sa mga patay ay magbibigay ng buhay sa inyong mga katawang may kamatayan, sa pamamagitan ng kanyang Espiritu na naninirahan sa inyo.
-[
-Sumagot si Jesus, “Kung nalalaman mo ang kaloob ng Diyos, at kung sino ang sa iyo'y nagsasabi, ‘Bigyan mo ako ng inumin;’ ikaw ay hihingi sa kanya, at ikaw ay bibigyan niya ng tubig na buháy.”
-Subalit bago mangyari ang lahat ng mga bagay na ito ay pagbubuhatan nila kayo ng kanilang mga kamay at uusigin. Dadalhin kayo sa mga sinagoga, sa mga bilangguan at ihaharap kayo sa mga hari at mga gobernador dahil sa aking pangalan.
-Nabalitaan ito ni Haring Herodes, sapagkat ang pangalan ni Jesus ay naging tanyag. Sinasabi ng iba, “Si Juan na Tagapagbautismo ay muling nabuhay mula sa mga patay at dahil dito, gumagawa ang mga kapangyarihang ito sa kanya.”
-Ngunit nang marinig ng binata ang ganitong salita, umalis siyang nalulungkot, sapagkat napakarami niyang ari-arian.
-Sinagot sila ni Jesus, “Dumating na ang oras upang ang Anak ng Tao ay luwalhatiin.
-Dahil dito, akong si Pablo ay bilanggo ni Cristo Jesus alang-alang sa inyong mga Hentil,—
-“O Jerusalem, Jerusalem, na pumapatay ng mga propeta at bumabato sa mga isinusugo sa kanya! Makailang ulit kong ninais na tipunin ang iyong mga anak, na gaya ng pagtitipon ng inahing manok sa kanyang mga sisiw sa ilalim ng kanyang mga pakpak, at ayaw ninyo!
-Ngunit sinabi sa kanya ni Jesus, “Sumunod ka sa akin; at hayaan mong ang mga patay ang maglibing sa sarili nilang mga patay.”
-At siya'y binigyan nila ng alak na hinaluan ng mira, ngunit hindi niya tinanggap iyon.
-At pagkaraan ng mga araw na ito, naghanda kami at umahon patungo sa Jerusalem.
-Kaya't kayo'y maging handa at alalahanin ninyo na sa loob ng tatlong taon ay hindi ako tumigil sa gabi at araw ng pagbibigay-babala na may pagluha sa bawat isa.
-Sinabi nila sa kanya, “Panginoon, mabuksan nawa ang mga mata namin.”
-Kaya't tumakbo si Felipe doon, at kanyang narinig na binabasa niya si Isaias na propeta, at sinabi niya, “Nauunawaan mo ba ang binabasa mo?”
-at ang hindi nagpapasan ng kanyang krus at sumusunod sa akin ay hindi karapat-dapat sa akin.
-Nang panahong iyon, inilapat ni Herodes ang kanyang mga kamay upang pagmalupitan ang ilan sa mga kaanib ng iglesya.
-At muli,
-At habang nagsasalita pa siya, dumating si Judas, na isa sa labindalawa, at kasama niya ang napakaraming tao na may mga tabak at mga pamalo, mula sa mga punong pari at sa matatanda ng bayan.
-Sinabi niya sa kanila, “Kayo'y mga taga-ibaba, ako'y taga-itaas. Kayo'y mga taga-sanlibutang ito; ako'y hindi taga-sanlibutang ito.
-Nang magkagayo'y umalis siya sa lupain ng mga Caldeo at nanirahan sa Haran. At mula roon, pagkamatay ng kanyang ama, ay inilipat siya ng Diyos sa lupain na inyong tinitirhan ngayon.
-At sinabi niya, “Walang sinuman, Panginoon.” Sinabi ni Jesus, “Hindi rin kita hinahatulan. Humayo ka na at mula ngayo'y huwag ka nang magkasala.” ]
-At sinagot siya ng anghel, “Ako si Gabriel na tumatayo sa harapan ng Diyos. Ako'y sinugo upang makipag-usap at ipahayag sa iyo itong magandang balita.
-Nagkaroon ng isang pagtatalo sa kanila kung sino sa kanila ang pinakadakila.
-Kaya't tumindig si Pablo sa gitna ng Areopago, at sinabi, “Mga lalaking taga-Atenas, napapansin ko na sa lahat ng bagay kayo'y lubhang relihiyoso.
-Ngayon, kalabisan na para sa akin na sulatan kayo tungkol sa paglilingkod para sa mga banal,
-Ang may pandinig ay makinig.
-Kaya't mamunga kayo ng karapat-dapat sa pagsisisi at huwag ninyong sabihin sa inyong sarili, ‘Si Abraham ang aming ama.’ Sapagkat sinasabi ko sa inyo na magagawa ng Diyos na magbangon mula sa mga batong ito ng magiging anak ni Abraham.
-At hindi siya nagsalita sa kanila maliban sa talinghaga ngunit sa kanyang sariling mga alagad ay sarilinan niyang ipinapaliwanag ang lahat ng mga bagay.
-Sapagkat kung paanong sumasagana sa atin ang mga pagdurusa ni Cristo, sa pamamagitan ni Cristo ay sumasagana rin sa atin ang kaaliwan.
-Kunin mo ang para sa iyo at umalis ka na. Nais kong ibigay sa huling nagtrabaho ang kagaya ng ibinigay ko sa iyo.
+Ngunit si Marta ay naaabala sa maraming paglilingkod. Siya'y lumapit sa kanya at sinabi, “Panginoon, wala bang anuman sa iyo na pinabayaan ako ng aking kapatid na maglingkod na mag-isa? Sabihin mo nga sa kanya na tulungan ako.”
+Kayong mga bulag! Sapagkat alin ba ang higit na dakila, ang handog o ang dambana na nagpapabanal sa handog?
+Pinunit ng pinakapunong pari ang kanyang damit at nagsabi, “Ano pang kailangan nating mga saksi?
+Maging sa pamamagitan ng mga pananalitang ito ay bahagya na nilang napigil ang mga tao sa paghahandog sa kanila.
+At ang mga Judio ay nakisama rin sa pagsasakdal, na sinasabing ang lahat ng mga ito ay totoo.
+“Kung kayo'y kinapopootan ng sanlibutan, ay alamin ninyo na ako muna ang kinapootan nito bago kayo.
+At sa pagtingin ni Jesus sa palibot ay sinabi niya sa kanyang mga alagad, “Napakahirap para sa mga may kayamanan na pumasok sa kaharian ng Diyos.”
+sapagkat iniwan ako ni Demas, na umibig sa sanlibutang ito, at nagtungo sa Tesalonica; si Crescente ay nagtungo sa Galacia, at si Tito ay sa Dalmacia.
+Sinabi ni Pedro kay Jesus, “Rabi, mabuti sa atin ang dumito. Hayaan ninyong gumawa kami ng tatlong kubol; isa sa iyo, isa kay Moises, at isa kay Elias.”
+Ngayon kung ang pagkahulog nila ay siyang kayamanan ng sanlibutan, at ang pagkalugi nila ay siyang kayamanan ng mga Hentil, gaano pa kaya ang lubos na panunumbalik nila?
+Mga munting anak, huwag kayong padaya kanino man. Ang gumagawa ng katuwiran ay matuwid, gaya niya na matuwid.
 Si Jesus ay muling nagsalita sa kanila sa mga talinghaga, na sinasabi,
-hindi ako tumitigil ng pagpapasalamat para sa inyo, na binabanggit kayo sa aking mga panalangin,
-Nang dumarami ang nagkakatipong mga tao, nagsimula siyang magsalita, “Ang lahing ito'y isang masamang lahi. Ito'y humahanap ng isang tanda, subalit walang tanda na ibibigay dito maliban sa tanda ni Jonas.
-Sapagkat kung ikaw nga na pinutol mula sa likas na olibong ligaw, at salungat sa kalikasan, ay isinanib ka sa pinayabong na punong olibo; gaano pa nga ang mga ito, na mga likas na sanga na maisasanib sa kanilang sariling punong olibo?
-At mula sa kanyang kapuspusan ay tumanggap tayong lahat, biyaya na sinundan pa ng ibang biyaya.
-Ngunit maraming nakakita sa kanilang pag-alis at sila'y nakilala. Kaya't tumakbo sila mula sa lahat ng mga bayan at nauna pang dumating sa kanila.
-Subalit tungkol sa Israel ay sinasabi niya, “Sa buong araw ay iniunat ko ang aking mga kamay sa isang suwail at mapagsalungat na bayan.”
-‘Ang batong itinakuwil ng mga nagtayo ng gusali,
-Sa lugar ng pinagpakuan sa kanya ay may isang halamanan, at sa halamana'y may isang bagong libingan na kailanma'y hindi pa nalalagyan ng sinuman.
-Ngunit sila'y tumahimik, sapagkat sa daan ay pinagtatalunan nila kung sino ang pinakadakila.
-Siya'y sumusunod kay Pablo at sa amin, na sumisigaw, “Ang mga taong ito ay mga alipin ng Kataas-taasang Diyos, na nagpapahayag sa inyo ng daan ng kaligtasan.”
-Ngunit ang bangka ng mga sandaling iyon ay malayong-malayo na sa dalampasigan na hinahampas ng mga alon, sapagkat pasalungat sa kanila ang hangin.
-at ang lahat ng mga kapatid na kasama ko,
-Ngunit samantalang natutulog ang mga tao, dumating ang kaaway at naghasik ng mga damo sa triguhan, at umalis.
-Nang malaman ng maraming mga Judio na siya'y naroroon, sila'y pumunta hindi dahil kay Jesus lamang, kundi upang makita nila si Lazaro, na muling binuhay mula sa mga patay.
-At aking isinulat ang bagay na ito, upang pagdating ko ay huwag akong magkaroon ng kalungkutan mula doon sa mga nararapat magpagalak sa akin, sapagkat nakakatiyak ako sa inyong lahat na ang aking kagalakan ay magiging kagalakan ninyong lahat.
-tuwirin ninyo ang kanyang mga landas.’”
-Nang sila'y makapagtalaga ng isang araw para sa kanya, nagtungo sila sa kanyang tinutuluyan at napakarami nila. Ipinaliwanag niya sa kanila ang pangyayari buhat umaga hanggang gabi na nagpapatotoo tungkol sa kaharian ng Diyos, at sinikap na sila'y mahikayat tungkol kay Jesus, mula sa kautusan ni Moises at mula sa mga propeta.
-at kung kayo'y aking tanungin ay hindi kayo sasagot.
-Si Pilato ay muling lumabas at sa kanila'y sinabi, “Tingnan ninyo, ilalabas ko siya sa inyo upang inyong malaman na wala akong nakitang anumang kasalanan sa kanya.”
-Siya'y kinuha nila at dinala sa Areopago, at tinanong, “Maaari ba naming malaman kung ano itong bagong aral na sinasabi mo?
-at si Judas na anak ni Santiago, at si Judas Iscariote na naging taksil.
-Sinabi sa kanila ni Jesus, “Hindi ba't ito ang dahilan kaya kayo nagkakamali, hindi ninyo nalalaman ang mga kasulatan, o ang kapangyarihan ng Diyos?
-Bagama't gumawa siya sa harapan nila ng maraming mga tanda, sila ay hindi naniwala sa kanya;
-Ngunit sumagot siya at sinabi, ‘Ayaw ko’; ngunit pagkatapos ay nagbago ang kanyang isip at pumunta rin.
-tunay na ang kasalanan ay nasa sanlibutan bago pa dumating ang kautusan, ngunit hindi ibinibilang ang kasalanan kung walang kautusan.
-Isang gabi, sinabi ng Panginoon kay Pablo sa isang pangitain, “Huwag kang matakot, kundi magsalita ka, at huwag kang tumahimik;
-Kaya't yamang tayo'y inaring-ganap sa pamamagitan ng pananampalataya, mayroon tayong kapayapaan sa Diyos sa pamamagitan ng ating Panginoong Jesu-Cristo.
-Lahat ng ito ay mula sa Diyos, na tayo'y pinagkasundo niya sa kanyang sarili sa pamamagitan ni Cristo, at ibinigay niya sa amin ang ministeryo ng pakikipagkasundo.
-“At pagkatapos ng paghihirap sa mga panahong iyon ay magdidilim ang araw, at ang buwan ay hindi magbibigay ng kanyang liwanag, at mahuhulog ang mga bituin mula sa langit, at yayanigin ang mga kapangyarihan sa langit.
-Ako ang pintuan. Ang sinumang pumasok sa pamamagitan ko ay maliligtas, at papasok at lalabas, at makakatagpo ng pastulan.
-at sinabi niya sa kanila, ‘Pumunta rin kayo sa ubasan, at anumang nararapat ay ibibigay ko sa inyo.’ At pumunta sila.
-Tingnan ninyo ang mga ibon sa himpapawid: hindi sila naghahasik, o gumagapas, o nag-iimbak man sa mga kamalig, ngunit pinapakain sila ng inyong Ama na nasa langit. Hindi ba higit na mahalaga kayo kaysa kanila?
-At sinabi niya, “Ang may taingang pandinig ay makinig.”
-At sinabi ng Panginoon, “Sino nga ba ang tapat at matalinong katiwala na pagkakatiwalaan ng kanyang panginoon sa kanyang mga alipin, upang sila'y bigyan ng kanilang bahaging pagkain sa tamang panahon?
-Noon ay nagtuturo siya sa isa sa mga sinagoga nang araw ng Sabbath.
-Dinala rin ito ng ating mga ninuno na kasama ni Josue nang kanilang sakupin ang mga bansa na pinalayas ng Diyos sa harapan ng ating mga ninuno. Ito ay nanatili roon hanggang sa mga araw ni David,
-At sinabi niya sa kanila, “Hindi ba ninyo nalalaman ang talinghagang ito? Paano nga ninyo mauunawaan ang lahat ng mga talinghaga?
-Sapagkat silang lahat ay naglagay mula sa kanilang kasaganaan, samantalang siya mula sa kanyang kahirapan ay inilagay ang lahat ng kanyang kabuhayan.”
-At hindi lamang gayon, kundi nagagalak rin tayo sa ating mga kapighatian sa pagkaalam na ang kapighatian ay nagbubunga ng pagtitiis,
-Purihin nawa ang Diyos at Ama ng ating Panginoong Jesu-Cristo, na siyang nagpapala sa atin kay Cristo ng bawat pagpapalang espirituwal sa sangkalangitan,
-Dumating ang mga Fariseo at upang subukin siya ay kanilang itinanong, “Ipinahihintulot ba sa lalaki na makipaghiwalay sa kanyang asawa?”
-na nagsasabi, ‘Huwag kang matakot, Pablo. Kailangan mong humarap kay Cesar. At tunay na ipinagkaloob ng Diyos ang kaligtasan sa lahat ng kasama mo sa paglalayag.’
-Nahikayat ang ilan sa kanila at sumama kina Pablo at kay Silas, gayundin ang napakaraming mga Griyegong masisipag sa kabanalan, at hindi kakaunting mga pangunahing babae.
-‘ang bato na itinakuwil ninyong mga tagapagtayo
-Hinirang ng Diyos nitong bayang Israel ang ating mga ninuno, at ginawang dakila ang bayan nang sila'y nakipamayan sa Ehipto, at sa pamamagitan ng nakataas na bisig ay kanyang inilabas sila roon.
-at aasa ang mga Hentil sa kanyang pangalan.”
-Sapagkat sinabi ng Diyos, ‘Igalang mo ang iyong ama at ang iyong ina;’ at ‘Ang magsalita ng masama sa ama o sa ina, ay dapat mamatay.’
-Ang taong ito'y hinuli ng mga Judio, at papatayin sana nila, ngunit nang malaman kong siya'y mamamayan ng Roma dumating ako na may kasamang mga kawal at siya'y iniligtas ko.
-Dahil dito'y inusig ng mga Judio si Jesus sapagkat ginagawa niya ang mga bagay na ito sa araw ng Sabbath.
-At may isang lalaki mula sa maraming tao ang sumigaw, “Guro, nakikiusap ako sa iyo na tingnan mo ang aking anak na lalaki, sapagkat siya'y aking kaisa-isang anak.
-At sinabi niya, ‘Kung gayo'y ipinapakiusap ko sa iyo, ama, na isugo mo siya sa bahay ng aking ama,
-na sinasabi, “Naganap na ang panahon at malapit na ang kaharian ng Diyos: kayo'y magsisi at manampalataya sa ebanghelyo.”
-At siya'y tumanggap ng isang kopa at nang siya'y makapagpasalamat, sinabi niya, “Kunin ninyo ito, at inyong paghati-hatian.
-At bigla na lamang sa kanilang sinagoga ay may isang tao na may masamang espiritu; at siya'y sumigaw,
-Subalit si Judas Iscariote, isa sa kanyang mga alagad na magkakanulo sa kanya, ay nagsabi,
-at ito'y kamanghamangha sa ating mga mata?’
-Pagkatapos ay sasagot din sila, na nagsasabi, ‘Panginoon, kailan ka namin nakitang gutom, o uhaw, o isang taga-ibang bayan, o hubad, o maysakit, o nasa bilangguan, at hindi ka namin pinaglingkuran?’
-Sumagot siya, “Ang taong tinatawag na Jesus ay gumawa ng putik, at pinahiran ang aking mga mata, at sinabi sa akin, ‘Pumunta ka sa Siloam, at maghugas ka.’ Kaya't ako'y umalis at naghugas, at nagkaroon ako ng paningin.”
-Akong si Tercio, na sumusulat ng sulat na ito, ay bumabati sa inyo sa Panginoon.
-Ang mga ito'y lumapit kay Felipe, na taga-Bethsaida ng Galilea, at sinabi sa kanya, “Ginoo, ibig sana naming makita si Jesus.”
-Pagkaraan ng tatlong araw, pagkarating ni Festo sa lalawigan, pumunta siya sa Jerusalem mula sa Cesarea,
-Sinabi niya sa kanila, “Sumunod kayo sa akin at gagawin ko kayong mga mamamalakaya ng mga tao.”
-sa ilalim ng iyong mga paa.”’
-Subalit sumagot siya sa kanyang ama, ‘Tingnan mo, maraming taon nang ako'y naglingkod sa iyo, at kailanma'y hindi ako sumuway sa iyong utos. Gayunman ay hindi mo ako binigyan kailanman ng kahit isang batang kambing upang makipagsaya sa aking mga kaibigan.
-at makaunawa ang puso nila,
-Tumayo sa harapan nila ang pinakapunong pari at tinanong si Jesus, “Wala ka bang isasagot? Ano itong pinatotohanan nila laban sa iyo?”
-Sinabi sa kanya ni Jesus, “Umalis ka na! Tawagin mo ang iyong asawa at bumalik ka rito.”
-“Purihin ang Panginoon, ang Diyos ng Israel,
-Bumangon kayo, lumakad tayo. Masdan ninyo, malapit na ang nagkakanulo sa akin.”
-umalis siya sa Judea at muling bumalik sa Galilea.
-Ang maraming tao ay nagkakaisang nakikinig sa mga sinabi ni Felipe nang kanilang marinig siya at nakita ang mga tanda na ginawa niya.
-at makaunawa sa pamamagitan ng kanilang puso, at magbalik-loob,
-Habang patungo sa Jerusalem, si Jesus ay dumaan sa pagitan ng Samaria at Galilea.
-at alalahanin ang kanyang banal na tipan,
-Pagkatapos na siya'y magdusa ay buháy siyang nagpakita sa kanila sa pamamagitan ng maraming mga katunayan. Nagpakita siya sa kanila sa loob ng apatnapung araw at nagsalita ng mga bagay tungkol sa kaharian ng Diyos.
-Ito ang tinapay na bumababang galing sa langit, upang ang sinumang makakain nito ay hindi mamatay.
-Kaya mga kapatid, pumili kayo sa inyo ng pitong lalaking may mabuting pagkatao, puspos ng Espiritu at ng karunungan, na aming maitatalaga sa tungkuling ito,
-Ngayon pa lamang ay nakalagay na ang palakol sa ugat ng mga punungkahoy. Kaya't ang bawat punungkahoy na di mabuti ang bunga ay pinuputol at itinatapon sa apoy.”
-Hindi ba ninyo nalalaman na kung kanino ninyo inihahandog ang inyong mga sarili bilang alipin sa pagsunod, kayo'y mga alipin niya na inyong sinusunod; maging ng kasalanan tungo sa kamatayan, o ng pagsunod tungo sa pagiging matuwid?
-Kaya't sumagot si Jesus at sinabi sa kanila, “Katotohanang sinasabi ko sa inyo, hindi makakagawa ng anuman ang Anak sa kanyang sarili kundi ang nakikita niyang ginagawa ng Ama. Sapagkat ang lahat ng mga bagay na kanyang ginagawa ay siya ring ginagawa ng Anak.
-At sinabi ng mga hangal sa matatalino, ‘Bigyan ninyo kami ng inyong langis, sapagkat namamatay na ang aming mga ilawan.’
-Sapagkat ako'y nagagalak sa kautusan ng Diyos sa kaibuturan ng aking pagkatao.
-Nagdala nga sila ng isa at sinabi niya sa kanila, “Kaninong larawan at pangalan ang nakaukit?” Sinabi nila sa kanya, “Kay Cesar.”
-Sumagot si Jesus sa kanya, “Ang ginagawa ko'y hindi mo pa nauunawaan ngayon, ngunit malalaman mo pagkatapos ng mga ito.”
-Pansinin ninyo ang mga uwak. Hindi sila naghahasik, ni gumagapas man. Sila'y walang imbakan ni kamalig man, subalit sila'y pinapakain ng Diyos. Gaano pang higit kayong mahalaga kaysa mga ibon!
-Katotohanang sinasabi ko sa iyo, hindi ka makakalabas doon hanggang hindi mo nababayaran ang kahuli-hulihang kusing.
-Sapagkat sa biyaya kayo'y naligtas sa pamamagitan ng pananampalataya, at ito'y hindi sa pamamagitan ng inyong sarili, ito'y kaloob ng Diyos;
-Subalit hindi ninyo siya kilala, ngunit kilala ko siya. Kung aking sasabihing hindi ko siya kilala ay magiging katulad ninyo ako na sinungaling. Subalit kilala ko siya, at tinutupad ko ang kanyang salita.
-Ang nakararami sa mga tao ay naglatag ng kanilang mga balabal sa daan, at ang iba'y pumutol ng mga sanga ng mga punungkahoy at inilatag ang mga ito sa daan.
-at huwag bigyan ng pagkakataon ang diyablo.
-Pumasok siya sa Jerusalem at pumunta sa templo. Nang matingnan niya sa palibot ang lahat ng bagay, palibhasa'y hapon na, pumunta siya sa Betania na kasama ang labindalawa.
-Nang gumagabi na, lumapit sa kanya ang kanyang mga alagad at nagsabi, “Ito ay isang ilang na dako at gumagabi na.
-Sinabi niya, “Sino ka, Panginoon?” At siya'y sumagot, “Ako si Jesus na iyong inuusig.
-Baka sa bigla niyang pagdating ay matagpuan niya kayong natutulog.
-sapagkat ang namatay ay pinalaya na mula sa kasalanan.
-Sinasabi ko nga, itinakuwil ba ng Diyos ang kanyang bayan? Huwag nawang mangyari. Sapagkat ako man ay Israelita, mula sa binhi ni Abraham, mula sa lipi ni Benjamin.
-“Panginoon, sino ang naniwala sa aming balita?
-subalit kaluwalhatian, karangalan, at kapayapaan sa bawat gumagawa ng mabuti, una'y sa Judio at gayundin sa Griyego:
-Sumagot si Juan, “Hindi makakatanggap ng anuman ang isang tao, malibang ito'y ipinagkaloob sa kanya mula sa langit.
-“Bumalik ka sa iyong bahay at isalaysay mo ang lahat ng mga ginawa ng Diyos para sa iyo.” At siya'y umalis na ipinahahayag sa buong lunsod ang lahat ng mga ginawa ni Jesus sa kanya.
-Sinabi niya sa kanila, “Kapag kayo'y nananalangin, inyong sabihin,
-na dati ninyong nilakaran, ayon sa lakad ng sanlibutang ito, ayon sa pinuno ng kapangyarihan ng himpapawid, ng espiritu na ngayon ay gumagawa sa mga anak ng pagsuway.
-Subalit sinabi sa kanya ni Jesus, “Walang sinumang humahawak sa araro at tumitingin sa mga nasa likuran ang karapat-dapat sa kaharian ng Diyos.”
-Nagturo siya at sinabi, “Hindi ba nasusulat, ‘Ang aking bahay ay tatawaging bahay-panalanginan para sa lahat ng mga bansa?’ Ngunit ginawa ninyo itong yungib ng mga magnanakaw.”
-“Ang tinig ng isang sumisigaw sa ilang:
-Kayo'y manatili sa akin, at ako'y sa inyo. Gaya ng sanga na hindi magbubunga buhat sa kanyang sarili malibang nakakabit sa puno, gayundin naman kayo, malibang kayo'y manatili sa akin.
-At huwag ninyong laging hanapin kung ano ang inyong kakainin, kung ano ang inyong iinumin, at huwag kayong mabalisa.
-at muli kong itatayo ang tolda ni David na bumagsak;
-Subalit nang makaahon na ang kanyang mga kapatid para sa pista, saka naman siya umahon, hindi hayagan kundi palihim.
-Sinabi niya, ‘Cornelio, dininig ang dalangin mo, at ang iyong mga limos ay inalala sa harapan ng Diyos.
-Kaya't sinabi ni Jesus kay Pedro, “Ibalik mo ang iyong tabak sa kaluban. Hindi ko ba iinuman ang kopang ibinigay sa akin ng Ama?”
-Sapagkat ito ang kalooban ng aking Ama, na ang bawat nakakakita sa Anak at sa kanya'y sumampalataya ay magkaroon ng buhay na walang hanggan, at muli ko siyang bubuhayin sa huling araw.”
-Tumakbo ang isa, binasa ng suka ang isang espongha, inilagay sa isang tungkod, at ipinainom sa kanya na sinasabi, “Pabayaan ninyo; tingnan natin kung darating si Elias upang siya'y ibaba.”
-na lubhang nayayamot sapagkat nagtuturo sila sa mga tao, at nagpapahayag na kay Jesus ay may muling pagkabuhay sa mga patay.
-“Tulad ng tupa na dinala sa katayan;
-Kung ang masang inialay bilang unang bunga ay banal, ay gayundin ang buong limpak; at kung ang ugat ay banal, gayundin ang mga sanga.
-Sapagkat kay Cristo Jesus, ang pagtutuli o di-pagtutuli ay walang kabuluhan, kundi ang pananampalataya na gumagawa sa pamamagitan ng pag-ibig.
-Nang makita ng senturion at ng mga kasamahan niyang nagbabantay kay Jesus ang lindol at ang mga bagay na nangyari, sila'y lubhang natakot, at nagsabi, “Tunay na ito ang Anak ng Diyos.”
-At may tinig na nanggaling sa ulap na nagsasabi, “Ito ang aking Anak, ang aking Pinili, makinig kayo sa kanya!”
-At sinabi nila sa isa't isa, “Ito ay sapagkat wala tayong tinapay.”
-At sinabi niya sa kanila, “Ang sinumang makipaghiwalay sa kanyang asawang babae at mag-asawa sa iba ay nagkakasala ng pangangalunya laban sa kanya.
-Pagkatapos ay kinuha ni Pilato si Jesus at siya'y hinagupit.
-Ngunit kahabag-habag ang mga buntis at ang mga nagpapasuso sa mga araw na iyon!
-Kaya't sila'y pinatuloy niya at naging kanyang panauhin. Nang sumunod na araw, bumangon siya at umalis na kasama nila, at siya'y sinamahan ng ilang kapatid mula sa Joppa.
-Nagsalaysay siya sa kanila ng isang talinghaga: “Ang lupain ng taong mayaman ay namunga ng sagana.
-maliban na ang Espiritu Santo ay nagpapatotoo sa akin sa bawat lunsod, na sinasabing ang mga tanikala at ang kapighatian ay naghihintay sa akin.
-Pagpasok niya sa templo, lumapit sa kanya ang mga punong pari at ang matatanda ng bayan habang siya'y nagtuturo, at sinabi nila, “Sa anong awtoridad mo ginagawa ang mga bagay na ito, at sino ang nagbigay sa iyo ng awtoridad na ito?”
-“Mapapalad ang mga dukha sa espiritu, sapagkat kanila ang kaharian ng langit.
-Siya'y lumukso, tumayo at nagpalakad-lakad; pumasok siya sa templo na kasama nila, lumalakad, lumulukso, at nagpupuri sa Diyos.
-Ang dahilan kung bakit ang maraming tao ay sumalubong sa kanya ay sapagkat nabalitaan nila na ginawa niya ang tandang ito.
-Tumingin siya sa buong paligid upang makita kung sino ang gumawa niyon.
-Magbigay kayo at iyon ay ibibigay sa inyo—hustong takal, siniksik, niliglig, at umaapaw, ang ilalagay nila sa inyong kandungan. Sapagkat sa panukat na inyong ipanukat ay doon din kayo susukatin.
-Subalit sinabi niya sa kanila, “Bigyan ninyo sila ng makakain.” At sinabi nila, “Mayroon tayong hindi hihigit sa limang tinapay at dalawang isda, malibang kami'y umalis at bumili ng pagkain para sa lahat ng mga taong ito.”
-ay sinabi niya sa malakas na tinig, “Tumindig ka nang matuwid sa iyong mga paa.” At ang lalaki ay lumukso at nagpalakad-lakad.
-Ngunit kung dinadamitan ng Diyos nang ganito ang damo sa parang na ngayon ay buháy, at sa kinabukasan ay itinatapon sa pugon, gaano pa kaya kayo na kanyang dadamitan, O kayong maliliit ang pananampalataya?
-Ipinangangaral namin sa inyo ang mabuting balita ng pangako ng Diyos sa ating mga ninuno,
-at isinulat sa pamamagitan ng kamay nila:
-Labis na namangha ang lahat at niluwalhati nila ang Diyos. Napuno sila ng takot, na nagsasabi, “Nakakita kami ngayon ng mga bagay na kataka-taka.”
-Kayo'y sinugo ko upang anihin ang hindi ninyo pinagpaguran; iba ang nagpagod at kayo'y pumasok sa kanilang pinagpaguran.”
-Nang kami'y makaligtas na, noon namin nalaman na ang pulo ay tinatawag na Malta.
-Kayo'y malilinis na sa pamamagitan ng salita na aking sinabi sa inyo.
-Bumaba siya na kasama nila at tumayo sa isang patag na lugar. Naroon ang marami sa kanyang mga alagad at ang napakaraming tao buhat sa Judea at sa Jerusalem at sa baybayin ng Tiro at Sidon, na pumaroon upang makinig sa kanya at mapagaling sa kanilang mga sakit;
-At sinabi niya, “Mag-ingat kayo na hindi kayo mailigaw, sapagkat marami ang darating sa aking pangalan, na magsasabi, ‘Ako siya!’ at, ‘Malapit na ang panahon!’ Huwag kayong sumunod sa kanila.
-tayo'y naging katulad sana ng Sodoma,
-at sila'y aking pagalingin.’
-hindi gaya ni Moises, na naglagay ng talukbong sa kanyang mukha upang hindi makita ng mga anak ni Israel ang katapusan ng bagay na lumilipas.
-Ako ang puno ng ubas, kayo ang mga sanga. Ang nananatili sa akin at ako'y sa kanya ay siyang nagbubunga ng marami. Sapagkat kung kayo'y hiwalay sa akin ay wala kayong magagawa.
-Noon ay nag-aayuno ang mga alagad ni Juan at ang mga Fariseo. Sila'y lumapit at sinabi sa kanya, “Bakit nag-aayuno ang mga alagad ni Juan at ang mga alagad ng mga Fariseo, ngunit hindi nag-aayuno ang iyong mga alagad?”
-naging anak ni Asaf si Jehoshafat; naging anak ni Jehoshafat si Joram; at naging anak ni Joram si Uzias;
-Katotohanang sinasabi ko sa inyo, dumarating ang oras at ngayon na nga, na maririnig ng patay ang tinig ng Anak ng Diyos at ang makarinig ay mabubuhay.
-at pinakasalan ng pangatlo ang babae, at namatay ang pito na pawang walang iniwang anak.
-Kung tinatawag nga siya ni David na Panginoon, paanong siya'y naging kanyang anak?”
-At si Isaias ay buong tapang na nagsasabi,
-At kung saan siya pumasok, sabihin ninyo sa may-ari ng bahay, na sinasabi ng Guro, ‘Nasaan ang aking silid-tuluyan na kung saan maaari kong kainin ang kordero ng Paskuwa na kasalo ng aking mga alagad?’
-siya ang babangon upang maghari sa mga Hentil;
-Nagpatotoo si Juan tungkol sa kanya at sumigaw, “Siya yaong aking sinasabi, ‘Ang dumarating na kasunod ko ay naging una sa akin sapagkat siya'y nauna sa akin.’”
-Ako'y taga-ibang bayan, at hindi ninyo ako pinatuloy. Hubad, at hindi ninyo ako dinamitan; maysakit at nasa bilangguan, at hindi ninyo dinalaw.’
-Tatlong ulit na ako'y hinampas ng mga pamalo, minsan ako'y pinagbabato. Tatlong ulit na akong nawasakan ng barko, isang araw at isang gabing ako'y nasa laot;
-Nang sumasakay na siya sa bangka, ang lalaking inalihan ng mga demonyo ay nakiusap na siya'y isama niya.
-Bagama't ibig niyang ipapatay si Juan, natakot siya sa mga tao sapagkat kanilang itinuturing si Juan na isang propeta.
-Kayo na ang pumunta sa pista. Ako'y hindi pupunta sa pistang ito, sapagkat hindi pa dumating ang aking oras.”
-Ngunit sila'y sinagot niya, “Ang nagpagaling sa akin ang siyang nagsabi sa akin, ‘Buhatin mo ang iyong higaan, at lumakad ka.’”
-Sapagkat si David, pagkatapos niyang maglingkod ayon sa kalooban ng Diyos sa kanyang sariling salinlahi, ay namatay at isinama sa kanyang mga ninuno, at nakakita ng pagkabulok.
-Iniisip ninyo na sa buong panahon ay ipinagtatanggol namin ang aming sarili sa harapan ninyo. Sa paningin ng Diyos kami ay nagsasalita kay Cristo. At ang lahat ng mga bagay ay para sa inyong ikatitibay, mga minamahal.
-O Teofilo, sa unang aklat ay isinulat ko ang tungkol sa lahat ng ginawa at itinuro ni Jesus mula sa simula,
-Nakita rin niya ang isang mahirap na babaing balo na naglalagay ng dalawang kusing.
-Kaya't ang Anak ng Tao ay Panginoon maging ng Sabbath.”
-Nang kanyang mabatid ito, pumunta siya sa bahay ni Maria, ang ina ni Juan na tinatawag na Marcos, na kinaroroonan ng maraming nagkakatipon at nananalangin.
-na sinasabi, “Ang mga eskriba at ang mga Fariseo ay umuupo sa upuan ni Moises.
-upang mapatunayan sa panahong kasalukuyan na siya'y matuwid at upang siya'y maging ganap at taga-aring-ganap sa taong mayroong pananampalataya kay Jesus.
-Yamang aming nabalitaan na ang ilang tao mula sa amin ay nagsabi ng mga bagay upang bagabagin kayo at ginugulo ang inyong mga isip gayong hindi namin sila binigyan ng tagubilin,
-Nang si Pablo ay tawagin, sinimulan siyang paratangan ni Tertulio, na sinasabi,
-Sumusunod sa kanya ang napakaraming tao sapagkat nakita nila ang mga tanda na ginagawa niya sa mga maysakit.
-Nagalak ang inyong amang si Abraham na makita niya ang aking araw. Nakita niya ito at siya'y nagalak.”
+Nang madaling-araw na ay lumapit siya sa kanila na lumalakad sa ibabaw ng dagat.
+Ang bahagi ng kasulatan na binabasa niya ay ito:
+Ang lahat ng mga alituntuning ito ay masisira sa paggamit, palibhasa'y mga utos at mga aral lamang ng mga tao.
+Sinagot sila ni Jesus, “Maraming mabubuting gawa mula sa Ama ang ipinakita ko sa inyo. Alin sa mga gawang iyon ang dahilan at babatuhin ninyo ako?”
+Umupo ang patay at nagpasimulang magsalita. At siya'y ibinigay ni Jesus sa kanyang ina.
+ay sinabi nila sa kanya, “Guro, nahuli ang babaing ito sa akto ng pangangalunya.
+“Kahabag-habag kayo, mga eskriba at mga Fariseo, mga mapagkunwari! Sapagkat nag-iikapu kayo ng yerbabuena, ng anis at ng komino, at inyong pinababayaan ang higit na mahahalagang bagay ng kautusan: ang katarungan, ang habag, at ang pananampalataya. Subalit dapat sana ninyong gawin ang mga ito nang hindi pinababayaan ang iba.
+Samantala, si Pedro ay nakaupo sa labas ng bakuran. Lumapit sa kanya ang isang aliping babae, na nagsasabi, “Ikaw ay kasama rin ni Jesus na taga-Galilea.”
+Pagkatapos gumugol ng ilang panahon doon, umalis siya at nagpalipat-lipat sa mga lupain ng Galacia at Frigia, na pinapalakas ang lahat ng mga alagad.
+Kaya't isinugo ni Jesus sina Pedro at Juan, na sinasabi, “Humayo kayo at ihanda ninyo ang paskuwa para sa atin, upang ating kainin ito.”
+Pagkatapos ay tinawag ni Jesus ang kanyang labindalawang alagad, at kanyang binigyan sila ng kapangyarihan sa masasamang espiritu, upang kanilang mapalayas sila at pagalingin nila ang bawat sakit at karamdaman.
+Nalalaman ko na ang kanyang utos ay buhay na walang hanggan. Kaya't ang mga bagay na sinasabi ko ay aking sinasabi ayon sa sinabi ng Ama.”
+Sapagkat siya'y magiging dakila sa harapan ng Panginoon, at hindi siya iinom ng alak o matapang na inumin. Siya'y mapupuno ng Espiritu Santo mula pa sa sinapupunan ng kanyang ina.
+Sapagkat ang pangangasiwa sa paglilingkod na ito ay hindi lamang pumupuno sa pangangailangan ng mga banal, kundi umaapaw rin sa pamamagitan ng maraming pasasalamat sa Diyos.
+Mahigpit na iniutos niya sa kanila na huwag nilang sasabihin kaninuman ang tungkol sa kanya.
+Sapagkat ang kapangyarihan ng mga kabayo ay nasa kanilang bibig at nasa kanilang mga buntot; ang kanilang mga buntot ay katulad ng mga ahas, na may mga ulo; at sa pamamagitan ng mga ito'y nakakapaminsala sila.
+Ngunit sinasabi ko sa inyo, na ang bawat nakikipaghiwalay sa kanyang asawang babae maliban sa pakikiapid, ay nagtutulak sa kanya sa pakikiapid; at ang sinumang mag-asawa sa babaing hiniwalayan ay nagkakasala ng pangangalunya.
+ni Simeon, ni Juda, ni Jose, ni Jonam, ni Eliakim,
+Sapagkat ang anumang mga bagay na isinulat noong una ay isinulat upang tayo ay matuto, upang sa pamamagitan ng pagtitiyaga at sa pagpapasigla ng mga kasulatan ay magkaroon tayo ng pag-asa.
+Huwag mong pagsabihan na may kagaspangan ang nakatatandang lalaki, kundi pakiusapan mo siyang tulad sa isang ama; sa mga kabataang lalaki na tulad sa mga kapatid;
+Kundi kayo'y magalak, yamang kayo'y nakikibahagi sa mga pagdurusa ni Cristo, upang kayo man ay matuwa at sumigaw sa galak kapag ang kaluwalhatian niya ay nahayag.
+Sumagot naman ito, “Paano nga ba, malibang may tumulong sa akin?” At kanyang inanyayahan si Felipe na umakyat at maupong kasama niya.
+Samantala, ang iba ay sumisigaw ng isang bagay, at ang ilan ay iba naman, sapagkat ang kapulungan ay nasa kaguluhan at hindi nalalaman ng karamihan kung bakit sila'y nagkakatipon.
+Ngunit inudyukan ng mga punong pari ang taong-bayan na sa halip ay palayain niya si Barabas para sa kanila.
+“Dahil sa iyo kami'y pinapatay sa buong araw;
+Kaya't maging ang unang tipan ay hindi pinagtibay ng walang dugo.
+Kaya't nanikluhod ang kanyang kapwa alipin at nakiusap sa kanya, na nagsasabi, ‘Pagpasensyahan mo ako, at babayaran kita.’
+Nang dumaong kami sa Siracusa ay tumigil kami roon ng tatlong araw.
+May isang babae na labindalawang taon nang dinudugo,
+Ang huli ay gumagawa dahil sa pag-ibig, palibhasa'y nalalaman na ako'y itinalaga sa pagtatanggol sa ebanghelyo;
+na nasa nagliliyab na apoy, na magbibigay ng parusa sa mga hindi kumikilala sa Diyos at sa mga hindi sumusunod sa ebanghelyo ng ating Panginoong Jesus.
+Nakikita mo na ang pananampalataya ay gumagawang kalakip ng kanyang mga gawa, at ang pananampalataya ay naging ganap sa pamamagitan ng mga gawa.
+“Mag-ingat kayo sa mga bulaang propeta, na lumalapit sa inyo na may damit tupa, ngunit sa loob ay mga ganid na asong-gubat.
+Anumang sinasabi ko sa inyo sa dilim, sabihin ninyo sa liwanag; at ang narinig ninyo sa bulong ay ipagsigawan ninyo sa ibabaw ng mga bubungan.
+Kaya't naunawaan nila na ang sinabi ni Jesus ay hindi sa pampaalsa ng tinapay mag-ingat kundi sa mga aral ng mga Fariseo at Saduceo.
+Tingnan ninyo, binigyan ko kayo ng awtoridad na tapakan ang mga ahas at mga alakdan, at sa ibabaw ng lahat ng kapangyarihan ng kaaway; at walang makakapanakit sa inyo.
+pagsamba sa diyus-diyosan, pangkukulam, alitan, pagtatalo, paninibugho, pagkagalit, pagkamakasarili, pagkakabaha-bahagi, mga pagkakampi-kampi,
+sapagkat ang bumabati sa kanya ay nakikibahagi sa kanyang masasamang gawa.
+Pinalapit ni Jesus sa kanya ang mga tao at sinabi sa kanila, “Pakinggan ninyo ito at unawain.
+Mula sa binhi ng taong ito, ang Diyos ay nagkaloob ng isang Tagapagligtas sa Israel na si Jesus, gaya ng kanyang ipinangako.
+Nang hindi nila ito mailapit sa kanya dahil sa karamihan ng tao, kanilang tinanggal ang bubungan sa tapat ng kanyang kinaroroonan. Nang kanilang mabutas iyon, ibinaba nila ang higaang kinahihigan ng lumpo.
+at sila'y magiging bayan niya.
+At ang nasa bubungan ay huwag nang bumaba, o pumasok upang maglabas ng anuman sa kanyang bahay.
+Tinanong din siya ng mga kawal, “At kami, anong dapat naming gawin?” At sinabi niya sa kanila, “Huwag kayong mangikil ng salapi kaninuman sa pamamagitan ng dahas o maling paratang at masiyahan kayo sa inyong sahod.”
+Subalit hindi nila naunawaan ang pananalitang ito at ito'y inilihim sa kanila, upang ito'y hindi nila mabatid. At natakot silang magtanong sa kanya tungkol sa salitang ito.
+Sinabi ng mga nakatayo sa malapit, “Nilalait mo ba ang pinakapunong pari ng Diyos?”
+Igalang mo ang iyong ama at ang iyong ina; at, Ibigin mo ang iyong kapwa na gaya ng iyong sarili.”
+Pagkatapos nito, sapagkat alam ni Jesus na ang lahat ng mga bagay ay naganap na, ay sinabi niya (upang matupad ang kasulatan), “Nauuhaw ako.”
+At ipinakita sa akin ng anghel ang isang ilog ng tubig ng buhay, na maningning na gaya ng kristal, na lumalabas mula sa trono ng Diyos at ng Kordero
+Samantalang sila'y naroroon, dumating ang panahon ng kanyang panganganak.
+Kaya't yamang napapalibutan tayo ng gayong kakapal na bilang ng mga saksi, itabi natin ang bawat pabigat at ang pagkakasalang madaling bumibitag sa atin, at tumakbo tayong may pagtitiis sa takbuhing inilagay sa harapan natin.
+Pagdating niya sa pampang, nakita niya ang napakaraming tao. Nahabag siya sa kanila at pinagaling niya ang mga maysakit sa kanila.
+Ano nga ang ating sasabihin? May kawalang-katarungan ba sa Diyos? Huwag nawang mangyari.
+Nagpakita sa kanya ang isang anghel na mula sa langit na nagpalakas sa kanya.
+Nagtalo sila sa isa't isa, “Kung sabihin natin, ‘Mula sa langit’ ay sasabihin niya, ‘Bakit nga hindi ninyo siya pinaniwalaan?’
+Ngayon ay nalalaman namin na nalalaman mo ang lahat ng mga bagay, at hindi na kailangang tanungin ka ng sinuman. Dahil dito'y sumasampalataya kami na ikaw ay nagbuhat sa Diyos.”
+tulad ng mapapatotohanan ng pinakapunong pari ng tungkol sa akin at ng buong kapulungan ng matatanda. Mula sa kanila'y tumanggap ako ng mga sulat para sa mga kapatid sa Damasco at nagpunta ako roon upang gapusin ang mga naroroon at ibalik sila sa Jerusalem upang parusahan.
+subalit sa mga huling araw na ito ay nagsalita siya sa atin sa pamamagitan ng Anak, na kanyang itinalagang tagapagmana ng lahat ng mga bagay, na sa pamamagitan din niya'y ginawa ang mga sanlibutan.
+Sapagkat maliwanag na ang ating Panginoon ay nagmula sa Juda at tungkol sa liping iyon ay walang sinabing anuman si Moises tungkol sa mga pari.
+Isinusulat namin ang mga bagay na ito upang ang aming kagalakan ay malubos.
+Ang may pandinig ay makinig sa sinasabi ng Espiritu sa mga iglesya. Ang magtagumpay ay bibigyan ko ng nakatagong mana, at siya'y bibigyan ko ng isang batong puti, at sa ibabaw ng bato ay may nakasulat na isang bagong pangalan, na walang nakakaalam kundi ang tumatanggap.
+Subalit sinabi ni Abraham, ‘Nasa kanila si Moises at ang mga propeta, hayaan mo silang makinig sa kanila.’
+Ang taong namatay ay lumabas, na ang mga kamay at mga paa ay natatalian ng mga telang panlibing, at ang kanyang mukha ay may balot na tela. Sinabi sa kanila ni Jesus, “Siya'y inyong kalagan, at hayaan ninyong makaalis.”
+Sapagkat ang Diyos ay hindi masama; hindi niya kaliligtaan ang inyong gawa at ang pag-ibig na inyong ipinakita sa kanyang pangalan, sa inyong paglilingkod sa mga banal, gaya ng ginagawa ninyo ngayon.
+Gayong si David mismo ang nagsasabi sa aklat ng Mga Awit,
+“Huwag kayong magtipon ng mga kayamanan para sa inyong sarili sa lupa, na dito ay naninira ang bukbok at ang kalawang at ang mga magnanakaw ay nakakapasok at nakakapagnakaw;
+Kaya't nanatili sila ng mahabang panahon na nagsasalita ng buong katapangan para sa Panginoon, na nagpapatotoo sa salita ng kanyang biyaya sa pamamagitan ng pagkakaloob ng mga tanda at mga kababalaghan na gawin ng kanilang mga kamay.
+Sila'y sinidlan ng malaking takot at sinabi sa isa't isa, “Sino nga ito, na pati ang hangin at ang dagat ay sumusunod sa kanya?”
+At paglabas niya nang ikatlong oras, nakita niya ang iba sa pamilihan na nakatayong walang ginagawa.
+Kung ang sinuman ay nagnanais gumawa ng kalooban ng Diyos ay makikilala niya kung ang turo ay mula sa Diyos, o kung ako'y nagsasalita mula sa aking sarili.
+Mula ng panahong iyon ay pinasimulan ni Jesus na ipaliwanag sa kanyang mga alagad na kailangang pumunta siya sa Jerusalem at magtiis ng maraming bagay sa kamay ng matatanda, ng mga punong pari at mga eskriba. Siya'y papatayin at muling bubuhayin sa ikatlong araw.
 Sumampalataya kayo sa akin na ako'y nasa Ama at ang Ama ay nasa akin. Subalit kung hindi ay sumampalataya kayo sa akin dahil sa mga gawa.
-At kung ano ang aking ginagawa ay patuloy kong gagawin, upang alisin ang pagkakataon doon sa mga nagnanais ng pagkakataon na kilalanin bilang mga kapantay namin tungkol sa ipinagmamalaki nila.
-Ilan sa mga pilosopong Epicureo at Estoico ay nakipagtalo rin sa kanya. At sinabi ng ilan, “Anong nais sabihin ng madaldal na ito?” Sinabi ng iba, “Parang siya'y isang tagapagbalita ng mga ibang diyos”—sapagkat ipinangangaral niya si Jesus at ang pagkabuhay.
-Nang kanilang mahalata na sinabi niya ang talinghagang ito laban sa kanila, pinagsikapan nilang hulihin siya, ngunit sila'y natakot sa maraming tao at siya'y iniwan nila at sila'y umalis.
+Natagpuan niya roon ang isang Judio na ang pangalan ay Aquila, isang lalaking tubong Ponto, na kararating pa lamang mula sa Italia, kasama si Priscila na kanyang asawa, sapagkat ipinag-utos ni Claudio na ang lahat ng Judio ay umalis sa Roma. Pumunta si Pablo sa kanila;
+at nagbabalak ang mga tao ng mga bagay na walang kabuluhan?
+Sinasabi ko sa inyo, nanaog patungo sa kanyang bahay ang taong ito na inaring-ganap sa halip na ang isa. Sapagkat ang bawat nagmamataas sa kanyang sarili ay ibababa, ngunit ang nagpapakababa sa kanyang sarili ay itataas.”
+Sapagkat tayong sumasampalataya ay pumapasok sa kapahingahang iyon, gaya ng sinabi ng Diyos,
+at sinasabi ninyo, ‘Kung nabuhay sana kami sa mga araw ng aming mga ninuno, hindi kami makikibahagi sa kanila sa dugo ng mga propeta.’
+Kaya't pagkatapos ay maliwanag na sinabi sa kanila ni Jesus, “Namatay si Lazaro,
+Huwag ninyong kalimutan ang magpatulóy ng mga dayuhan, sapagkat sa paggawa nito ang iba ay nakapagpatulóy na ng mga anghel nang hindi nila namamalayan.
+Ngunit ito'y sinabi niya, hindi dahil nagmamalasakit siya sa mga dukha, kundi sapagkat siya'y isang magnanakaw. At palibhasa'y nasa kanya ang supot ay kinukuha niya ang inilalagay doon.
+Ang kamatayan at ang Hades ay itinapon sa lawa ng apoy. Ito ang ikalawang kamatayan, ang lawa ng apoy;
+Iyon ay isang sagisag ng panahong kasalukuyan, na sa panahong yaon ang mga kaloob at ang mga alay na inihahandog ay hindi makapagpapasakdal sa budhi ng sumasamba,
+Nang patapos na ang araw na iyon, lumapit ang labindalawa at sinabi sa kanya, “Paalisin mo ang mga tao upang sila'y makapunta sa mga nayon at sa mga lupaing nasa palibot at makahanap ng matutuluyan at makakain, sapagkat tayo'y narito sa isang ilang na dako.”
+at nakalasap ng kabutihan ng salita ng Diyos, at ng mga kapangyarihan ng panahong darating,
+Subalit habang pinupulot ng mga punong pari ang mga piraso ng pilak, nagsabi sila, “Hindi matuwid na ilagay ang mga ito sa kabang-yaman, sapagkat dugo ang kapalit ng halagang ito.”
+Nang kanilang mailagay na ang mga bilanggo sa gitna nila, sila ay kanilang tinanong, “Sa anong kapangyarihan, o sa anong pangalan ninyo ginawa ito?”
+At sinabi sa kanila na huwag pinsalain ang damo sa lupa, ni ang anumang luntian, ni ang anumang punungkahoy, kundi ang mga tao lamang na walang tatak ng Diyos sa kanilang mga noo.
+Mula pa nang likhain ang sanlibutan, ang kanyang walang hanggang kapangyarihan at pagka-Diyos, bagaman hindi nakikita, ay naunawaan at nakita sa pamamagitan ng mga bagay na kanyang ginawa, upang wala silang maidadahilan;
+At ang Espiritu Santo ay nagpapatotoo rin sa atin, sapagkat pagkatapos niyang sabihin,
+Nang makita ni Jesus ang napakaraming tao sa palibot niya, ipinag-utos niyang tumawid sa kabilang pampang.
+Sapagkat ang taong iyon ay hindi dapat mag-akala na siya'y tatanggap ng anumang bagay mula sa Panginoon.
+Sinabi niya sa kanila, “Ngunit ano ang sinasabi ninyo kung sino ako?”
+ang inyong kasaganaan sa kasalukuyang panahon ang magpuno sa kanilang kakulangan, upang ang kanilang kasaganaan ay magpuno sa inyong pangangailangan, upang magkaroon ng pagkakapantay-pantay.
+Idinadalangin ko sila. Hindi ang sanlibutan ang idinadalangin ko, kundi para doon sa mga ibinigay mo sa akin, sapagkat sila'y iyo.
+Siya'y kanilang tinanong, “Sino ang taong nagsabi sa iyo, ‘Buhatin mo ang iyong higaan at lumakad ka?’”
+Ngunit sinagot sila ng masamang espiritu, “Kilala ko si Jesus, at kilala ko si Pablo; ngunit sino kayo?”
+Sapagkat ang Anak ng Tao ay naparito upang iligtas ang nawala.]
+At si Jesus ay muling lumabas sa tabi ng lawa. Nagtipon sa paligid niya ang napakaraming tao at sila'y kanyang tinuruan.
+Kung maghihimagsik si Satanas laban sa kanyang sarili at magkabaha-bahagi, hindi siya makakatayo, kundi siya'y magwawakas.
+At si Judas na nagkanulo kay Jesus, nang nakitang hinatulan na ito, ay nagsisi at isinauli ang tatlumpung pirasong pilak sa mga punong pari at sa matatanda,
+Sinabi ni Jesus sa kanila, “Hindi ba ninyo kailanman nabasa sa mga kasulatan,
+Ngunit silang lahat ay pare-parehong nagsimulang magdahilan. Sinabi ng una sa kanya, ‘Bumili ako ng isang bukid, at kailangan kong umalis at tingnan iyon. Hinihiling ko sa iyo na pagpaumanhinan mo ako.’
+Sapagkat batid niya na dahil sa inggit ay ipinadakip siya ng mga punong pari.
+Sapagkat ang bawat humihingi ay tumatanggap, at ang humahanap ay nakakatagpo, at ang tumutuktok ay pinagbubuksan.
+Ang nagsasabing, “Kilala ko siya,” ngunit hindi tinutupad ang kanyang mga utos, ay sinungaling, at ang katotohanan ay wala sa kanya.
+At nang kanyang masabi ito ay sinampal si Jesus ng isa sa mga punong-kawal na nakatayo roon, na nagsasabi, “Ganyan ka bang sumagot sa pinakapunong pari?”
+Pagkatapos ay sasagutin siya ng mga matuwid, na nagsasabi, ‘Panginoon, kailan ka namin nakitang gutom, at pinakain ka namin, o uhaw, at binigyan ka ng inumin?
+sa pamamagitan ng pagkukunwari ng mga nagsasalita ng mga kasinungalingan, na ang mga budhi ay tinatakan ng nagbabagang bakal.
+Sa kanya ang buong gusali ay nakalapat na mabuti at lumalaki tungo sa pagiging isang banal na templo sa Panginoon;
+Sapagkat sa aking pagdaraan, at sa pagmamasid ng mga bagay na inyong sinasamba, ay nakatagpo din naman ako ng isang dambana na may sulat na ganito, ‘SA ISANG DI-KILALANG DIYOS.’ Kaya't ang sinasamba ninyo na hindi kilala ay siyang ipahahayag ko sa inyo.
+sapagkat sinasabi ko sa inyo, ito'y hindi ko kakainin hanggang sa ito'y ganapin sa kaharian ng Diyos.”
+Sumagot si Jesus, “Kung ako ma'y nagpapatotoo tungkol sa aking sarili, ang aking patotoo ay totoo; sapagkat nalalaman ko kung saan ako nanggaling, at kung saan ako pupunta. Subalit hindi ninyo nalalaman kung saan ako nanggaling, o kung saan ako pupunta.
+at ang inyong mga kabataang lalaki ay makakakita ng mga pangitain,
+Subalit dahil batid ni Jesus ang iniisip ng kanilang puso, kumuha siya ng isang maliit na bata at inilagay sa kanyang tabi.
+patungo sa dagat, sa ibayo ng Jordan, Galilea ng mga Hentil—
+Pagkatapos ay ipinadala siyang nakagapos ni Anas kay Caifas na pinakapunong pari.
+“Mapapalad ang mga pinatatawad sa kanilang mga masasamang gawa,
+Siya'y muling nagsugo sa kanila ng isa pang alipin at ito'y kanilang pinalo sa ulo at nilait.
+Pagkatapos makipagpulong sa matatanda, nagpanukala sila na magbigay ng sapat na salapi sa mga kawal,
+na pumaparitong kasunod ko at hindi ako karapat-dapat magkalag ng panali ng kanyang sandalyas.”
+Ito ay upang matupad ang salitang sinabi niya, “Sa mga ibinigay mo sa akin ay wala akong iwinala kahit isa.”
+Ito ang aklat ng lahi ni Jesu-Cristo, na anak ni David, na anak ni Abraham.
+Ako'y labis na nagalak nang dumating ang mga kapatid at nagpatotoong ikaw ay nasa katotohanan, kung paanong lumalakad ka sa katotohanan.
+Subalit ang layunin ng aming tagubilin ay pag-ibig na nagmumula sa malinis na puso at sa mabuting budhi at sa pananampalatayang hindi pakunwari.
+“Igalang mo ang iyong ama at ina”—ito ang unang utos na may pangako,
+subalit sinabi ni Jesus sa kanya, “Judas, ipinagkakanulo mo ba ang Anak ng Tao sa pamamagitan ng isang halik?”
+Tumahimik ang buong kapulungan at kanilang pinakinggan sina Bernabe at Pablo na isinasalaysay ang mga tanda at mga kababalaghang ginawa ng Diyos sa pamamagitan nila sa gitna ng mga Hentil.
+At huwag ninyong pighatiin ang Espiritu Santo ng Diyos, na sa pamamagitan niya kayo'y tinatakan para sa araw ng pagtubos.
+‘At sa mga huling araw, sabi ng Diyos,
+Sapagkat ang aming ebanghelyo ay hindi dumating sa inyo sa salita lamang, kundi sa kapangyarihan din at sa Espiritu Santo at sa lubos na pagtitiwala, kung paanong nalalaman ninyo kung anong pagkatao ang aming pinatunayan sa inyo alang-alang sa inyo.
+at kapag ang pagnanasang iyon ay naipaglihi, ito ay nanganganak ng kasalanan, at ang kasalanan kapag malaki na ay nagbubunga ng kamatayan.
+Batiin ninyo si Rufo na hinirang sa Panginoon, at ang kanyang ina at ina ko rin.
+Ang langit ay nahawi na gaya ng isang balumbong nilululon, at ang bawat bundok at pulo ay naalis sa kanilang kinalalagyan.
+At sinabi niya sa kanya, “Ano ang ibig mo?” Sinabi niya sa kanya, “Ipag-utos mo na itong dalawa kong anak ay umupo, ang isa sa iyong kanan, at ang isa sa iyong kaliwa, sa iyong kaharian.”
+Sumagot sa kanya ang mga Judio, “Hindi dahil sa mabuting gawa ka namin babatuhin, kundi dahil sa paglapastangan. Sapagkat ikaw, na isang tao, ay nag-aangkin na Diyos.”
+na nagpakita sa kaluwalhatian at nag-usap tungkol sa pagpanaw niya na malapit na niyang isakatuparan sa Jerusalem.
+o papatayin ang nagbabagang mitsa,
+Subalit siya'y nagsasalita tungkol sa templo ng kanyang katawan.
+Ako ba ngayo'y naging kaaway ninyo sa pagsasabi ko sa inyo ng katotohanan?
+Ngunit hindi nila naunawaan ang kanyang sinabi at natakot silang magtanong sa kanya.
+Sapagkat nalalaman ninyo ang biyaya ng ating Panginoong Jesu-Cristo, na bagaman siya'y mayaman, subalit alang-alang sa inyo ay naging dukha, upang sa pamamagitan ng kanyang kadukhaan ay maging mayaman kayo.
+(“Masdan ninyo, ako'y dumarating na gaya ng magnanakaw. Mapalad ang nananatiling gising at nakadamit, upang siya'y hindi lumakad na hubad at makita ang kanyang kahihiyan.”)
+Mga kapatid, nakikiusap ako sa inyo, kayo'y maging kagaya ko, sapagkat ako'y naging katulad din ninyo. Wala kayong ginawang masama sa akin.
+Sumunod kayo at pasakop sa mga namumuno sa inyo, sapagkat sila'y matamang nagbabantay alang-alang sa inyong mga kaluluwa bilang mga mananagot. Hayaang gampanan nila ito na may kagalakan at hindi nang may hapis, sapagkat kung ganito'y hindi ito magiging kapaki-pakinabang sa inyo.
+at naglalakad si Jesus sa templo sa portiko ni Solomon.
+Kanilang sinabi, “Hinihikayat ng taong ito ang mga tao na sumamba sa Diyos laban sa kautusan.”
+Sapagkat nagmumula sa puso ang masasamang pag-iisip, pagpatay, pangangalunya, pakikiapid, pagnanakaw, pagsaksi sa kasinungalingan, at paglapastangan.
+Sapagkat ito ang dahilan kung bakit ang ebanghelyo ay ipinangaral maging sa mga patay, upang bagaman sila'y nahatulan sa laman na gaya ng mga tao, ay mabubuhay sila sa espiritu tulad ng Diyos.
+Kaya't nang sila'y magkatipon dito, hindi ako nagpaliban kundi nang sumunod na araw ay umupo ako sa hukuman at iniutos kong iharap ang tao.
+At sinabi ni Agripa kay Pablo, “Sa maikling panahon ay hinihikayat mo akong maging Cristiano!”
+“Sa puno nga ng igos ay pag-aralan ninyo ang talinghaga: kapag nananariwa ang kanyang sanga, at sumusupling ang mga dahon, ay nalalaman ninyo na malapit na ang tag-araw.
+Huwag ninyong gawin ang anuman sa pagpapaligsahan o pagmamataas, kundi sa kababaan, ituring na ang iba ay higit na mabuti kaysa inyong sarili.
+‘Ikaw ay pari magpakailanman.’”
+Nang matikman ng pinuno ng handaan ang tubig na naging alak, at hindi niya alam kung saan ito nanggaling (subalit nalalaman ng mga lingkod na kumuha ng tubig), tinawag ng pinuno ng handaan ang lalaking bagong kasal.
+Siya'y nagpakita ng lakas sa pamamagitan ng kanyang bisig;
+Si Pablo at si Timoteo, na mga alipin ni Cristo Jesus, sa lahat ng mga banal kay Cristo Jesus na nasa Filipos, kasama ang mga obispo at ang mga diakono:
+Nang mapatahimik na ng kalihim ng bayan ang maraming tao, ay kanyang sinabi, “Mga lalaking taga-Efeso, sino sa mga tao ang hindi nakakaalam na ang lunsod ng mga taga-Efeso ay tagapag-ingat ng templo ng dakilang Artemis, at ng banal na batong nahulog mula sa langit?
+Nang makaraan ang ilang araw, si Haring Agripa at si Bernice ay dumating sa Cesarea upang batiin si Festo.
+Sinabi niya sa kanila, “Bakit ninyo ako hinahanap? Hindi ba ninyo nalalaman na dapat ay nasa bahay ako ng aking Ama?”
+At sila'y nag-aawitan ng isang bagong awit sa harapan ng trono, at sa harapan ng apat na nilalang na buháy at ng matatanda. Walang sinumang natuto ng awit na iyon kundi ang isandaan at apatnapu't apat na libo lamang, na tinubos mula sa lupa.
+Ito ay nangangahulugang nauunawaan na ang kautusan ay hindi ginawa para sa taong matuwid, kundi para sa mga walang kinikilalang batas at mapaghimagsik, para sa masasama at mga makasalanan, para sa mga hindi banal at lapastangan, para sa mga pumapatay sa ama at sa ina, para sa mga mamamatay-tao,
+Bumalik ang mga kawal sa mga punong pari at sa mga Fariseo, at sinabi ng mga ito sa kanila, “Bakit hindi ninyo siya dinakip?”
+Ang Panginoon nawa'y sumainyong espiritu. Sumainyo nawa ang biyaya.
+Kaya, kung sasabihin nila sa inyo, ‘Tingnan ninyo, siya'y nasa ilang,’ huwag kayong lumabas. ‘Tingnan ninyo, siya'y nasa mga silid,’ huwag ninyong paniwalaan.
+ay siyang naging batong panulukan.
+Sa ami'y ipinagbilin niya na mangaral sa mga tao at sumaksi na siya ang itinalaga ng Diyos na maging hukom ng mga buháy at ng mga patay.
+Sinasabi ko nga, natisod ba sila upang mahulog? Huwag nawang mangyari. Subalit sa pagkahulog nila'y dumating ang kaligtasan sa mga Hentil, upang pukawin sila sa paninibugho.
+Siya ang aking sinugo sa inyo ukol sa bagay na ito, upang malaman ninyo ang aming kalagayan, at upang kanyang pasiglahin ang inyong mga puso;
+At nakita ko ang isang anghel na nananaog mula sa langit, na hawak sa kanyang kamay ang susi ng di-matarok na kalaliman at ang isang malaking tanikala.
+Dahil sa awa, iniunat ni Jesus ang kanyang kamay, hinipo ang ketongin at sinabi sa kanya, “Gusto ko, maging malinis ka.”
+At nakita kong lumabas sa bibig ng dragon at mula sa bibig ng halimaw at mula sa bibig ng bulaang propeta ang tatlong espiritung karumaldumal, na gaya ng mga palaka.
+“Ngunit sinumang maglagay ng batong katitisuran sa isa sa maliliit na ito na sumasampalataya sa akin, ay mas mabuti pa sa kanya na bitinan ang kanyang leeg ng isang malaking batong gilingan, at siya'y malunod sa kalaliman ng dagat.
+Ngunit ang isa sa nakatayo roon ay bumunot ng kanyang tabak, tinaga ang alipin ng pinakapunong pari, at tinigpas ang kanyang tainga.
+Ito'y sinabi niya, upang ipahiwatig kung sa anong uri ng kamatayan ang ikamamatay niya.
+Umalis sila at kanilang natagpuan ang batang asno na nakatali sa pintuan sa labas ng lansangan. At kinalagan nila ito.
+sapagkat minamasdan niya ang kanyang sarili at umaalis, at agad niyang nalilimutan kung ano ang kanyang katulad.
+Tapat ang salita, at nais kong igiit mo ang mga bagay na ito upang ang mga nananampalataya sa Diyos ay maging maingat na ilaan ang kanilang sarili sa mabubuting gawa. Ang mga bagay na ito ay pawang mabubuti at kapaki-pakinabang sa mga tao.
+at ito'y aking itatayo:
+Ngunit kung ang isang tao ay nagdurusa bilang Cristiano, huwag niyang ikahiya ito, kundi luwalhatiin niya ang Diyos sa pangalang ito.
+upang matupad ang sinabi ni propeta Isaias:
+Nanatili sila roon na kasama ang mga alagad nang mahaba-habang panahon.
+Nang malaman niya sa senturion, ipinagkaloob niya ang bangkay kay Jose.
+Ngunit matapos akong maibangon, mauuna ako sa inyo sa Galilea.”
+Sumasakanila ang kamay ng Panginoon at ang napakalaking bilang na sumampalataya ay nagbalik-loob sa Panginoon.
+na sa kanya'y nakiapid ang mga hari sa lupa, at ang mga naninirahan sa lupa ay nalasing sa alak ng kanyang pakikiapid.
+tunay na inyong mapapakinggan, ngunit hindi kailanman mauunawaan,
+Siya'y tumitig sa kanya na may pagkatakot, at nagsabi, “Ano iyon, Panginoon?” Sinabi sa kanya, “Ang mga panalangin mo at ang iyong mga limos ay umakyat bilang alaala sa harapan ng Diyos.
+Noon ay may isang malaking kawan ng mga baboy na nanginginain sa libis ng bundok.
+Bumagsak ang ulan, at dumating ang baha. Humihip ang mga hangin at hinampas ang bahay na iyon, at iyon ay bumagsak; napakalakas nga ng kanyang pagbagsak.”
+Subalit ang kaloob na walang bayad ay hindi gaya ng pagsuway. Sapagkat kung sa pamamagitan ng pagsuway ng isa ang marami ay namatay, lalo pang sumagana para sa marami ang biyaya ng Diyos, at ang kaloob dahil sa biyaya ng isang tao, na si Jesu-Cristo.
+Dumating ang una, na nagsasabi, ‘Panginoon, tumubo ang iyong mina ng sampung mina pa.’
+Sinabi nila sa kanya, “Ipagkaloob mo sa amin na makaupo kami, ang isa'y sa iyong kanan, at ang isa'y sa kaliwa, sa iyong kaluwalhatian.”
+Sapagkat hindi sinugo ng Diyos ang Anak sa sanlibutan upang hatulan ang sanlibutan, kundi upang ang sanlibutan ay maligtas sa pamamagitan niya.
+Ngunit ang matibay na saligan ng Diyos ay nananatiling matatag na may tatak na ganito: “Kilala ng Panginoon ang mga kanya,” at, “Lumayo sa kalikuan ang bawat tumatawag sa pangalan ng Panginoon.”
+Nang pababa na sila sa bundok, iniutos ni Jesus sa kanila na nagsasabi, “Huwag ninyong sasabihin kanino man ang pangitain, hanggang ang Anak ng Tao ay muling buhayin mula sa mga patay.”
+Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos na ating Ama at sa Panginoong Jesu-Cristo.
+at sa isang batang asno na anak ng babaing asno.”
+Aking pinag-usig ang Daang ito hanggang sa kamatayan, na ginagapos at ipinapasok sa mga bilangguan ang mga lalaki at ang mga babae,
+Sinabi sa kanya ng babae, “Ginoo, bigyan mo ako ng tubig na ito upang ako'y hindi na mauhaw o pumarito pa upang umigib.”
+Ang biling ito ay ipinagkakatiwala ko sa iyo, Timoteo na aking anak, ayon sa mga propesiya na ginawa noong una tungkol sa iyo, upang sa pamamagitan ng mga ito ay makipaglaban ka ng mabuting pakikipaglaban,
+At pinisa ang ubas sa pisaan sa labas ng lunsod, at lumabas sa pisaan ng ubas ang dugo, na umabot hanggang sa mga renda ng mga kabayo, sa layong halos dalawandaang milya.
+Tulad ng isang tao na umalis upang maglakbay. Sa pag-alis niya sa kanyang bahay, at pagkabigay ng tagubilin sa kanyang mga alipin, sa bawat isa ang kanyang gawain, ay inutusan ang tanod sa pinto na magbantay.
+Dahil dito'y inusig ng mga Judio si Jesus sapagkat ginagawa niya ang mga bagay na ito sa araw ng Sabbath.
+Ngayon, maging ang unang tipan ay nagkaroon ng mga alituntunin sa pagsamba at ng isang panlupang santuwaryo.
+at si Adan ay hindi nadaya, kundi ang babae nang madaya ay nahulog sa pagkakasala.
+at ang mga pinuno ay nagtipon,
+Sinasabi ng kanyang mga alagad, “Oo nga, ngayo'y nagsasalita kang malinaw, at hindi patalinghaga.
+Sino ang makapaglalarawan sa kanyang lahi?
+(Pupunta sa bukid ang dalawang lalaki; ang isa'y kukunin at ang isa'y iiwan.)
+Nilibak at hinampas si Jesus ng mga lalaking nagbabantay sa kanya.
+Sumagot sa kanya si Felipe, “Hindi magkakasiya sa kanila ang dalawang daang denariong tinapay, upang makakain ng kaunti ang bawat isa.”
+Gayunma'y ang nasa inyo'y panghawakan ninyong matibay hanggang sa ako'y dumating.
+at lubos ninyo silang igalang na may pag-ibig dahil sa kanilang gawain. Magkaroon kayo ng kapayapaan sa isa't isa.
+“Ang tapat sa kakaunti ay tapat din naman sa marami at ang di-tapat sa kakaunti ay di rin naman tapat sa marami.
+Humingi siya sa pinakapunong pari ng mga sulat para sa mga sinagoga sa Damasco upang kung siya'y makatagpo ng sinumang kabilang sa Daan, mga lalaki o mga babae, ay dadalhin niya silang nakagapos sa Jerusalem.
+Kaya sa muling pagkabuhay, alin sa pito ang magiging asawa ng babae? Yamang siya'y napangasawa nilang lahat.”
+Sapagkat hindi ang pumupuri sa kanyang sarili ang tinatanggap, kundi siya na pinupuri ng Panginoon.
+Sapagkat sumusulat si Moises tungkol sa pagiging matuwid na batay sa kautusan, na “ang taong gumagawa ng mga bagay na ito ay mabubuhay sa mga ito.”
+Dito'y naging ganap ang pag-ibig sa atin upang tayo'y magkaroon ng lubos na pagtitiwala sa araw ng paghuhukom; sapagkat kung ano siya, ay gayundin naman tayo sa sanlibutang ito.
+At sinabi niya sa mga nakatayo, ‘Kunin ninyo sa kanya ang mina, at ibigay ninyo sa may sampung mina.’
+Mayroon pa akong maraming bagay na sasabihin sa inyo, ngunit hindi ninyo kayang dalhin sa ngayon.
+Pagkatapos ay dumating naman ang ibang mga birhen, na nagsasabi, ‘Panginoon, Panginoon, pagbuksan mo kami.’
+Subalit nang araw na umalis sa Sodoma si Lot, umulan ng apoy at asupre mula sa langit at pinuksa silang lahat.
+Samantala, nakatayo sa tabi ng krus ni Jesus ang kanyang ina, at ang kapatid ng kanyang ina, si Maria na asawa ni Cleopas, at si Maria Magdalena.
+At pumasok siya sa isang bahay, at muling nagkatipon ang maraming tao, kaya't sila'y hindi man lamang makakain.
+Ngunit paano nga silang tatawag sa kanya na hindi nila sinampalatayanan? At paano sila sasampalataya sa kanya na hindi nila napakinggan? At paano sila makikinig kung walang mangangaral?
+Huwag kayong padaya sa mga salitang walang katuturan, sapagkat dahil sa mga bagay na ito'y dumarating ang galit ng Diyos sa mga anak ng pagsuway.
+na sinasabi, ‘Tinugtugan namin kayo ng plauta, ngunit hindi kayo sumayaw; tumangis kami, ngunit hindi kayo nahapis.’
+Kanilang dinakip ang mga apostol at kanilang inilagay sila sa bilangguang bayan.
+Nang dumating sila sa mga alagad, nakita nilang napakaraming tao sa kanilang paligid at ang mga eskriba na nakikipagtalo sa kanila.
+Subalit kung kayo'y nagpapakita ng pagtatangi, kayo ay nagkakasala at kayo'y inilalantad ng kautusan bilang mga lumalabag.
+Mga ama, kayo'y sinusulatan ko
+pinatunayang matuwid sa espiritu, nakita ng mga anghel,
+Subalit ngayong dumating na ang pananampalataya, tayo ay wala na sa ilalim ng tagasupil.
+Batiin ninyo si Maria, na lubhang maraming nagawa para sa inyo.
+Subalit ngayo'y hindi na ako ang gumagawa nito, kundi ang kasalanang nananatili sa akin.
+at ang hindi nagpapasan ng kanyang krus at sumusunod sa akin ay hindi karapat-dapat sa akin.
+Kaya't kayo, mga minamahal, yamang nalalaman na ninyo noon pa ang mga bagay na ito, mag-ingat kayo, baka mailigaw kayo sa pamamagitan ng kamalian ng masasama at mahulog kayo mula sa inyong sariling katatagan.
+na ingatan mong walang dungis at walang kapintasan ang utos hanggang sa pagpapakita ng ating Panginoong Jesu-Cristo;
+At nakita ko ang pitong anghel na nakatayo sa harapan ng Diyos at sila'y binigyan ng pitong trumpeta.
+Dahil dito, sapagkat narinig ko rin naman ang inyong pananampalataya sa Panginoong Jesus, at ang inyong pag-ibig sa lahat ng mga banal,
+“O, ‘Sino ang mananaog sa kailaliman?’” (Ito ay upang iakyat si Cristo mula sa mga patay.)
+Subalit paghawak niya sa kanyang kamay, siya'y tumawag at sinabi, “Bata, bumangon ka.”
+Sapagkat ang asawang lalaki ang ulo ng asawang babae, gaya ni Cristo na ulo ng iglesya, na siya ang tagapagligtas ng katawan.
+At nang oras na iyon ay nagkaroon ng isang malakas na lindol, at nagiba ang ikasampung bahagi ng lunsod; may namatay sa lindol na pitong libong katao at ang mga iba ay natakot, at nagbigay ng luwalhati sa Diyos ng langit.
+Ang umiibig sa ama o sa ina nang higit kaysa akin ay hindi karapat-dapat sa akin; at ang umiibig sa anak na lalaki o anak na babae nang higit kaysa akin ay hindi karapat-dapat sa akin;
+Kaya sinasabi ko sa inyo, ‘Kukunin sa inyo ang kaharian ng Diyos at ibibigay sa isang bansang nagbibigay ng bunga nito.’
+Ingatan ninyo ang inyong sarili at ang buong kawan. Sa kanila'y inilagay kayo ng Espiritu Santo na mga tagapangasiwa upang pangalagaan ninyo ang iglesya ng Diyos na binili niya ng kanyang sariling dugo.
+Nasa sa kanya ang buhay at ang buhay ay siyang ilaw ng mga tao.
+Ngunit hindi umimik si Jesus. At sinabi ng pinakapunong pari sa kanya, “Pinanunumpa kita sa harapan ng Diyos na buháy, sabihin mo sa amin kung ikaw nga ang Cristo, ang Anak ng Diyos.”
+Nakita ng mga kasamahan ko noon ang liwanag, ngunit hindi nila narinig ang tinig ng nagsalita sa akin.
+‘Siya'y mag-uutos sa kanyang mga anghel tungkol sa iyo,’
+Kayo'y hiwalay kay Cristo, kayong mga nagnanais ariing-ganap sa pamamagitan ng kautusan; nahulog kayo mula sa biyaya.
+Ngunit nang dumating si Cefas sa Antioquia, sumalungat ako sa kanya nang mukhaan, sapagkat siya'y nahatulang nagkasala.
+sa pag-asa sa buhay na walang hanggan. Bago pa nagsimula ang mga panahon, ito ay ipinangako ng Diyos na hindi nagsisinungaling.
+Sapagkat kung hindi pinanghinayangan ng Diyos ang mga likas na sanga, ikaw man ay hindi panghihinayangan.
+Ngunit sinumang magsalita ng paglapastangan laban sa Espiritu Santo ay walang kapatawaran magpakailanman, kundi nagkakasala ng isang kasalanang walang hanggan,”
+Ang balabal na aking iniwan sa Troas kay Carpo ay iyong dalhin pagparito mo, at ang mga aklat, lalung-lalo na ang mga pergamino.
+mula sa aking Espiritu ay magbubuhos ako sa lahat ng laman;
+Sapagkat ang mga gayon ay hindi naglilingkod kay Cristo na Panginoon natin kundi sa kanilang sariling tiyan; at sa pamamagitan ng kanilang mahusay na pananalita at matatamis na talumpati ay dinadaya nila ang mga puso ng mga walang muwang.
+Nasiyahan ang buong kapulungan sa kanilang sinabi at pinili nila si Esteban, lalaking puspos ng pananampalataya at ng Espiritu Santo, kasama sina Felipe, Procoro, Nicanor, Timon, Parmenas, at si Nicolas na isang naging Judio na taga-Antioquia.
+Ako'y malapit nang dumating! Mapalad ang tumutupad ng mga salita ng propesiya ng aklat na ito.”
+Sapagkat ang mga tao'y magiging maibigin sa kanilang sarili, maibigin sa salapi, mayayabang, mga mapagmalaki, mapanlait, suwail sa mga magulang, mga walang utang na loob, walang kabanalan,
+Ngunit alam ito ni Jesus kaya't sinabi niya, “O kayong maliliit ang pananampalataya, bakit kayo'y nagtatalo na wala kayong tinapay?
+at nang maging sakdal, siya ang naging pinagmulan ng walang hanggang kaligtasan ng lahat ng mga sumusunod sa kanya;
+Subalit pinalapit sila ni Jesus na sinasabi, “Hayaan ninyong lumapit sa akin ang maliliit na bata, at huwag ninyo silang hadlangan, sapagkat sa mga ganito nauukol ang kaharian ng Diyos.
+dahil sa inyong pakikibahagi sa pagpapalaganap ng ebanghelyo, mula nang unang araw hanggang ngayon.
+Sumagot si Jesus at sinabi, “O lahing walang pananampalataya at napakasama, hanggang kailan ko pa kayo makakasama? Gaano katagal akong magtitiis sa inyo? Dalhin ninyo siya rito.”
+Dito'y nakikilala ninyo ang Espiritu ng Diyos: ang bawat espiritung nagpapahayag na si Jesu-Cristo ay naparito sa laman ay sa Diyos,
+Sapagkat kung saan naroroon ang inyong kayamanan ay naroroon din naman ang inyong puso.
+Sa udyok ng kanyang ina ay sinabi niya, “Ibigay mo sa akin dito sa isang pinggan ang ulo ni Juan na Tagapagbautismo!”
+Ngayo'y isinasamo ko sa inyo, mga kapatid, na tandaan ninyo ang mga lumilikha ng pagkakabaha-bahagi at ng mga katitisuran na laban sa mga aral na inyong natutunan; lumayo kayo sa kanila.
+kahit ang lupa, sapagkat ito ang tuntungan ng kanyang mga paa; kahit ang Jerusalem, sapagkat iyon ang lunsod ng dakilang Hari.
+Walang ama, walang ina, walang talaan ng angkan, ni walang pasimula ng mga araw o katapusan ng buhay, subalit ginawang katulad ng Anak ng Diyos, siya ay nananatiling pari magpakailanman.
+“Sino nga ba ang tapat at matalinong alipin na inatasan ng kanyang panginoon na pangasiwaan ang kanyang sambahayan, upang magbigay sa kanila ng pagkain sa tamang panahon?
+At kunin ninyo ang pinatabang guya at patayin ito, at tayo'y kumain at magdiwang.
+“At sa anghel ng iglesya sa Tiatira ay isulat mo: Ang mga bagay na ito ay sinasabi ng Anak ng Diyos, na may mga matang gaya ng ningas ng apoy, at ang kanyang mga paa ay gaya ng tansong pinakintab.
+At nang masabi niya ito ay lumabas siyang muli sa mga Judio at sa kanila'y sinabi, “Wala akong makitang anumang kasalanan sa kanya.
+Sinabi ni Cornelio, “Apat na araw na ang nakakaraan, mga ganitong oras, nang ikasiyam na oras, ako'y nananalangin sa aking bahay nang biglang tumindig sa harapan ko ang isang lalaki na may nagniningning na damit.
+Ngunit subukin ng bawat isa ang kanyang sariling gawa, at kung magkagayon, ang kanyang dahilan upang magmalaki ay sa kanyang sarili lamang, at hindi sa kanyang kapwa.
+Sinabi ni Jesus, “Paupuin ninyo ang mga tao.” Madamo sa dakong iyon, kaya't umupo ang mga lalaki na may limang libo ang bilang.
+Ituon ninyo ang inyong pag-iisip sa mga bagay na nasa itaas, hindi sa mga bagay na nasa ibabaw ng lupa,
+“Akong si Jesus ay nagsugo ng aking anghel upang sa inyo'y magpatotoo ng mga bagay na ito sa mga iglesya. Ako ang ugat at ang supling ni David, ang maningning na tala sa umaga.”
+na nakikiusap sa amin nang matindi tungkol sa biyaya na makibahagi sa paglilingkod sa mga banal.
+Sapagkat saksi ko ang Diyos, na aking pinaglilingkuran sa aking espiritu sa ebanghelyo ng kanyang Anak, na walang tigil na binabanggit ko kayo sa aking panalangin,
+Sinabi sa kanya ni Jesus, “Babae, anong kinalaman niyon sa akin at sa iyo? Ang aking oras ay hindi pa dumating.”
+Kami'y mga saksi sa mga bagay na ito, gayundin ang Espiritu Santo na ibinigay ng Diyos sa mga sumusunod sa kanya.”
+at ang pagtitiis ng pagpapatibay; at ang pagpapatibay ng pag-asa.
+Sila'y sinugo niya upang ipangaral ang kaharian ng Diyos at upang magpagaling ng mga may sakit.
+Nang sumunod na araw, dahil sa pagnanais na malaman ang tunay na dahilan kung bakit siya'y isinakdal ng mga Judio ay kanyang pinawalan siya at iniutos sa mga punong pari at sa buong Sanhedrin na magpulong. Pinababa niya si Pablo at iniharap sa kanila.
+Sinabi rin naman niya sa nag-anyaya sa kanya, “Kapag naghahanda ka ng isang tanghalian o ng isang hapunan, huwag mong tawagin ang iyong mga kaibigan, o ang iyong mga kapatid, o ang iyong mga kamag-anak, o mayayamang kapitbahay, baka ikaw naman ay kanilang anyayahan at ikaw ay gantihan.
+Ngayon, hinihiling ko na kapag ako'y kaharap, hindi ko kailangang magpakita ng tapang na may pagtitiwala na nais kong ipakita laban sa mga naghihinalang kami ay lumalakad ayon sa makasanlibutang gawi.
+Pagkalooban nawa ng Panginoon ng habag ang sambahayan ni Onesiforo, sapagkat madalas niya akong pinagiginhawa, at hindi niya ikinahiya ang aking tanikala;
+at kaluwalhatian sa kataas-taasan!”
+at lumapit sa kanya ang isang ketongin, at lumuhod sa harapan niya na nagsasabi, “Panginoon, kung ibig mo ay malilinis mo ako.”
+Nang mga araw na iyon ay tumindig si Maria at nagmadaling pumunta sa isang bayan ng Judea, sa lupaing maburol.
+At nakita namin at sinasaksihan na sinugo ng Ama ang Anak bilang Tagapagligtas ng sanlibutan.
+Siyang nagbibigay ng binhi sa manghahasik at ng tinapay bilang pagkain ay siyang magbibigay at magpaparami ng inyong binhi upang ihasik, at magpaparami ng mga bunga ng inyong pagiging matuwid;
+Sinabi sa kanya ng kanyang mga alagad, “Nakikita mong sinisiksik ka ng karamihan, at sinasabi mo pang ‘Sino ang humipo sa akin?’”
+Sapagkat kilala natin ang nagsabi, “Akin ang paghihiganti, ako ang gaganti.” At muli, “Huhukuman ng Panginoon ang kanyang bayan.”
+Sinabi sa kanya ng anghel, “Huwag kang matakot, Maria, sapagkat nakatagpo ka ng paglingap sa Diyos.
+ng aral tungkol sa mga bautismo, pagpapatong ng mga kamay, muling pagkabuhay ng mga patay, at ng walang hanggang paghuhukom.
+Ang iba nama'y nahulog sa batuhan na doo'y kakaunti lamang ang lupa; at kaagad silang sumibol yamang hindi malalim ang lupa.
+sa kanila ang mga patriyarka, at sa kanila nagmula ang Cristo ayon sa laman, na siyang nangingibabaw sa lahat, Diyos na maluwalhati magpakailanman. Amen.
+Ngunit kinagabihan ay binuksan ng isang anghel ng Panginoon ang mga pintuan ng bilangguan, sila'y inilabas, at sinabi,
+“Katotohanang sinasabi ko sa inyo, ang pumapasok sa hindi pintuan ng kulungan ng mga tupa kundi umaakyat sa ibang daan, ang taong iyon ay tulisan at magnanakaw.
+“upang maging mabuti ang inyong kalagayan at ikaw ay mabuhay nang matagal sa ibabaw ng lupa.”
+at siya rin namang sa amin ay nagpahayag ng inyong pag-ibig sa Espiritu.
+pagkatapos ng mga araw na iyon, sabi ng Panginoon;
+Nang magkagayo'y sinabi sa kanya ni Jesus, “Ibalik mo ang iyong tabak sa kanyang lalagyan, sapagkat ang lahat ng humahawak ng tabak ay sa tabak mamatay.
+At sinumang tumanggap sa isang batang ganito sa aking pangalan ay tumatanggap sa akin.
+Kayo mismo ang nakakaalam na ang mga kamay na ito ay naglingkod sa aking mga pangangailangan at sa mga kasama ko.
+at huwag bigyan ng pagkakataon ang diyablo.
+Isang kakilakilabot na bagay ang mahulog sa mga kamay ng Diyos na buháy.
+Walang sinuman na pagkatapos magsindi ng ilawan ay inilalagay ito sa isang tagong lugar o sa ilalim ng takalan, kundi sa patungan ng ilaw upang makita ng mga pumapasok ang liwanag.
+At nagsugo pa siya ng ikatlo. Ito ay kanilang sinugatan at pinagtabuyan.
+At tinanong siya ni Pilato, “Ikaw ba ang Hari ng mga Judio?” Sumagot siya at sinabi, “Ikaw ang nagsasabi.”
+Nakiusap sila sa kanya na mahipo man lamang nila ang laylayan ng kanyang damit; at ang lahat ng humipo nito ay gumaling.
+“Huwag mabagabag ang inyong puso. Sumampalataya kayo sa Diyos, sumampalataya rin naman kayo sa akin.
+Aking binabalaan ang mga nagkasala noong una at lahat ng iba pa, at binabalaan ko sila ngayon habang wala pa, gaya ng ginawa ko nang ako'y kaharap sa ikalawa kong pagdalaw, na kapag ako'y muling dumating, sila ay hindi ko na pagbibigyan.
+Makikilala ninyo sila sa kanilang mga bunga. Nakakapitas ba ng mga ubas sa mga tinikan, o ng mga igos sa mga dawagan?
+Sa Haring walang hanggan, walang kamatayan, di-nakikita, tanging Diyos, ang karangalan at kaluwalhatian magpakailanpaman. Amen.
+Samantalang kanilang pinag-uusapan ang mga bagay na ito, si Jesus ay tumayo sa gitna nila at sinabi sa kanila, “Sumainyo ang kapayapaan.”
+At sinabi niya sa kanila, “Nang kayo'y suguin ko na walang supot ng salapi, o supot ng pagkain, at mga sandalyas, kinulang ba kayo ng anuman?” At kanilang sinabi, “Hindi.”
+At anumang inyong ginagawa, sa salita, o sa gawa, gawin ninyong lahat sa pangalan ng Panginoong Jesus, na nagpapasalamat kayo sa Diyos Ama sa pamamagitan niya.
+Tinatawag siya ni David na Panginoon, kaya't paanong siya'y naging anak niya?”
+At sinabi sa kanila ni Pedro, “Magsisi kayo, at magpabautismo ang bawat isa sa inyo sa pangalan ni Jesu-Cristo upang mapatawad ang inyong mga kasalanan; at tatanggapin ninyo ang kaloob ng Espiritu Santo.
+Sinabi sa kanya ni Jesus, “Ako ang muling pagkabuhay at ang buhay. Ang sumasampalataya sa akin, bagama't siya'y mamatay, ay mabubuhay.
+Doon ay nakatagpo kami ng mga kapatid, at kami'y pinakiusapan nilang tumigil sa kanila sa loob ng pitong araw. Sa gayo'y nakarating kami sa Roma.
+At narinig ko ang isang malakas na tinig na mula sa templo, na nagsasabi sa pitong anghel, “Humayo kayo at ibuhos ninyo sa lupa ang pitong mangkok ng poot ng Diyos.”
+May isang lumapit sa kanya at nagsabi, “Guro, anong mabuting bagay ang dapat kong gawin upang magkaroon ako ng buhay na walang hanggan?”
+Kaya't kami'y naaliw. At sa aming kaaliwan ay lalo pa kaming nagalak dahil sa kagalakan ni Tito, sapagkat ang kanyang espiritu ay pinayapa ninyong lahat.
+[
+kung paanong sa matinding pagsubok ng kapighatian, ang kasaganaan ng kanilang kagalakan at ang kanilang labis na kahirapan ay sumagana sa kayamanan ng kanilang kagandahang-loob.
+Ngunit sumigaw si Pablo nang malakas, “Huwag mong saktan ang iyong sarili, sapagkat naririto kaming lahat.”
+At sinabi nila sa akin, “Kailangang muli kang magpahayag ng propesiya tungkol sa maraming mga bayan at mga bansa, mga wika at mga hari.”
+lalo na dahil sa kalabisan ng mga pahayag. Kaya't upang ako'y huwag magyabang ng labis, binigyan ako ng isang tinik sa laman, isang sugo ni Satanas upang ako'y saktan, upang ako'y huwag magmalaki ng labis.
+Minsan, nang si Jesus ay nananalanging mag-isa, ang mga alagad ay kasama niya at tinanong niya sila, “Ano ang sinasabi ng karamihan kung sino ako?”
+Magsisimula ba kaming muli na purihin ang aming sarili? O kailangan ba namin, gaya ng iba, ng mga sulat ng papuri sa inyo, o mula sa inyo?
+At habang nakikipag-usap sa kanya, pumasok siya at kanyang naratnan ang maraming taong nagkakatipon.
+Sa palagay ba ninyo ay pumarito ako upang magdala ng kapayapaan sa lupa? Hindi! Sinasabi ko sa inyo, sa halip ay pagkakabaha-bahagi.
+Ngunit pagkatapos ng tatlong araw at kalahati, ang hininga ng buhay na mula sa Diyos ay pumasok sa kanila. Sila'y tumindig at dinatnan ng malaking takot ang mga nakakita sa kanila.
+Pagkatapos ay lumabas ang mga demonyo sa tao, at pumasok sa mga baboy at ang kawan ay dumaluhong sa bangin patungo sa lawa at nalunod.
+Kaya't kung sasamba ka sa akin, ang lahat ng ito ay magiging iyo.”
+At nang kanyang malaman na siya'y sakop ni Herodes, kanyang ipinadala siya kay Herodes, na nang panahong iyon ay nasa Jerusalem din.
+ngunit kung tayo'y may pagkain at damit, masiyahan na tayo sa mga ito.
+Gayon ang pagtitiwalang taglay namin sa pamamagitan ni Cristo tungo sa Diyos.
+at buhat noon ay naghihintay hanggang sa ang kanyang mga kaaway ay maging tuntungan ng kanyang mga paa.
+Sinabi niya sa kanila, “Bakit kayo natakot? Wala ba kayong pananampalataya?”
+Sapagkat inihahanda tayo nitong magaan at panandaliang kapighatian para sa walang hanggan at di-masukat na kaluwalhatian,
+Nang magugol na niyang lahat ay nagkaroon ng matinding taggutom sa lupaing iyon, at siya'y nagsimulang mangailangan.
+May mga taong dumating na may dala sa kanya na isang lalaking lumpo na buhat ng apat.
+Sapagkat sinasabi ko sa inyo na ang kasulatang ito ay kailangang matupad sa akin, ‘At ibinilang siya sa mga suwail’; sapagkat ang nasusulat tungkol sa akin ay natutupad.”
+Subalit hanggang sa araw na ito, tuwing binabasa ang kautusan ni Moises, may isang talukbong na nakatakip sa kanilang puso.
+Nang si Pablo ay tawagin, sinimulan siyang paratangan ni Tertulio, na sinasabi,
+“Ngayon, kung marinig ninyo ang kanyang tinig,
+Lahat ng mga taga-Atenas at ang mga dayuhang naninirahan doon ay walang pinaggugulan ng panahon kundi ang mag-usap o makinig ng mga bagong bagay.
+Siya'y nanunuluyan kay Simon, isang tagapagluto ng balat, na ang bahay ay nasa tabi ng dagat.”
+Isang araw ng Sabbath habang bumabagtas si Jesus sa mga triguhan, ang mga alagad niya ay pumitas ng mga uhay at pagkatapos ligisin sa kanilang mga kamay ay kinain ang mga ito.
+Subalit ipinagkaila niya ito sa harap nilang lahat, na sinasabi, “Hindi ko alam ang sinasabi mo.”
+Iniutos niya sa mga tao na umupo sa lupa.
+Sapagkat madali pa sa isang kamelyo ang pumasok sa butas ng isang karayom, kaysa sa isang taong mayaman na pumasok sa kaharian ng Diyos.”
+Kinabukasan, nang dumating sila mula sa Betania ay nagutom siya.
+si Juan na Tagapagbautismo ay dumating sa ilang at ipinangangaral ang bautismo ng pagsisisi sa ikapagpapatawad ng mga kasalanan.
+“Kahabag-habag kayo, mga eskriba at mga Fariseo, mga mapagkunwari! Sapagkat nililinis ninyo ang labas ng kopa at ng pinggan, ngunit sa loob ay punô sila ng kasakiman at kalayawan.
+“Ako ang tunay na puno ng ubas, at ang aking Ama ang tagapag-alaga.
+Ang tinuturuan ng salita ay dapat magbahagi sa nagtuturo ng lahat ng mga bagay na mabuti.
+Nang makita niya ang anghel, nasindak at natakot si Zacarias.
+[Ngunit kung hindi kayo magpapatawad, hindi rin kayo patatawarin sa inyong mga kasalanan ng inyong Ama na nasa mga langit.]”
+Narinig ito ng mga punong pari at ng mga eskriba at sila'y naghanap ng paraan kung paano nila siya mapapatay, sapagkat natatakot sila sa kanya dahil maraming tao ang namangha sa kanyang aral.
+Gayunman, dapat ibigin ng bawat isa sa inyo ang kanyang sariling asawa gaya ng kanyang sarili, at igalang ng babae ang kanyang asawa.
+Sinabi sa kanya ng mga Judio, “Wala ka pang limampung taon, at nakita mo na si Abraham?”
+Gayunma'y isinusulat ko sa inyo ang isang bagong utos na tunay sa kanya at sa inyo, sapagkat ang kadiliman ay lumilipas at ang tunay na liwanag ay tumatanglaw na.
+Sinagot sila ni Jesus, “Ang turo ko ay hindi akin, kundi sa kanya na nagsugo sa akin.
+Sinabi sa kanya ng anghel, “Magbihis ka at isuot mo ang iyong mga sandalyas.” At iyon nga ang ginawa niya. At sinabi niya sa kanya, “Ibalot mo sa iyong sarili ang iyong balabal at sumunod ka sa akin.”
+Ngunit kapag ang isang tao ay bumabaling sa Panginoon, ang talukbong ay naaalis.
+Kaya't ang magkapatid na babae ay nagbalita kay Jesus, “Panginoon, siya na iyong minamahal ay may sakit.”
+At ako'y kanyang dinalang nasa Espiritu sa isang ilang at nakita ko ang isang babae na nakasakay sa isang halimaw na pula, na punô ng mga pangalan ng kalapastanganan na may pitong ulo at sampung sungay.
+At sinabi ni Pablo, “Hindi ko alam, mga kapatid, na siya'y pinakapunong pari, sapagkat nasusulat, ‘Huwag mong pagsasalitaan ng masama ang isang pinuno ng iyong bayan.’”
+Umalis siya sa sinagoga at pumasok sa bahay ni Simon. Noon ay mataas ang lagnat ng biyenang babae ni Simon at pinakiusapan nila si Jesus para sa kanya.
+Hindi ako pumarito upang tawagin ang mga matuwid, kundi ang mga makasalanan tungo sa pagsisisi.”
+Kaya't ang mga punong pari at ang mga Fariseo ay nagpatawag ng pagpupulong at sinabi, “Ano ang gagawin natin? Ang taong ito'y gumagawa ng maraming tanda.
+Sa isang takdang araw ay isinuot ni Herodes ang damit-hari at naupo sa trono, at sa kanila'y nagtalumpati.
+Ang iba'y nahikayat sa mga bagay na sinabi niya at ang iba'y hindi naniwala.
+Sila'y may mga buntot na gaya ng sa mga alakdan at may mga pantusok; at sa kanilang mga buntot ay naroroon ang kanilang kapangyarihan upang pinsalain ang mga tao ng limang buwan.
+Hindi ba ito ang karpintero, ang anak ni Maria at kapatid nina Santiago, Jose, Judas, at Simon? Hindi ba naritong kasama natin ang kanyang mga kapatid na babae?” At sila'y natisod sa kanya.
+at kayong mga pinahihirapan ay bigyan ng kapahingahang kasama namin, sa pagkapahayag ng Panginoong Jesus mula sa langit na kasama ang kanyang mga makapangyarihang anghel,
+Tulad ng mga masunuring mga anak, huwag kayong gumaya sa masasamang pagnanasa ng inyong kamangmangan noong una.
+Ngunit mayroon ka pang ilan sa Sardis na hindi dinungisan ang kanilang mga damit; at sila'y kasama kong lalakad na nakaputi, sapagkat sila'y karapat-dapat.
+Noon, ang mga maniningil ng buwis at mga makasalanan ay lumalapit sa kanya upang makinig.
+at itatapon sila sa pugon ng apoy. Doon ay magkakaroon ng pagtangis at pagngangalit ng mga ngipin.
+Makipaglaban ka sa mabuting pakikipaglaban ng pananampalataya, panghawakan mo ang buhay na walang hanggan na dito'y tinawag ka, at ipinahayag mo ang mabuting pagpapahayag sa harapan ng maraming mga saksi.
+Akong si Pablo ay sumusulat ng pagbating ito ng aking sariling kamay. Ito ang palatandaan sa bawat sulat ko; gayon ako sumusulat.
+Wala bang natagpuang bumalik at nagbigay papuri sa Diyos, maliban sa dayuhang ito?”
+at dahil sa salita ng kanilang patotoo,
+Matuwid at tunay ang iyong mga daan,
+At siya'y binigyan nila ng alak na hinaluan ng mira, ngunit hindi niya tinanggap iyon.
+Sapagkat ang mga bagay na ito ay nangyari upang matupad ang kasulatan, “Kahit isa mang buto niya'y hindi mababali.”
+Sana'y mapagtiisan ninyo ako sa kaunting kahangalan. Subalit tunay na nagtitiis kayo sa akin!
+“Masdan ninyo, ang tabernakulo ng Diyos ay nasa mga tao.
+ayon sa pagkapili niya sa atin sa kanya bago itinatag ang sanlibutan, upang tayo'y maging banal at walang dungis sa harapan niya sa pag-ibig.
+Nagkaroon ng takot ang lahat ng nakatira sa palibot nila, at ang lahat ng mga bagay na ito ay pinag-usapan sa buong lupaing maburol ng Judea.
+Sapagkat ang lahat ng pinapatnubayan ng Espiritu ng Diyos ay sila ang mga anak ng Diyos.
+Nang gabing iyon ay lumitaw ang isang pangitain kay Pablo: may isang lalaking taga-Macedonia na nakatayo at nakikiusap sa kanya na sinasabi, “Tumawid ka patungo sa Macedonia, at tulungan mo kami.”
+Ipahayag mo ang mga bagay na ito. Mangaral ka at sumaway na may buong kapamahalaan. Huwag mong hayaang hamakin ka ng sinuman.
+Ito'y yaong naroon sa kapulungan sa ilang na kasama ang anghel na nagsalita sa kanya sa Bundok ng Sinai, at kasama ang ating mga ninuno. Tumanggap siya ng mga buháy na aral upang ibigay sa atin.
+Nang sila'y makadaong sa lupa, nakakita sila roon ng mga nagbabagang uling, at may isdang nakalagay sa ibabaw, at tinapay.
+Isang Sabbath, nang pumasok si Jesus sa bahay ng isa sa mga pinuno ng mga Fariseo upang kumain, kanilang minamatyagan siya.
+Ang Diyos na gumawa ng sanlibutan at ng lahat ng mga bagay na naririto, siya na Panginoon ng langit at ng lupa, ay hindi tumitira sa mga templong ginawa ng tao;
+Subalit sumama sa kanya ang ilang mga tao at nanampalataya. Isa sa kanila si Dionisio na taga-Areopago, at ang isang babaing ang pangalan ay Damaris at iba pang mga kasama nila.
+Binabati kayo ni Epafras, na isa sa inyo, na alipin ni Cristo Jesus, na siyang laging nagsisikap para sa inyo sa kanyang pananalangin, upang kayo'y tumayong sakdal at lubos na nakakatiyak sa lahat ng kalooban ng Diyos.
+Kaya't pagdating ko riyan, ay ipapaalala ko ang kanyang mga ginagawa, na nagsasalita ng masasamang salita laban sa amin. At hindi pa nasisiyahan sa ganito, hindi niya tinatanggap ang mga kapatid, at hinahadlangan ang mga nagnanais tumanggap sa kanila at pinapalayas sila sa iglesya.
+Sinong hindi matatakot
+Sinabi niya sa kanila, “Ako'y lubhang nalulungkot, hanggang sa kamatayan; manatili kayo rito at manatiling gising.”
+Iisa ang tagapagbigay ng kautusan at hukom, siya na may kapangyarihang magligtas at pumuksa. Kaya, sino ka na humahatol sa iyong kapwa?
+At doo'y sinalubong sila ni Jesus, na nagsasabi, “Kapayapaan ay sumainyo.” At paglapit nila sa kanya ay niyakap ang kanyang mga paa at siya'y sinamba.
+Si Tomas na tinatawag na Kambal ay nagsabi sa mga kapwa niya alagad, “Pumunta rin tayo upang mamatay na kasama niya.”
+na aming nalalaman na ang bumuhay sa Panginoong Jesus ay siya ring bubuhay sa amin na kasama ni Jesus, at dadalhin kaming kasama ninyo sa kanyang harapan.
+Nagpapasalamat ako sa Diyos, na aking pinaglilingkuran na may malinis na budhi gaya ng aking mga ninuno, kapag lagi kitang naaalala sa aking mga panalangin gabi't araw.
+Sumagot siya at sinabi sa kanila, “Sapagkat sa inyo ipinagkaloob na malaman ang mga hiwaga ng kaharian ng langit, ngunit hindi ipinagkaloob sa kanila.
+Sapagkat sinabi ni Juan sa kanya, “Hindi ipinahihintulot sa iyo na angkinin mo siya.”
+Nang matapos ni Jesus ang mga pananalitang ito, umalis siya sa Galilea at nagtungo sa mga nasasakupan ng Judea sa dakong ibayo ng Jordan.
+Sapagkat ang lahat ng mga pangako ng Diyos sa kanya ay “Oo.” Kaya't sa pamamagitan niya ay aming sinasambit ang “Amen,” sa ikaluluwalhati ng Diyos.
+Samantala, ang labing-isang alagad ay pumunta sa Galilea, sa bundok na itinuro sa kanila ni Jesus.
+at nilait nila ang Diyos ng langit dahil sa kanilang mga hirap at sa kanilang mga sugat; at hindi sila nagsisi sa kanilang mga gawa.
+Makaraan ang walong araw, dumating ang panahon upang tuliin ang bata. Tinawag siyang Jesus, ang pangalang ibinigay ng anghel bago siya ipinaglihi sa sinapupunan.
+Ama, luwalhatiin mo ang iyong pangalan.” At dumating ang isang tinig mula sa langit, “Niluwalhati ko na, at muli kong luluwalhatiin.”
+Ako ang puno ng ubas, kayo ang mga sanga. Ang nananatili sa akin at ako'y sa kanya ay siyang nagbubunga ng marami. Sapagkat kung kayo'y hiwalay sa akin ay wala kayong magagawa.
+Pagkatapos ng mga bagay na ito, si Jesus at ang kanyang mga alagad ay pumunta sa lupain ng Judea. Doon ay nanatili siyang kasama nila at nagbabautismo.
+Ngayon ay nalalaman nila na ang lahat ng mga bagay na ibinigay mo sa akin ay mula sa iyo;
+Hindi ang pumapasok sa bibig ang nagpaparumi sa tao, kundi ang lumalabas sa bibig ang nagpaparumi.”
+Hindi dahil sa kami ay walang karapatan, kundi upang maibigay namin ang aming mga sarili sa inyo bilang huwaran na dapat tularan.
+Huwag kayong padaya kanino man sa anumang paraan, sapagkat ito'y hindi darating malibang maunang maganap ang pagtalikod, at mahayag ang taong makasalanan, ang anak ng kapahamakan.
+ni hindi rin naman siya pinaglilingkuran ng mga kamay ng tao, na para bang mayroon siyang kailangan, yamang siya ang nagbibigay sa lahat ng tao ng buhay at ng hininga, at ng lahat ng bagay na ito.
+at hindi para sa bansa lamang, kundi upang tipunin niya sa iisa ang mga anak ng Diyos na nagkahiwa-hiwalay.
+Hinampas nila ang kanyang ulo ng isang tungkod, dinuraan siya at lumuhod sa harapan niya.
+Dumating din ang mga maniningil ng buwis upang magpabautismo at sinabi nila sa kanya, “Guro, ano ang dapat naming gawin?”
+At sumagot si Jesus sa kanila, “Magkaroon kayo ng pananampalataya sa Diyos.
+na pinawi ang sulat-kamay na laban sa atin na nasa mga tuntuning salungat sa atin, at ito'y kanyang inalis at ipinako sa krus.
+Tinanong siya ng maraming tao, “Ano ngayon ang dapat naming gawin?”
+At humayo sila, at natagpuan ito ayon sa sinabi niya sa kanila, at inihanda nila ang Paskuwa.
+At sinabi niya, “Mag-ingat kayo na hindi kayo mailigaw, sapagkat marami ang darating sa aking pangalan, na magsasabi, ‘Ako siya!’ at, ‘Malapit na ang panahon!’ Huwag kayong sumunod sa kanila.
+sapagkat kahit kilala nila ang Diyos, siya ay hindi nila niluwalhati bilang Diyos, ni pinasalamatan man, kundi naging walang kabuluhan sa kanilang mga pangangatuwiran at ang mga puso nilang walang katuturan ay nagdilim.
+At nang siya'y maipako nila sa krus, pinaghati-hatian nila ang kanyang mga damit sa pamamagitan ng palabunutan.
+Ibinangon ng Diyos ng ating mga ninuno si Jesus, na inyong pinatay nang ibitin siya sa isang punungkahoy.
+Gaya ng nasusulat,
+Pagkatapos ay nagkaroon ng malakas na sigawan, at tumindig ang ilan sa mga eskriba na kakampi ng mga Fariseo, at mainitang nagtalo na sinasabi, “Wala kaming makitang anumang kasalanan sa taong ito. Ano nga kung siya'y kinausap man ng isang espiritu, o ng isang anghel?”
+Nagbulung-bulungan ang mga Fariseo at ang kanilang mga eskriba laban sa kanyang mga alagad na sinasabi, “Bakit kayo'y kumakain at umiinom na kasalo ng mga maniningil ng buwis at ng mga makasalanan?”
+Kaya't nang sabihin niya, “Sa ibang tao,” ay sinabi sa kanya ni Jesus, “Kung gayo'y hindi na pinagbabayad ang mga anak.
+Ako'y natatakot na nagpagal ako sa inyo nang walang kabuluhan.
+Sa mga banal at tapat na mga kapatid kay Cristo na nasa Colosas: Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos na ating Ama.
+At sa alinmang bayan kayo pumasok at kayo'y kanilang tanggapin ay kainin ninyo ang anumang inihahain sa inyo.
+At hindi lamang iyon, kundi siya ay hinirang ng mga iglesya na maglakbay na kasama namin ukol sa biyayang ito na aming pinangangasiwaan, sa ikaluluwalhati ng Panginoon, at upang ipakita ang aming pagnanais.
+Ngunit ang kapatid na hamak ay hayaang magmalaki sa kanyang pagkakataas,
+Narito ang panawagan para sa pagtitiis ng mga banal, sa mga tumutupad sa mga utos ng Diyos, at humahawak ng matatag sa pananampalataya ni Jesus.
+Ngunit si Timoteo ay dumating na sa amin mula sa inyo, at nagdala sa amin ng magandang balita tungkol sa inyong pananampalataya at pag-ibig. Sinabi rin niya sa amin na lagi ninyo kaming naaalala at nananabik na makita kami na gaya naman namin na nananabik na makita kayo.
+Itinuturing ko na ang pagtitiis sa panahong kasalukuyan ay hindi karapat-dapat maihambing sa kaluwalhatiang mahahayag sa atin.
+Ngayon, ako'y nagagalak hindi sapagkat kayo'y nalungkot, kundi sapagkat kayo'y nalungkot tungo sa pagsisisi, sapagkat kayo'y pinalumbay nang naaayon sa Diyos, upang kayo'y huwag magdusa ng kalugihan sa pamamagitan namin.
+Marahan kaming naglayag nang maraming araw at may kahirapan kaming nakarating sa tapat ng Cnido. Nang hindi kami pinahintulutan ng hanging makasulong pa, naglayag kami na nanganganlong sa Creta, sa tapat ng Salmone.
+At tayong lahat, na walang talukbong ang mukha, na nakikita ang kaluwalhatian ng Panginoon gaya ng sa isang salamin, ay nababago sa gayunding larawan, mula sa kaluwalhatian tungo sa kaluwalhatian, sapagkat ito ay mula sa Panginoon na siyang Espiritu.
+Sa alinmang bayan o nayon kayo makapasok, hanapin ninyo kung sino roon ang karapat-dapat; at makitira kayo sa kanya hanggang sa inyong pag-alis.
+Sapagkat ang bawat mayroon ay bibigyan at siya'y magkakaroon ng kasaganaan, ngunit ang wala, pati ang nasa kanya ay kukunin.
+Iniiwasan namin ito upang huwag kaming sisihin tungkol sa kasaganaang ito na aming pinangangasiwaan;
+tuwing hahatulan tayo ng ating puso; sapagkat ang Diyos ay higit na dakila kaysa ating puso, at nalalaman niya ang lahat ng mga bagay.
+O kaya'y hayaan ang mga tao ring ito na magsabi kung anong masamang gawa ang natagpuan nila nang ako'y tumayo sa harapan ng Sanhedrin,
+At sumagot siya, “Katotohanang sinasabi ko sa iyo, ngayon ikaw ay makakasama ko sa Paraiso.”
+Nang maitaas na ito, gumawa sila ng paraan upang matalian ng lubid ang barko. Dahil sa takot na baka sila mapapadpad sa Sirte, ibinaba nila ang mga layag at sa gayo'y naanod sila.
+“Dalawang lalaki ang pumunta sa templo upang manalangin. Ang isa'y Fariseo, at ang isa'y maniningil ng buwis.
+Sinabi niya, “Jesus, alalahanin mo ako, pagdating mo sa iyong kaharian.”
+Sapagkat,
+Kayo'y naghahangad, at kayo'y wala; kayo'y pumapatay at kayo'y nag-iimbot at kayo'y hindi nagkakamit. Kayo'y nag-aaway at nagdidigmaan. Kayo'y wala, sapagkat hindi kayo humihingi.
+“Sa panahong kanais-nais ay pinakinggan kita,
+“Ang aking pamumuhay mula sa aking pagkabata, na simula pa'y ginugol ko na sa aking bansa at sa Jerusalem, ay nalalaman ng lahat ng mga Judio.
+Ang inyong pananalita nawa'y laging may biyaya, na may timplang asin, upang inyong malaman kung paano ninyo dapat sagutin ang bawat isa.
+Ngunit pagtitig sa kanya ni Pedro, kasama si Juan, ay sinabi, “Tingnan mo kami.”
+Gayundin ang Sodoma at Gomorra, at ang mga lunsod sa palibot ng mga ito, na gumawa naman ng pakikiapid at nalulong sa kakaibang laman, ay inilagay bilang halimbawa, na nagdaranas ng kaparusahan sa apoy na walang hanggan.
+Ano sa palagay mo, alin sa tatlong ito, ang naging kapwa tao sa nahulog sa kamay ng mga tulisan?”
+At pagkatapos na mapalaya kayo sa kasalanan ay naging mga alipin kayo sa paggawa ng matuwid.
+Sinabi sa kanya ni Pilato, “Ano ang katotohanan?”
+Kanilang sinabi, “Hindi ba ito'y si Jesus, ang anak ni Jose, na kilala natin ang kanyang ama at ina? Paano niya nasasabi, ‘Ako'y bumabang galing sa langit?’”
+Sabihan mo rin ang matatandang babae na maging magalang sa kanilang asal, hindi mapanirang-puri, ni paalipin man sa alak; dapat silang magturo ng kabutihan,
+Sapagkat kung saan nagkakatipon ang dalawa o tatlo sa aking pangalan, ay naroroon ako sa gitna nila.”
+Pinapakinggan ng aking mga tupa ang aking tinig, at sila'y aking kilala, at sila'y sumusunod sa akin.
+Yamang ang kautusan ay anino lamang ng mabubuting bagay na darating, at hindi ang tunay na larawan ng mga bagay na ito, kailanman ay hindi nito mapapasakdal ang mga lumalapit sa pamamagitan ng gayunding mga alay na laging inihahandog taun-taon.
+At si Judas na sa kanya'y nagkanulo, ay sumagot at nagsabi, “Hindi ako iyon, Rabi?” Sinabi niya sa kanya, “Ikaw ang nagsabi.”
+At may isang binata na ang pangalan ay Eutico na nakaupo sa bintana. Nakatulog siya nang mahimbing samantalang si Pablo ay nagsasalita nang mahaba; at dahil natalo ng antok ay nahulog siya mula sa ikatlong palapag, at siya'y patay na binuhat.
+Ipakita ninyo sa akin ang salaping pambuwis.” At dinala sa kanya ang isang denario.
+“Narito, ipinapadala ko ang aking sugo sa iyong unahan,
+Sapagkat si Herodes mismo ang nagsugo sa mga kawal na dumakip kay Juan, at nagpagapos sa kanya sa bilangguan dahil kay Herodias, na asawa ni Felipe na kanyang kapatid; sapagkat pinakasalan siya ni Herodes.
+Noon ay sumama sa kanya ang napakaraming tao. Siya'y humarap sa kanila at sa kanila'y sinabi,
+At aking sinabi, ‘Panginoon, sila mismo ay nakaalam na sa bawat sinagoga ay ibinilanggo ko at hinampas ang mga nanampalataya sa iyo.
+Ang bawat sanga sa akin na hindi nagbubunga ay inaalis niya; at ang bawat sanga na nagbubunga ay nililinis niya upang lalong magbunga.
+at sa mga nakaupo sa lupain at lilim ng kamatayan,
+At sinunggaban niya ang dragon, ang matandang ahas, na siyang Diyablo at Satanas, at ginapos siya ng isang libong taon,
+Sapagkat ang buhay ay higit kaysa pagkain at ang katawan ay higit kaysa damit.
+Ang hiwagang ito ay dakila, subalit ako ay nagsasalita tungkol kay Cristo at sa iglesya.
+Nang kanyang mabatid ito, pumunta siya sa bahay ni Maria, ang ina ni Juan na tinatawag na Marcos, na kinaroroonan ng maraming nagkakatipon at nananalangin.
+Sila'y nagsisigaw at nagsabi, “Jesus, Panginoon, maawa ka sa amin.”
+ni Melea, ni Mena, ni Matata, ni Natan, ni David,
+Hindi pa ba ninyo nalalaman na ang anumang pumapasok sa bibig ay tumutuloy sa tiyan, at inilalabas sa daanan ng dumi?
+Ang buong bilang ng mga sumampalataya ay may pagkakaisa sa puso at kaluluwa; sinuma'y walang nagsabing kanya ang anuman sa kanyang mga ari-arian, kundi lahat nilang pag-aari ay para sa lahat.
+Kaya't kanilang inutusan sila na umalis sa kapulungan, samantalang pinag-uusapan pa nila ang pangyayari.
+Sila'y kumain at nabusog. At may lumabis na mga piraso, pitong kaing na puno.
+Isinalaysay niya ang talinghagang ito: “Ang isang tao ay may isang puno ng igos na nakatanim sa kanyang ubasan. Siya'y pumunta upang maghanap ng bunga roon, subalit walang nakita.
+Kapag nanggaling sila sa palengke, hindi sila kumakain malibang nalinis nila ang kanilang mga sarili. At marami pang ibang bagay ang kanilang sinusunod gaya ng mga paghuhugas ng mga tasa, mga pitsel, at mga lalagyang tanso.)
+Ngunit, yamang kayo'y sumasagana sa lahat ng mga bagay, sa pananampalataya, sa pananalita, sa kaalaman, sa buong kasipagan, at sa inyong pag-ibig sa amin, sikapin din ninyo na kayo ay sumagana sa biyayang ito.
+Oo, kapatid, hayaan mo nang magkaroon ako ng kapakinabangan na ito mula sa iyo sa Panginoon! Sariwain mo ang aking puso kay Cristo.
+Subalit darating ang mga araw kapag kinuha sa kanila ang lalaking ikakasal, saka pa lamang sila mag-aayuno sa mga araw na iyon.”
+na sinasabi, “Naganap na ang panahon at malapit na ang kaharian ng Diyos: kayo'y magsisi at manampalataya sa ebanghelyo.”
+Gayon niya ipinagkaloob sa atin ang kanyang mahahalaga at mga dakilang pangako upang sa pamamagitan ng mga ito ay makatakas kayo sa kabulukang nasa sanlibutan dahil sa masamang pagnanasa, at maging kabahagi kayo sa likas ng Diyos.
+Batiin ninyo si Urbano na aming kamanggagawa kay Cristo, at si Estaquis na minamahal ko.
+May lumapit sa kanyang ilang Saduceo, na nagsasabing walang muling pagkabuhay.
+At sinabi niya sa akin, “Ang mga salitang ito'y tapat at tunay. Ang Panginoon, ang Diyos ng mga espiritu ng mga propeta, ay nagsugo ng kanyang anghel upang ipakita sa kanyang mga alipin ang mga bagay na kailangang mangyari kaagad.
+ang hiwaga na nakatago sa lahat ng mga panahon at mga salinlahi, ngunit ngayo'y ipinahayag sa kanyang mga banal.
+Tunay na sa ganitong kalagayan, ang dating may kaluwalhatian ay nawalan ng kanyang kaluwalhatian, dahil sa kaluwalhatiang nakahihigit dito.
+na sa kanya ay mayroon tayong katubusan, na siyang kapatawaran ng mga kasalanan.
+sapagkat sila'y hindi nagpatuloy sa aking tipan,
+At sila'y muling nagsigawan, “Ipako siya sa krus.”
+“Sa anghel ng iglesya sa Efeso ay isulat mo: Ang mga bagay na ito ay sinasabi ng may hawak ng pitong bituin sa kanyang kanang kamay, na lumalakad sa gitna ng pitong gintong ilawan.
+“Ako'y malapit nang dumating at dala ko ang aking gantimpala, upang gantihan ang bawat isa ayon sa kanyang ginawa.
+Sa mga ito ay nakahiga ang maraming maysakit, mga bulag, mga pilay, at mga lumpo.
+Sapagkat siya'y ibinilang sa atin at siya'y tumanggap ng kanyang bahagi sa paglilingkod na ito.”
+Mga alipin, magpasakop kayo nang may buong paggalang sa inyong mga amo; hindi lamang sa mabubuti at mahihinahon, kundi gayundin sa mababagsik.
+Bumaba siya na kasama nila at tumayo sa isang patag na lugar. Naroon ang marami sa kanyang mga alagad at ang napakaraming tao buhat sa Judea at sa Jerusalem at sa baybayin ng Tiro at Sidon, na pumaroon upang makinig sa kanya at mapagaling sa kanilang mga sakit;
+Pagsikapan ninyong magkaroon ng kapayapaan sa lahat at ng kabanalan na kung wala nito'y walang sinumang makakakita sa Panginoon.
+sa anumang paraan ay hindi ka pinakamaliit sa mga pangunahing bayan ng Juda;
+At ito ang mensahe na aming narinig sa kanya at sa inyo'y aming ipinahahayag, na ang Diyos ay liwanag, at sa kanya'y walang anumang kadiliman.
+Subalit kung sabihin ng alipin iyon sa kanyang sarili, ‘Matatagalan pa ang pagdating ng aking panginoon;’ at pinasimulan niyang bugbugin ang mga aliping lalaki at mga aliping babae; at siya'y kumain, uminom, at naglasing,
+Mas madali pa para sa isang kamelyo ang dumaan sa butas ng isang karayom kaysa isang mayaman ang pumasok sa kaharian ng Diyos.”
+“Kung ang sinuman ay lumalapit sa akin at hindi napopoot sa kanyang sariling ama, ina, asawang babae, mga anak, mga kapatid na lalaki, at mga kapatid na babae, at maging sa kanyang sariling buhay ay hindi maaaring maging alagad ko.
+Kanyang isinalaysay sa amin kung paanong nakita niya ang anghel na nakatindig sa kanyang bahay, at nagsasabi, ‘Magsugo ka sa Joppa at ipatawag mo si Simon, na tinatawag na Pedro.
+Nang iwan niya ang maraming tao at pumasok siya sa bahay, tinanong siya ng kanyang mga alagad tungkol sa talinghaga.
+Hindi dahil sa mayroong nakakita sa Ama maliban sa kanya na mula sa Diyos. Siya ang nakakita sa Ama.
+Huwag ninyong tularan ang sanlibutang ito; kundi magbago kayo sa pamamagitan ng pagbabago ng inyong pag-iisip, upang mapatunayan ninyo kung alin ang mabuti, kasiya-siya, at lubos na kalooban ng Diyos.
+Nais ni Pablo na pumunta sa mga tao ngunit hindi siya pinayagan ng mga alagad.
+“Kayo ang asin ng lupa; ngunit kung ang asin ay tumabang, paano maibabalik ang alat nito? Wala na itong kabuluhan, maliban sa itapon sa labas at tapakan ng mga tao.
+Sinasabi ko nga, itinakuwil ba ng Diyos ang kanyang bayan? Huwag nawang mangyari. Sapagkat ako man ay Israelita, mula sa binhi ni Abraham, mula sa lipi ni Benjamin.
+kung paanong pumasok siya sa bahay ng Diyos, at kumain siya ng tinapay na handog, na hindi ipinahihintulot na kainin niya o ng mga kasamahan niya, kundi ng mga pari lamang?
+At sila'y iyong ginawang isang kaharian at mga pari para sa aming Diyos;
+Maging si Cristo man ay hindi lumuwalhati sa kanyang sarili upang maging pinakapunong pari, kundi itinalaga ng nagsabi sa kanya,
+Dinala nila sa kanya ang isang lumpo na nakaratay sa isang higaan. Nang makita ni Jesus ang kanilang pananampalataya, sinabi niya sa lumpo, “Anak, lakasan mo ang iyong loob, pinatatawad na ang iyong mga kasalanan.”
+“Aleluia!
+Kaya't mula ngayon ay nakalaan na sa akin ang putong ng katuwiran, na ibibigay sa akin ng Panginoon na tapat na hukom sa araw na iyon, at hindi lamang sa akin, kundi sa lahat din naman ng mga naghahangad sa kanyang pagpapakita.
+At gaya ng sinabi nang una ni Isaias,
+At pagkakuha niya sa limang tinapay at sa dalawang isda, tumingala siya sa langit, pinagpala, at pinagputul-putol ang mga ito. Ibinigay niya ang mga ito sa mga alagad upang ihain sa napakaraming tao.
+Nang matapos na silang magsalita ay sumagot si Santiago, “Mga kapatid, pakinggan ninyo ako.
+at pagkatapos ay hindi na ninyo siya pinahihintulutang gumawa ng anuman para sa kanyang ama o ina,
+Ang nahulog naman sa tinikan ay ang mga nakinig subalit sa kanilang pagpapatuloy ay sinakal sila ng mga alalahanin, mga kayamanan, at mga kalayawan sa buhay at ang kanilang bunga ay hindi gumulang.
+Huwag kayong magpakalasing sa alak, na ito ay labis na kahalayan, kundi mapuno kayo ng Espiritu.
+At inihagis niya sa templo ang mga piraso ng pilak at siya'y umalis. Humayo siya at nagbigti.
+Ngunit sa mga duwag, sa mga hindi nananampalataya, mga karumaldumal, mga mamamatay-tao, mga mapakiapid, mga mangkukulam, mga sumasamba sa mga diyus-diyosan, at sa lahat na mga sinungaling, ang kanilang bahagi ay sa lawa na nagliliyab sa apoy at asupre, na siyang ikalawang kamatayan.”
+At sumagot ang buong bayan at nagsabi, “Pananagutan namin at ng aming mga anak ang kanyang dugo.”
+sapagkat inyong dinaig ang masama.
+Yamang marami ang nagsikap mag-ayos ng isang kasaysayan tungkol sa mga bagay na naganap sa gitna natin,
+Kaya't agad kitang ipinasundo, at mabuti ang ginawa mo na naparito ka. Ngayon kaming lahat ay naririto sa harapan ng Diyos, upang pakinggan ang lahat ng mga bagay na ipinag-utos sa iyo ng Panginoon.”
+Kaya't sinabi ni Jesus kay Pedro, “Ibalik mo ang iyong tabak sa kaluban. Hindi ko ba iinuman ang kopang ibinigay sa akin ng Ama?”
+“Ngayon, kung marinig ninyo ang kanyang tinig,
+Sama-samang itinalaga ng lahat ng mga ito ang kanilang sarili para sa pananalangin, kasama ang mga babae at si Maria na ina ni Jesus, at ang kanyang mga kapatid.
+Ang inyong mga kayamanan ay bulok na, at ang inyong mga damit ay kinakain na ng bukbok.
+Ilalagay ko sa kanya ang aking Espiritu,
+Pagkatapos ay pinasimulan niyang ituro sa kanila na ang Anak ng Tao ay kinakailangang magdusa ng maraming bagay at itakuwil ng matatanda, ng mga punong pari, at ng mga eskriba, at patayin at pagkaraan ng tatlong araw ay muling mabubuhay.
+Kaya't kunin ninyo ang buong baluti ng Diyos, upang kayo'y makatagal sa araw na masama, at kung magawa na ninyo ang lahat ay tumayong matatag.
+at nagsumamo sa kanya, na sinasabi, “Ang aking munting anak na babae ay naghihingalo. Pumaroon ka at ipatong mo ang iyong mga kamay sa kanya upang siya'y gumaling at mabuhay.”
+At hindi sila nakasagot sa mga bagay na ito.
+Magkakaroon ng hirap at pighati sa bawat kaluluwa ng tao na gumagawa ng kasamaan, una'y sa Judio at gayundin sa Griyego;
+“Sabihin ninyo sa anak na babae ng Zion,
+mga Creteo at mga Arabe, ay naririnig nating nagsasalita sa ating mga wika tungkol sa mga makapangyarihang gawa ng Diyos.”
+Subalit hindi siya sumagot sa kanya kahit isang salita man lamang, na lubhang ikinamangha ng gobernador.
+at sinuman sa inyo na nagnanais na maging una ay kailangang maging alipin ninyo,
+At ito ang patotoo, na tayo'y binigyan ng Diyos ng buhay na walang hanggan at ang buhay na ito ay nasa kanyang Anak.
+At nakita ko ang isa pang tanda sa langit, dakila at kamanghamangha: pitong anghel na may pitong salot, na siyang mga panghuli, sapagkat sa mga ito'y matatapos ang poot ng Diyos.
+subalit dahil ginagambala ako ng balong ito, bibigyan ko siya ng katarungan. Kung hindi ay magsasawa ako sa kanyang patuloy na pagpunta rito.’”
+upang ang Diyos ng ating Panginoong Jesu-Cristo, ang Ama ng kaluwalhatian, ay magkaloob sa inyo ng espiritu ng karunungan at ng pahayag sa isang ganap na pagkakilala sa kanya,
+“Bigkisan ninyo ang inyong mga baywang at paliwanagin ninyo ang inyong mga ilawan.
+ayon sa iyong salita,
+Sinabi niya sa kanila, “Ganyan ang nasusulat, na kailangang magdusa ang Cristo at muling mabuhay mula sa mga patay sa ikatlong araw;
+Ang sumasampalataya sa akin, gaya ng sinasabi ng kasulatan, ‘Mula sa kanyang puso ay dadaloy ang mga ilog ng tubig na buháy.’”
+At sinabi niya, “Walang sinuman, Panginoon.” Sinabi ni Jesus, “Hindi rin kita hinahatulan. Humayo ka na at mula ngayo'y huwag ka nang magkasala.” ]
+Kaya't kami ay mga sugo para kay Cristo, yamang ang Diyos ay nananawagan sa pamamagitan namin. Kami'y nananawagan sa pangalan ni Cristo, na kayo'y makipagkasundo sa Diyos.
+Kanyang inilabas sila hanggang sa tapat ng Betania at nang maitaas niya ang kanyang mga kamay, sila'y kanyang binasbasan.
+Ang mga bagay na ito'y sinabi ko sa inyo, samantalang ako'y nananatiling kasama pa ninyo.
+Nang sila'y papalabas na sa Jerico, sumunod sa kanya ang napakaraming tao.
+Sa paglabas niya sa templo, sinabi sa kanya ng isa sa kanyang mga alagad, “Guro, tingnan mo! Pagkalalaking mga bato, at pagkalalaking mga gusali!”
+At kanyang inutusan sila na mabautismuhan sa pangalan ni Jesu-Cristo. Pagkatapos, siya'y pinakiusapan nilang manatili ng mga ilang araw.
+Samantala, may isang babaing labindalawang taon nang dinudugo ang lumapit sa likuran niya at hinipo nito ang laylayan ng kanyang damit;
+Doo'y natagpuan niya ang isang lalaki na ang pangalan ay Aeneas na lumpo at walong taon nang nakaratay.
+Marami akong isusulat sa iyo, ngunit hindi ko ibig isulat sa iyo sa pamamagitan ng tinta at panulat;
+“Dakila at kamanghamangha ang iyong mga gawa,
+Ngunit kung ang sinuman ay hindi kumakalinga sa kanyang kamag-anak, lalung-lalo na sa kanyang sariling sambahayan, tinanggihan niya ang pananampalataya at siya'y masahol pa sa hindi mananampalataya.
+Ngunit dumating ang isang pagkakataon na si Herodes sa kanyang kaarawan ay nagbigay ng isang salu-salo para sa kanyang mga mahistrado, mga pinuno ng hukbo at mga pangunahing tao sa Galilea.
+Sinasadya nilang hindi pansinin ang katotohanang ito, na sa pamamagitan ng salita ng Diyos ay nagkaroon ng langit nang unang panahon at inanyuan ang lupa mula sa tubig at sa pamamagitan ng tubig,
+Sapagkat ako man ay taong inilagay sa ilalim ng kapangyarihan at may mga kawal na nasasakupan ko. At sinasabi ko sa isa, ‘Humayo ka’ at siya'y humahayo; at sa isa naman, ‘Halika,’ at siya'y lumalapit; at sa aking alipin, ‘Gawin mo ito,’ at ito'y kanyang ginagawa.”
+Si Pedro at ang kanyang mga kasamahan ay nakatulog nang mahimbing, subalit nang sila'y nagising ay nakita nila ang kanyang kaluwalhatian at ang dalawang lalaking nakatayong kasama niya.
+“Nang siya'y apatnapung taong gulang na, naisipan niyang dalawin ang kanyang mga kapatid, na mga anak ni Israel.
+Hindi nila ako natagpuang nakikipagtalo sa kanino o kaya'y nanggugulo sa maraming tao sa templo man o sa mga sinagoga, ni sa lunsod,
+Sinabi ng pinuno sa kanya, “Ginoo, pumunta ka na bago mamatay ang aking anak.”
+Ako at ang Ama ay iisa.”
+Nagsimula silang ipagsakdal siya na sinasabi, “Natagpuan namin ang taong ito na inililigaw ang aming bansa, at pinagbabawalan kaming magbuwis kay Cesar, at sinasabi na siya mismo ang Cristo, ang hari.”
+O hindi ba ninyo nalalaman na tayong lahat na mga nabautismuhan kay Cristo Jesus ay mga nabautismuhan tungo sa kanyang kamatayan?
+Sinabi nila, “Ano ang ibig niyang sabihin na, ‘Sandali na lamang?’ Hindi natin alam kung ano ang sinasabi niya.”
+Ang mga punong pari at ang mga eskriba ay nanatili, at marahas siyang pinagbibintangan.
+ngunit kapag ito'y naihasik ay tumutubo, nagiging mas malaki kaysa lahat ng mga halaman, at nagsasanga ng malalaki, anupa't ang mga ibon sa himpapawid ay nakakagawa ng mga pugad sa lilim nito.”
+subalit ang lahat ng mga bagay na inilantad sa pamamagitan ng liwanag ay nakikita,
+At sinabi ng panginoon sa alipin, ‘Lumabas ka sa mga daan at sa mga bakuran, at pilitin mo silang pumasok upang mapuno ang aking bahay.’
+Nang masabi niya ang mga bagay na ito, nagpatuloy siya na umakyat tungo sa Jerusalem.
+Ito ang mga nasa tabi ng daan na nahasikan ng salita. Nang kanilang mapakinggan ito, agad dumating si Satanas at inagaw ang salitang inihasik sa kanila.
+Mga ama, huwag ninyong ibunsod sa galit ang inyong mga anak, baka manghina ang loob nila.
+Ngunit iwasan mo ang mga pagtatalo, at ang mga pagsasalaysay ng salinlahi, at ang mga alitan at pag-aaway tungkol sa kautusan, sapagkat ang mga ito ay walang pakinabang at walang katuturan.
+sapagkat tayo ay mga bahagi ng kanyang katawan.
+Alin sa mga propeta ang hindi inusig ng inyong mga ninuno? Kanilang pinatay ang mga nagpahayag noong una tungkol sa pagdating ng Matuwid, at ngayon kayo'y naging kanyang mga tagapagkanulo at mamamatay-tao.
+Bakit nangyari ito sa akin, na ako ay dapat dalawin ng ina ng aking Panginoon?
+Ang hindi panig sa akin ay laban sa akin, at ang hindi ko kasamang nagtitipon ay nagkakalat.
+Sapagkat sinasabi ng kasulatan, “Ang bawat sumasampalataya sa kanya ay hindi malalagay sa kahihiyan.”
+samantalang sa kanila na makasarili at hindi sumusunod sa katotohanan, kundi bagkus ay sumusunod sa kasamaan ay para sa kanila ang poot at galit.
+Sinabi ni Jesus sa kanila, “Kung kayo'y mga bulag, hindi kayo magkakaroon ng kasalanan. Subalit ngayong sinasabi ninyo, ‘Kami'y nakakakita,’ nananatili ang inyong kasalanan.”
+si Juana na asawa ni Chuza, na katiwala ni Herodes, at si Susana at marami pang iba na nagkaloob sa kanila mula sa kanilang mga ari-arian.
+Kumain silang lahat at nabusog. Kinuha nila ang mga lumabis na pinagputul-putol na tinapay, at napuno ang labindalawang kaing.
+Ngunit nang siya'y kanilang magapos na ng mga panaling balat, ay sinabi ni Pablo sa senturiong nakatayo sa malapit, “Matuwid ba sa inyo na hagupitin ang isang taong mamamayan ng Roma, na hindi pa nahahatulan?”
+“At ang kanilang mga kasalanan at mga kasamaan ay hindi ko na aalalahanin pa.”
+Ano sa palagay ninyo?” Sumagot sila at sinabi, “Karapat-dapat siya sa kamatayan.”
+Sa silangan ay tatlong pintuan, sa hilaga ay tatlong pintuan, sa timog ay tatlong pintuan, at sa kanluran ay tatlong pintuan.
+At hindi nila nagawang hulihin siya sa kanyang salita sa harap ng mga taong-bayan. At sa pagkamangha nila sa kanyang sagot sila ay tumahimik.
+Ano nga ang ating sasabihin? Ang mga Hentil na hindi nagsumikap sa katuwiran ay nagkamit ng katuwiran, samakatuwid ay katuwiran sa pamamagitan ng pananampalataya;
+“Isang Ananias, na lalaking masipag sa kabanalan ayon sa kautusan, at may magandang patotoo tungkol sa kanya ang mga Judio na naninirahan doon,
+ako'y magiging kanilang Diyos,
+At upang malaman din ninyo ang mga bagay tungkol sa akin at ang aking kalagayan, si Tiquico ang siyang magsasalaysay sa inyo ng lahat ng mga bagay. Siya na aking minamahal na kapatid at tapat na lingkod sa Panginoon.
+Ngunit nang ito ay marinig ni Jesus ay sinabi niya, “Ang sakit na ito'y hindi tungo sa kamatayan, kundi para sa ikaluluwalhati ng Diyos, upang ang Anak ng Diyos ay luwalhatiin sa pamamagitan nito.”
+At ating isaalang-alang kung papaano gigisingin ang isa't isa sa pag-ibig at sa mabubuting gawa,
+Ngunit muling nagkaila siya. At pagkaraan ng ilang sandali, sinabing muli ng mga nakatayo roon kay Pedro, “Tunay na ikaw ay isa sa kanila, sapagkat ikaw ay taga-Galilea.”
+Ngayo'y patnubayan nawa ng ating Diyos at Ama at ng ating Panginoong Jesus ang aming paglalakbay patungo sa inyo.
+at naging masunurin hanggang sa kamatayan,
+Sa pamamaybay namin dito na may kahirapan ay nakarating kami sa isang lugar na tinatawag na Mabubuting Daungan, malapit sa lunsod ng Lasea.
+At ito ay aming ginagawa upang huwag kaming malamangan ni Satanas, sapagkat kami ay hindi mangmang tungkol sa kanyang mga balak.
+At sumagot siya sa kanila, “Ano ba ang iniutos sa inyo ni Moises?”
+At tinanong niya sila, “Ngunit, sino ako ayon sa sinasabi ninyo?” Sumagot si Pedro at sinabi sa kanya, “Ikaw ang Cristo.”
+Nang buksan niya ang ikaapat na tatak ay narinig ko ang tinig ng ikaapat na nilalang na buháy na nagsasabi, “Halika!”
+Pakaingatan ninyo na baka ang sinuma'y mahulog mula sa biyaya ng Diyos; baka may ilang ugat ng kapaitan ang sumibol at bumagabag sa inyo at mahawa nito ang marami.
+Sumagot si Jesus at sinabi sa kanila, “Tatanungin ko rin kayo ng isang tanong, at kung sasabihin ninyo sa akin ang sagot ay sasabihin ko naman sa inyo kung sa anong awtoridad ginagawa ko ang mga bagay na ito.
+Ako'y may pag-asa sa Diyos, na siya rin namang inaasahan nila, na magkakaroon ng muling pagkabuhay ng mga matuwid at ng mga hindi matuwid.
+Nang malapit na siya sa Jerico, isang bulag ang nakaupo sa tabi ng daan na namamalimos.
+Ngunit hindi nila ito pinansin, at sila'y humayo, ang isa'y sa kanyang sariling bukid, ang isa'y sa kanyang pangangalakal.
+Gaano pa ngang higit na mahalaga ang isang tao kaysa isang tupa! Kaya't matuwid na gumawa ng mabuti sa araw ng Sabbath.”
+Malalim na ang gabi, at ang araw ay malapit na. Kaya't iwaksi na natin ang mga gawa ng kadiliman, at ating isakbat ang mga sandata ng liwanag.
+At ako'y nanguna sa Judaismo nang higit kaysa marami sa mga kasing-gulang ko sa aking mga kababayan, higit na masigasig ako sa mga tradisyon ng aking mga ninuno.
+Sumagot ang maraming tao, “Mayroon kang demonyo! Sino ang nagsisikap na ikaw ay patayin?”
+Sinenyasan nila ang kanyang ama, kung ano ang ibig niyang itawag sa sanggol.
+Isa sa kanila na ang pangalan ay Agabo, ang tumayo at ipinaalam sa pamamagitan ng Espiritu na magkakaroon ng matinding taggutom sa buong sanlibutan; at ito'y nangyari sa kapanahunan ni Claudio.
+Dahil sa mga bagay na ito ay dumarating ang poot ng Diyos sa mga anak ng pagsuway.
+At nang siya'y kanilang makita, ay kanilang sinamba siya. Subalit ang ilan ay nag-alinlangan.
+Sinabi niya, “Ano ang katulad ng kaharian ng Diyos at sa ano ko ito ihahambing?
+‘Ikaw ay aking Anak,
+Nang matapos pagbilinan ni Jesus ang kanyang labindalawang alagad, umalis siya roon upang magturo at mangaral sa mga bayan nila.
+Hindi nila sinisindihan ang isang ilawan at inilalagay sa ilalim ng isang takalan, kundi sa talagang patungan at nagbibigay ng liwanag sa lahat ng nasa bahay.
+sapagkat nalalaman ko ang inyong pananabik, na aking ipinagmamalaki tungkol sa inyo sa mga taga-Macedonia, na ang Acaia ay nakapaghanda na noong nakaraang taon pa, at ang inyong sigasig ay nakapukaw sa karamihan sa kanila.
+“Pakinggan ninyo ang talinghaga ng manghahasik.
+‘Mula sa bibig ng mga sanggol at ng mga sumususo
+Isusugo niya ang kanyang mga anghel na may malakas na tunog ng trumpeta at kanilang titipunin ang kanyang mga hinirang mula sa apat na hangin, mula sa isang dulo ng langit hanggang sa kabila.
+at nakasuot sa inyong mga paa ang pagiging handa para sa ebanghelyo ng kapayapaan.
+At kung ang mata mo ay nakapagpapatisod sa iyo, dukitin mo ito at itapon. Mas mabuti pa sa iyo ang pumasok sa buhay na iisa ang mata, kaysa dalawang mata na maitapon sa impiyerno ng apoy.
+Sumagot si Pablo, “Ako'y Judio, na taga-Tarso sa Cilicia, isang mamamayan ng isang hindi karaniwang lunsod. Nakikiusap ako, pahintulutan mo akong magsalita sa mga taong-bayan.”
+Siya'y kailangang tumaas, nguni't ako'y kailangang bumaba.”
+Nang mahalata ni Jesus na sila'y lalapit at pipilitin siyang gawing hari, siya'y muling umalis na nag-iisa patungo sa bundok.
+Nakarating ang balita tungkol sa kanila sa mga pandinig ng iglesya na nasa Jerusalem at kanilang sinugo si Bernabe sa Antioquia.
+Subalit sinagot sila ni Jesus, “Hanggang ngayo'y patuloy sa paggawa ang aking Ama, at ako'y patuloy rin sa paggawa.”
+Binigyan ko siya ng panahon upang makapagsisi; ngunit ayaw niyang magsisi sa kanyang pakikiapid.
+Habang papaalis na ang mga ito, nagpasimulang magsalita si Jesus sa maraming tao tungkol kay Juan: “Ano ang pinuntahan ninyo sa ilang upang makita? Isa bang tambo na inuuga ng hangin?
+ang iba'y inyong iligtas, na agawin ninyo mula sa apoy; at ang iba'y inyong kahabagan na may takot; na inyong kapootan maging ang damit na nadungisan ng laman.
+Kaya't hindi ka na alipin kundi anak; at kung anak, ay tagapagmana.
+Sinabi ng ilang taga-Jerusalem, “Hindi ba ito ang taong kanilang pinagsisikapang patayin?
+Isipin mo ang sinasabi ko, sapagkat bibigyan ka ng Panginoon ng pagkaunawa sa lahat ng mga bagay.
+Ang babae na iyong nakita ay ang dakilang lunsod na naghahari sa mga hari sa lupa.”
+Nang mag-umaga na, hindi nila napansin ang lupa, ngunit nababanaagan nila ang isang look na may baybayin, at sila'y nagbalak na maisadsad doon ang barko.
+“Ngayo'y dumating ang kaligtasan at ang kapangyarihan,
+ay dinala paitaas patungo sa Paraiso, at nakarinig ng mga salitang hindi dapat sabihin, na hindi ipinahihintulot sa tao na ulitin.
+At,
+Sinabi niya sa kanila, “Ang ganitong uri ay napapalayas lamang sa pamamagitan ng panalangin.”
+Pagkatapos ay tumayo ang hari, ang gobernador, si Bernice, at ang mga nakaupong kasama nila,
+Lumapit sa kanya ang napakaraming tao na dala ang mga pilay, mga lumpo, mga bulag, mga pipi, at marami pang iba. Inilagay nila ang mga ito sa kanyang paanan at sila'y pinagaling niya.
+Huwag mong pabayaan ang kaloob na sa iyo'y ibinigay sa pamamagitan ng propesiya, na may pagpapatong ng mga kamay ng kapulungan ng matatanda.
+At sa bagay na ito ay nagbibigay ako ng payo: pinakamabuti para sa inyo ngayon na tapusin ang sinimulan ninyo nang nakaraang taon, hindi lamang upang gumawa kundi magkaroon ng pagnanais na gumawa.
+Ang lima sa kanila'y mga hangal at ang lima'y matatalino.
+Nang sila'y tumutol at lapastanganin siya, ipinagpag niya ang kanyang kasuotan at sa kanila'y sinabi, “Ang inyong dugo'y sumainyong sariling mga ulo! Ako'y malinis. Mula ngayon, pupunta ako sa mga Hentil.”
+Sapagkat ang Anak ng Tao ay patungo ayon sa itinakda, subalit kahabag-habag ang taong nagkakanulo sa kanya!”
+Pagkatapos ay pumunta siyang muli sa Cana ng Galilea na doo'y kanyang ginawang alak ang tubig. At sa Capernaum ay naroroon ang isang pinuno ng pamahalaan na ang anak na lalaki ay maysakit.
+at luluwalhati sa iyong pangalan O Panginoon,
+Sapagkat kung ang mga Hentil na likas na walang kautusan ay gumagawa ng mga bagay ng kautusan, ang mga ito, bagaman walang kautusan, ay siyang kautusan sa kanilang sarili.
+Mayroon bang tao sa inyo, na kung humingi ng tinapay sa kanya ang kanyang anak ay bato ang ibibigay?
+Kaya't hinipo niya ang kanilang mga mata, na sinasabi, “Mangyari sa inyo ang ayon sa inyong pananampalataya.”
+na siyang sumaksi sa salita ng Diyos at sa patotoo ni Jesu-Cristo, sa lahat ng bagay na nakita niya.
+At si Moises ay naging tapat sa buong sambahayan ng Diyos gaya ng isang lingkod, bilang patotoo sa mga bagay na sasabihin.
+Alalahanin ninyo ang asawa ni Lot.
+Sino ang mahina, at ako ba'y hindi mahina? Sino ang natitisod, at ako'y di nag-iinit?
+Nagkaroon ng maraming bulung-bulungan tungkol sa kanya ang mga tao. Sinasabi ng ilan, “Siya'y mabuting tao.” Sinasabi naman ng iba, “Hindi, inililigaw niya ang mga tao.”
+o ang nangangaral ay sa pangangaral; ang nagbibigay ay magbigay na may magandang-loob; ang namumuno ay may pagsisikap; ang mahabagin ay may kasiglahan.
+kung kami sa araw na ito'y sinisiyasat dahil sa kabutihang ginawa sa isang taong may kapansanan, na tinatanong kung paano napagaling ang taong ito,
+Tingnan ninyo, sa inyo'y iniwan ang inyong bahay. At sinasabi ko sa inyo, hindi ninyo ako makikita, hanggang sa inyong sabihin, ‘Mapalad ang dumarating sa pangalan ng Panginoon.’”
+at nagagalak ang aking espiritu sa Diyos na aking Tagapagligtas.
+Ang pasimula ng ebanghelyo ni Jesu-Cristo, ang Anak ng Diyos.
+Ang mga diakono ay dapat na may tig-iisang asawa lamang, at pinamamahalaang mabuti ang kanilang mga anak at ang kanilang sariling mga sambahayan.
+At sa pagnanais ni Pilato na bigyang-kasiyahan ang taong-bayan, pinalaya si Barabas para sa kanila. Pagkatapos na ipahagupit si Jesus, siya'y ibinigay niya upang ipako sa krus.
+upang kanyang maiharap sa kanyang sarili ang isang maluwalhating iglesya, na walang batik, o kulubot, o anumang gayong bagay, kundi siya ay maging banal at walang dungis.
+Sinabi ng isang tinig mula sa langit, “Ito ang minamahal kong Anak, sa kanya ako lubos na nalulugod.”
+na ipinanganak hindi sa dugo, o sa kalooban ng laman, o sa kalooban ng tao, kundi ng Diyos.
+At tumingin ako, at aking narinig ang isang agila, na lumilipad sa gitna ng himpapawid, na nagsasabi ng malakas na tinig, “Kahabag-habag, kahabag-habag, kahabag-habag ang mga naninirahan sa ibabaw ng lupa, dahil sa mga tunog ng mga trumpeta na malapit nang hipan ng tatlo pang anghel.”
+Ang Diyos ay espiritu, at ang mga sumasamba sa kanya ay kailangang sumamba sa espiritu at katotohanan.”
+Sapagkat kayo rin ang nakakaalam kung paano ninyo kami dapat tularan; hindi kami tamad noong kami'y kasama ninyo.
+Huwag kayong humatol batay sa anyo, kundi humatol kayo nang matuwid na paghatol.”
+Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos Ama at sa Panginoong Jesu-Cristo.
+Ipaalala mo sa kanila ang mga bagay na ito, na sila'y pagbilinan mo sa harapan ng Diyos na sila'y huwag makipagtalo tungkol sa mga salita na hindi mapapakinabangan kundi sa ikapapahamak lamang ng mga nakikinig.
+subalit ang dila ay hindi napapaamo ng tao, isang hindi napipigilang kasamaang punô ng lasong nakamamatay.
+Sa halip, may isang babae na ang munting anak na batang babae na may masamang espiritu, na nakabalita tungkol sa kanya ay agad na lumapit at nagpatirapa sa kanyang paanan.
+At tinawag ni Pablo ang isa sa mga senturion, at sinabi, “Dalhin mo ang binatang ito sa punong kapitan sapagkat siya'y mayroong sasabihin sa kanya.”
+at nakita niyang bumukas ang langit, at may isang bagay na bumababa, tulad ng isang malapad na kumot na ibinababa sa lupa na nakabitin sa apat na sulok.
+At sapagkat kayo'y mga anak, isinugo ng Diyos ang Espiritu ng kanyang Anak sa ating mga puso, na sumisigaw, “Abba, Ama!”
+Ang inyong ginto at ang inyong pilak ay kinakalawang na, at ang mga kalawang ng mga ito ay magiging patotoo laban sa inyo, at gaya ng apoy ay lalamunin nito ang inyong laman. Kayo'y nag-imbak ng mga kayamanan para sa mga huling araw.
+At ngayon ay sinabi ko sa inyo bago pa mangyari, upang kung ito'y mangyari, kayo ay maniwala.
+Lumabas si Jesus sa templo at paalis na, nang lumapit sa kanya ang mga alagad niya upang ipakita sa kanya ang mga gusali ng templo.
+Ang mga mananampalatayang Judio na dumating na kasama ni Pedro ay namangha sapagkat ibinuhos din maging sa mga Hentil ang kaloob ng Espiritu Santo.
+Ngunit si Jesus ay hindi sumagot ng anuman, anupa't nanggilalas si Pilato.
+Pagkatapos na makapagpaalam siya sa kanila, umakyat siya sa bundok upang manalangin.
+Ang sinumang napopoot sa kanyang kapatid ay isang mamamatay-tao, at nalalaman ninyong ang buhay na walang hanggan ay hindi nananatili sa sinumang mamamatay-tao.
+Sapagkat sinasabi niya sa kanyang puso,
+Nang ikatlo ng hapon ay sumigaw si Jesus nang may malakas na tinig, “Eloi, Eloi, lama sabacthani?” na ang kahulugan ay, “Diyos ko, Diyos ko, bakit mo ako pinabayaan?”
+Subalit noong una, nang hindi pa ninyo kilala ang Diyos, kayo'y naging mga alipin ng mga hindi likas na diyos.
+Mayroong isang mabuti at matuwid na lalaking ang pangalan ay Jose, na bagaman kaanib ng sanggunian,
+Lumapit si Jesus, dinampot ang tinapay, at ibinigay sa kanila pati ang isda.
+maliban sa isang bagay na ito na aking isinigaw habang nakatayo sa gitna nila, ‘Tungkol sa pagkabuhay ng mga patay ako'y nililitis sa harapan mo sa araw na ito.’”
+At kung ako'y pumunta roon at maihanda ko ang isang lugar para sa inyo, ako'y babalik at kayo'y tatanggapin ko sa aking sarili, upang kung saan ako naroroon, kayo rin ay naroroon.
+Kaya't nang tawagin niyang isa-isa ang mga may utang sa kanyang panginoon, ay sinabi niya sa una, ‘Magkano ang utang mo sa aking panginoon?’
+Sapagkat gaya ng kidlat na nanggagaling sa silangan at nagliliwanag hanggang sa kanluran, gayundin naman ang pagdating ng Anak ng Tao.
+Nagsalaysay siya sa kanila ng isa pang talinghaga: “Ang kaharian ng langit ay tulad sa pampaalsa na kinuha ng isang babae, at inihalo sa tatlong takal na harina, hanggang sa ang lahat ay malagyan ng pampaalsa.”
+At sinabi sa kanya ni Jesus, “Kaibigan, gawin mo ang layunin ng pagparito mo.” Pagkatapos ay lumapit sila at kanilang hinawakan si Jesus at siya'y kanilang dinakip.
+Napuno ng kaguluhan ang lunsod at sama-sama nilang nilusob ang tanghalan, at sinunggaban sina Gayo at Aristarco, mga taga-Macedonia, na kasama ni Pablo sa paglalakbay.
+Ngunit itong aking mga kaaway, na ayaw na ako'y maghari sa kanila, ay dalhin ninyo rito at patayin sila sa harapan ko.’”
+Sumakanya nawa ang kapangyarihan magpakailanman. Amen.
+tuwirin ninyo ang kanyang mga landas.’”
+At kanilang pinagtawanan siya, dahil ang alam nila'y patay na ang bata.
+Kaming lahat na nasa barko ay dalawandaan at pitumpu't anim na kaluluwa.
+Sa pamamagitan ng pagsisiyasat ninyo mismo sa kanya, ang lahat ng mga bagay na ito na isinasakdal namin laban sa kanya ay malalaman ninyo mula sa kanya.”
+kapag dumating siya sa araw na iyon upang luwalhatiin sa kanyang mga banal, at kamanghaan ng lahat ng mga sumasampalataya, sapagkat ang aming patotoo sa inyo ay pinaniwalaan.
+At kami ay patuloy na nagpapasalamat sa Diyos, na nang inyong tanggapin ang salita ng Diyos na inyong narinig sa amin ay inyong tinanggap iyon hindi bilang salita ng mga tao, kundi, ayon sa katotohanan, ay bilang salita ng Diyos, na gumagawa naman sa inyo na sumasampalataya.
+Sapagkat ano ngang pasasalamat ang aming maisasauli sa Diyos dahil sa inyo, dahil sa lahat ng kagalakan na aming nadarama dahil sa inyo sa harapan ng aming Diyos?
+Sumagot si Jesus sa kanya, “Kung ang isang tao ay nagmamahal sa akin, ay kanyang tutuparin ang aking salita, at siya'y mamahalin ng aking Ama, at kami'y lalapit sa kanya, at kami'y gagawa ng tahanang kasama siya.
+Habang sila'y nagtataka tungkol dito, biglang may dalawang lalaki na nakasisilaw ang mga damit ang tumayo sa tabi nila.
+At sisikapin ko rin na pagkatapos ng aking pagpanaw ay inyong maaalala ang mga bagay na ito sa anumang panahon.
+At pinuri ng panginoon ang madayang katiwala, sapagkat siya'y gumawang may katusuhan, sapagkat ang mga anak ng sanlibutang ito ay higit na tuso sa pakikitungo sa sarili nilang lahi kaysa mga anak ng liwanag.
+Ngayon sa gumagawa, ang kabayaran ay hindi itinuturing na biyaya, kundi siyang talagang nararapat.
+at magkaroon ng kapangyarihang magpalayas ng mga demonyo:
+Sinabi ni Jesus sa kanila, “Katotohanang sinasabi ko sa inyo, na sa pagbabago ng lahat ng mga bagay, kapag uupo na ang Anak ng Tao sa kanyang maluwalhating trono, kayong mga sumunod sa akin ay uupo rin sa labindalawang trono na naghuhukom sa labindalawang lipi ng Israel.
+Subalit iwasan mo ang mga usapang walang kabuluhan, sapagkat ito'y magtutulak sa mga tao sa higit pang kasamaan,
+Alin ba ang mas madali, ang sabihin sa lumpo, ‘Pinatatawad na ang iyong mga kasalanan;’ o ang sabihin, ‘Tumayo ka, damputin mo ang iyong higaan, at lumakad ka?’
+At sinabi sa kanya ng Panginoon, ‘Alisin mo ang mga sandalyas sa iyong mga paa sapagkat ang dakong kinatatayuan mo ay lupang banal.
+Sa halip, may ilan silang di-pagkakasundo laban sa kanya tungkol sa kanilang sariling relihiyon, at sa isang Jesus, na namatay na, ngunit pinaninindigan ni Pablo na buháy.
+Ang mga ito rin ang nilakaran ninyo noong una, nang kayo'y nabubuhay pa sa mga bagay na ito.
+Subalit ang kautusan ay hindi nakasalig sa pananampalataya; sa halip, “Ang gumagawa ng mga iyon ay mabubuhay sa mga iyon.”
+At sinabi ng mga eskriba na bumaba mula sa Jerusalem, “Nasa kanya si Beelzebul. Sa pamamagitan ng pinuno ng mga demonyo ay nagpapalayas siya ng mga demonyo.”
+Sapagkat ito'y panahon upang simulan ang paghuhukom sa sambahayan ng Diyos; at kung magsimula sa atin, ano kaya ang wakas ng mga hindi sumusunod sa ebanghelyo ng Diyos?
+Nang sila'y makapasok sa lunsod, umakyat sila sa silid sa itaas na doon ay nakatira sina Pedro, Juan, Santiago at Andres, Felipe at Tomas, Bartolome at Mateo, si Santiago na anak ni Alfeo, si Simon na Makabayan, at si Judas na anak ni Santiago.
+Sapagkat ang Anak ng Tao ay panginoon ng Sabbath.”

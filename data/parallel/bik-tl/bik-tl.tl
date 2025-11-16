@@ -1,3 +1,427 @@
+Yaong buhat sa pasimula, na aming narinig, nakita ng aming mga mata, aming napagmasdan, at nahipo ng aming mga kamay, tungkol sa salita ng buhay—
+at ang buhay na ito ay nahayag, aming nakita, aming pinatototohanan, at sa inyo'y aming ibinabalita ang buhay na walang hanggan, na kasama ng Ama at sa amin ay ipinahayag.
+Ipinahahayag namin sa inyo yaong aming nakita at narinig upang kayo rin naman ay magkaroon ng pakikisama sa amin; at tunay na ang ating pakikisama ay sa Ama at sa kanyang Anak na si Jesu-Cristo.
+Isinusulat namin ang mga bagay na ito upang ang aming kagalakan ay malubos.
+At ito ang mensahe na aming narinig sa kanya at sa inyo'y aming ipinahahayag, na ang Diyos ay liwanag, at sa kanya'y walang anumang kadiliman.
+Kung sinasabi nating tayo'y may pakikisama sa kanya, at tayo'y lumalakad sa kadiliman, nagsisinungaling tayo at hindi natin ginagawa ang katotohanan.
+Ngunit kung tayo'y lumalakad sa liwanag, na tulad niya na nasa liwanag, may pakikisama tayo sa isa't isa, at ang dugo ni Jesus na kanyang Anak ang lumilinis sa atin sa lahat ng kasalanan.
+Kung sinasabi nating tayo'y walang kasalanan, dinadaya natin ang ating sarili at ang katotohanan ay wala sa atin.
+Kung ipinahahayag natin ang ating mga kasalanan, siya ay tapat at banal na magpapatawad sa ating mga kasalanan at tayo'y lilinisin sa lahat ng kalikuan.
+Kung sinasabi nating tayo'y hindi nagkasala, ginagawa natin siyang sinungaling at ang kanyang salita ay wala sa atin.
+Mga munti kong anak, ang mga bagay na ito ay isinusulat ko sa inyo, upang kayo'y huwag magkasala. Ngunit kung ang sinuman ay magkasala, tayo ay may Tagapagtanggol sa harap ng Ama, si Jesu-Cristo na siyang matuwid.
+Siya ang kabayaran para sa ating mga kasalanan, at hindi lamang para sa atin kundi para din sa kasalanan ng buong sanlibutan.
+At sa ganito'y nalalaman natin na siya'y kilala natin, kung tinutupad natin ang kanyang mga utos.
+Ang nagsasabing, “Kilala ko siya,” ngunit hindi tinutupad ang kanyang mga utos, ay sinungaling, at ang katotohanan ay wala sa kanya.
+Ngunit ang sinumang tumutupad ng kanyang salita, tunay na naging ganap sa taong ito ang pag-ibig ng Diyos. Sa pamamagitan nito'y nalalaman nating tayo'y nasa kanya.
+Ang nagsasabing siya'y nananatili sa kanya ay nararapat ding lumakad gaya ng kanyang paglakad.
+Mga minamahal, hindi bago ang utos na isinusulat ko sa inyo, kundi ang dating utos na nasa inyo na buhat nang pasimula; ang dating utos ay ang salita na inyong narinig.
+Gayunma'y isinusulat ko sa inyo ang isang bagong utos na tunay sa kanya at sa inyo, sapagkat ang kadiliman ay lumilipas at ang tunay na liwanag ay tumatanglaw na.
+Ang nagsasabing siya'y nasa liwanag at napopoot sa kanyang kapatid ay nasa kadiliman pa hanggang ngayon.
+Ang umiibig sa kanyang kapatid ay nananatili sa liwanag, at sa kanya'y walang anumang kadahilanang ikatitisod.
+Ngunit ang napopoot sa kanyang kapatid ay nasa kadiliman. Siya ay lumalakad sa kadiliman at hindi niya nalalaman kung saan siya pupunta, sapagkat ang kanyang mga mata ay binulag ng kadiliman.
+Mga munting anak, kayo'y sinusulatan ko
+sapagkat ipinatawad sa inyo ang inyong mga kasalanan dahil sa kanyang pangalan.
+Mga ama, kayo'y sinusulatan ko,
+sapagkat inyong nakilala siyang nagbuhat pa nang pasimula.
+Mga kabataang lalaki, kayo'y sinusulatan ko
+sapagkat inyong dinaig ang masama.
+Mga anak, kayo'y sinusulatan ko
+sapagkat inyong nakilala ang Ama.
+Mga ama, kayo'y sinusulatan ko
+sapagkat inyong nakilala siyang nagbuhat pa nang pasimula.
+Mga kabataan, kayo'y sinusulatan ko
+sapagkat kayo'y malalakas,
+at ang salita ng Diyos ay nananatili sa inyo, at inyong dinaig ang masama.
+Huwag ninyong ibigin ang sanlibutan, ni ang mga bagay na nasa sanlibutan. Ang pag-ibig ng Ama ay wala sa sinumang umiibig sa sanlibutan.
+Sapagkat ang lahat na nasa sanlibutan, ang masamang pagnanasa ng laman, ang pagnanasa ng mga mata, at ang pagmamataas sa buhay, ay hindi mula sa Ama kundi sa sanlibutan.
+Ang sanlibutan at ang pagnanasa nito ay lumilipas, ngunit ang gumagawa ng kalooban ng Diyos ay nananatili magpakailanman.
+Mga anak, huling oras na! Gaya ng inyong narinig na darating ang anti-Cristo, kahit ngayon ay lumitaw na ang maraming anti-Cristo. Kaya nalalaman nating huling oras na.
+Sila'y lumabas sa atin, ngunit sila'y hindi sa atin; sapagkat kung sila'y kabilang sa atin ay magpapatuloy sana silang kasama natin. Ngunit sa paglabas nila ay ginawa nilang maliwanag na silang lahat ay hindi kabilang sa atin.
+Masdan ninyo kung anong uri ng pag-ibig ang ipinagkaloob sa atin ng Ama, upang tayo'y matawag na mga anak ng Diyos; at tayo'y gayon nga. Dahil dito'y hindi tayo nakikilala ng sanlibutan, sapagkat siya'y hindi nakilala nito.
+Mga minamahal, ngayon ay mga anak tayo ng Diyos at hindi pa nahahayag kung magiging ano tayo. Nalalaman natin na kung siya'y mahayag, tayo'y magiging katulad niya, sapagkat siya'y ating makikita bilang siya.
+At sinumang may ganitong pag-asa sa kanya ay naglilinis sa kanyang sarili, gaya naman niyang malinis.
+Ang sinumang gumagawa ng kasalanan ay lumalabag din naman sa kautusan; at ang kasalanan ay ang paglabag sa kautusan.
+Nalalaman ninyo na siya'y nahayag upang mag-alis ng mga kasalanan; at sa kanya'y walang kasalanan.
+Ang sinumang nananatili sa kanya ay hindi nagkakasala; sinumang nagkakasala ay hindi nakakita sa kanya, ni hindi nakakilala sa kanya.
+Mga munting anak, huwag kayong padaya kanino man. Ang gumagawa ng katuwiran ay matuwid, gaya niya na matuwid.
+Ang patuloy na gumagawa ng kasalanan ay sa diyablo; sapagkat buhat pa nang pasimula ay nagkakasala na ang diyablo. Dahil dito, nahayag ang Anak ng Diyos upang wasakin ang mga gawa ng diyablo.
+Ang sinumang ipinanganak ng Diyos ay hindi patuloy na nagkakasala, sapagkat ang kanyang binhi ay nananatili sa kanya at hindi siya maaaring magkasala, sapagkat siya'y ipinanganak ng Diyos.
+Sa ganito nahahayag ang mga anak ng Diyos at ang mga anak ng diyablo: ang sinumang hindi gumagawa ng katuwiran ay hindi sa Diyos, pati ang hindi umiibig sa kanyang kapatid.
+Sapagkat ito ang mensahe na inyong narinig buhat nang pasimula, na mag-ibigan tayo sa isa't isa,
+na hindi gaya ni Cain na siya'y sa masama, at pinaslang ang kanyang kapatid. At bakit niya ito pinaslang? Sapagkat ang kanyang mga gawa ay masasama at ang mga gawa ng kanyang kapatid ay matutuwid.
+Mga kapatid, huwag kayong magtaka, kung kayo'y kinapopootan ng sanlibutan.
+Nalalaman nating tayo'y dumaan na mula sa kamatayan patungo sa buhay, sapagkat iniibig natin ang isa't isa. Ang hindi umiibig ay nananatili sa kamatayan.
+Ang sinumang napopoot sa kanyang kapatid ay isang mamamatay-tao, at nalalaman ninyong ang buhay na walang hanggan ay hindi nananatili sa sinumang mamamatay-tao.
+Dito natin nakikilala ang pag-ibig, sapagkat ibinigay niya ang kanyang buhay alang-alang sa atin; at nararapat nating ibigay ang ating mga buhay alang-alang sa mga kapatid.
+Subalit ang sinumang may mga pag-aari sa sanlibutang ito, at nakikita ang kanyang kapatid na nangangailangan, at pinagsasarhan niya ito ng kanyang damdamin, paanong nananatili ang pag-ibig ng Diyos sa kanya?
+Mga munting anak, huwag tayong umibig sa salita, ni sa dila kundi sa gawa at sa katotohanan.
+Dito natin makikilala na tayo'y mula sa katotohanan, at magkakaroon ng kapanatagan ang ating mga puso sa harapan niya,
+tuwing hahatulan tayo ng ating puso; sapagkat ang Diyos ay higit na dakila kaysa ating puso, at nalalaman niya ang lahat ng mga bagay.
+Mga minamahal, kung tayo'y hindi hinahatulan ng ating puso, tayo ay may kapanatagan sa harapan ng Diyos;
+at anumang ating hingin ay tinatanggap natin mula sa kanya, sapagkat tinutupad natin ang kanyang mga utos at ginagawa natin ang mga bagay na kalugud-lugod sa kanyang harapan.
+At ito ang kanyang utos, na manampalataya tayo sa pangalan ng kanyang Anak na si Jesu-Cristo, at tayo'y mag-ibigan sa isa't isa ayon sa ibinigay niyang utos sa atin.
+At ang tumutupad ng kanyang mga utos ay nananatili sa kanya, at siya sa kanya. At dito'y nakikilala natin na siya'y nananatili sa atin, sa pamamagitan ng Espiritu na kanyang ibinigay sa atin.
+Mga minamahal, huwag ninyong paniwalaan ang bawat espiritu, kundi inyong subukin ang mga espiritu, kung sila'y sa Diyos, sapagkat maraming lumitaw na mga bulaang propeta sa sanlibutan.
+Dito'y nakikilala ninyo ang Espiritu ng Diyos: ang bawat espiritung nagpapahayag na si Jesu-Cristo ay naparito sa laman ay sa Diyos,
+at ang bawat espiritung hindi ipinahahayag si Jesus, ay hindi sa Diyos. Ito ang espiritu ng anti-Cristo, na inyong narinig na darating at ngayo'y nasa sanlibutan na.
+Kayo'y sa Diyos, mga munting anak, at inyong dinaig sila sapagkat siyang nasa inyo ay higit na dakila kaysa sa nasa sanlibutan.
+Sila'y sa sanlibutan: kaya't tungkol sa sanlibutan ang kanilang sinasabi at pinapakinggan sila ng sanlibutan.
+Kami ay sa Diyos. Ang nakakakilala sa Diyos ay nakikinig sa amin at ang hindi sa Diyos ay hindi nakikinig sa amin. Dito'y ating nakikilala ang espiritu ng katotohanan at ang espiritu ng kamalian.
+Mga minamahal, mag-ibigan tayo sa isa't isa, sapagkat ang pag-ibig ay sa Diyos at ang bawat umiibig ay ipinanganak ng Diyos at nakakakilala sa Diyos.
+Ang hindi umiibig ay hindi nakakakilala sa Diyos; sapagkat ang Diyos ay pag-ibig.
+Dito nahayag ang pag-ibig ng Diyos sa atin, sapagkat sinugo ng Diyos ang kanyang bugtong na Anak sa sanlibutan upang tayo'y mabuhay sa pamamagitan niya.
+Narito ang pag-ibig, hindi sa tayo'y umibig sa Diyos, kundi siya ang umibig sa atin, at sinugo ang kanyang Anak na pantubos sa ating mga kasalanan.
+Mga minamahal, kung tayo'y inibig ng Diyos nang gayon, nararapat na mag-ibigan din naman tayo sa isa't isa.
+Walang nakakita kailanman sa Diyos; kung tayo'y nag-iibigan sa isa't isa, ang Diyos ay nananatili sa atin, at ang kanyang pag-ibig ay nagiging sakdal sa atin.
+Dito'y nalalaman namin na kami'y nananatili sa kanya at siya'y sa amin, sapagkat binigyan niya kami ng kanyang Espiritu.
+At nakita namin at sinasaksihan na sinugo ng Ama ang Anak bilang Tagapagligtas ng sanlibutan.
+Ang sinumang nagpapahayag na si Jesus ay Anak ng Diyos, ang Diyos ay nananahan sa kanya, at siya'y sa Diyos.
+At ating nalaman at sinampalatayanan ang pag-ibig ng Diyos para sa atin. Ang Diyos ay pag-ibig at ang nananatili sa pag-ibig ay nananatili sa Diyos, at ang Diyos ay nananatili sa kanya.
+Dito'y naging ganap ang pag-ibig sa atin upang tayo'y magkaroon ng lubos na pagtitiwala sa araw ng paghuhukom; sapagkat kung ano siya, ay gayundin naman tayo sa sanlibutang ito.
+Walang takot sa pag-ibig kundi ang sakdal na pag-ibig ay nagpapalayas ng takot, sapagkat ang takot ay may kaparusahan at ang natatakot ay hindi pa nagiging sakdal sa pag-ibig.
+Tayo'y umiibig sapagkat siya ang unang umibig sa atin.
+Kung sinasabi ng sinuman, “Iniibig ko ang Diyos,” at napopoot sa kanyang kapatid, siya ay sinungaling; sapagkat ang hindi umiibig sa kanyang kapatid na kanyang nakikita, ay hindi maaaring umibig sa Diyos na hindi niya nakita.
+At ang utos na ito na mula sa kanya ay nasa atin, na ang umiibig sa Diyos ay dapat ding umibig sa kanyang kapatid.
+Ang sinumang sumasampalataya na si Jesus ay siyang Cristo ay ipinanganak ng Diyos, at ang bawat umiibig sa magulang ay umiibig din naman sa anak.
+Dito'y ating nakikilala na iniibig natin ang mga anak ng Diyos, kapag iniibig natin ang Diyos at tinutupad natin ang kanyang mga utos.
+Sapagkat ito ang pag-ibig sa Diyos, na ating tuparin ang kanyang mga utos at ang kanyang mga utos ay hindi pabigat.
+Sapagkat ang sinumang ipinanganak ng Diyos ay dumadaig sa sanlibutan at ito ang tagumpay na dumadaig sa sanlibutan, ang ating pananampalataya.
+Sino ang dumadaig sa sanlibutan, kundi ang sumasampalatayang si Jesus ang Anak ng Diyos?
+Ito ang siyang naparito sa pamamagitan ng tubig at ng dugo, si Jesu-Cristo; hindi sa tubig lamang, kundi sa tubig at sa dugo. At ang Espiritu ang nagpapatotoo, sapagkat ang Espiritu ay katotohanan.
+Sapagkat may tatlong nagpapatotoo:
+ang Espiritu, ang tubig, at ang dugo; at ang tatlo ay nagkakaisa.
+Kung tinatanggap natin ang patotoo ng mga tao, ay higit na dakila ang patotoo ng Diyos, sapagkat ito ang patotoo ng Diyos na siya'y nagpapatotoo tungkol sa kanyang Anak.
+Ang sumasampalataya sa Anak ng Diyos ay may patotoo sa kanyang sarili. Ang hindi sumasampalataya sa Diyos ay ginagawa siyang sinungaling, sapagkat hindi siya sumampalataya sa patotoo na ibinigay ng Diyos tungkol sa kanyang Anak.
+At ito ang patotoo, na tayo'y binigyan ng Diyos ng buhay na walang hanggan at ang buhay na ito ay nasa kanyang Anak.
+Ang kinaroroonan ng Anak ay kinaroroonan ng buhay; ang hindi kinaroroonan ng Anak ng Diyos ay hindi kinaroroonan ng buhay.
+Ang mga bagay na ito ay isinulat ko sa inyo upang inyong malaman na kayo'y mayroong buhay na walang hanggan sa inyong nananampalataya sa pangalan ng Anak ng Diyos.
+Ito ang ating kapanatagan sa kanya, na kung tayo'y humingi ng anumang bagay na ayon sa kanyang kalooban, tayo'y pinapakinggan niya.
+At kung ating nalalaman na tayo'y pinapakinggan niya sa anumang ating hingin, nalalaman natin na natanggap natin ang mga kahilingang hinihingi natin sa kanya.
+Kung makita ng sinuman ang kanyang kapatid na nagkakasala ng kasalanang hindi tungo sa kamatayan, ay idalangin siya at bibigyan siya ng Diyos ng buhay, na ukol sa mga nagkakasala ng hindi tungo sa kamatayan. May kasalanang tungo sa kamatayan, hindi tungkol dito ang sinasabi ko na idalangin ninyo.
+Lahat ng kalikuan ay kasalanan, at may kasalanang hindi tungo sa kamatayan.
+Alam natin na ang sinumang ipinanganak ng Diyos ay hindi patuloy na nagkakasala; subalit ang ipinanganak ng Diyos ay nag-iingat sa kanyang sarili, at hindi siya ginagalaw ng masama.
+Alam natin na tayo'y sa Diyos at ang buong sanlibutan ay nasa ilalim ng kapangyarihan ng masama.
+At alam natin na naparito ang Anak ng Diyos at binigyan niya tayo ng pagkaunawa upang ating makilala siya na totoo; at tayo'y nasa kanya na totoo, sa kanyang Anak na si Jesu-Cristo. Ito ang tunay na Diyos, at buhay na walang hanggan.
+Mga munting anak, lumayo kayo sa mga diyus-diyosan.
+Si Pedro, na apostol ni Jesu-Cristo,
+Sa mga hinirang na nangingibang-bayan na nasa Pangangalat sa Ponto, Galacia, Capadocia, Asia at Bitinia,
+pinili at itinalaga ng Diyos Ama, at ginawang banal ng Espiritu upang sumunod kay Jesu-Cristo at mawisikan ng kanyang dugo:
+Biyaya at kapayapaan nawa ang sa inyo'y sumagana.
+Purihin ang Diyos at Ama ng ating Panginoong Jesu-Cristo! Sa pamamagitan ng kanyang malaking kahabagan ay muli tayong ipinanganak sa isang buháy na pag-asa sa pamamagitan ng muling pagkabuhay ni Jesu-Cristo mula sa mga patay,
+tungo sa isang manang hindi nasisira, walang dungis, at hindi kumukupas, na inilaan sa langit para sa inyo,
+na sa kapangyarihan ng Diyos ay iniingatan sa pamamagitan ng pananampalataya para sa kaligtasan na nakahandang ipahayag sa huling panahon.
+Sa ganito kayo'y nagagalak, bagama't ngayon sa sandaling panahon ay kailangan ninyong magdanas ng iba't ibang pagsubok,
+upang ang kadalisayan ng inyong pananampalataya na mas mahalaga kaysa gintong nasisira, bagama't ito'y sinusubok sa pamamagitan ng apoy, ay mauwi sa kapurihan, kaluwalhatian at karangalan sa pagpapakita ni Jesu-Cristo.
+Hindi ninyo siya nakita gayunma'y inyong iniibig; bagama't ngayon ay hindi ninyo siya nakikita, gayunma'y inyong sinasampalatayanan, at kayo'y nagagalak na may galak na hindi maipaliwanag at puspos ng kaluwalhatian,
+na inyong tinatanggap ang bunga ng inyong pananampalataya, ang kaligtasan ng inyong mga kaluluwa.
+Tungkol sa kaligtasang ito, nagsikap at nagsiyasat na mabuti ang mga propeta na nagpahayag tungkol sa biyayang darating sa inyo.
+Kanilang siniyasat kung anong pagkatao o kapanahunan na tinutukoy ng Espiritu ni Cristo na sumasakanila, nang ipahayag ang mangyayaring pagdurusa ni Cristo, at ang kaluwalhatiang susunod sa mga ito.
+Ipinahayag sa kanila na hindi sila naglilingkod sa kanilang sarili kundi sa inyo, sa mga bagay na ngayo'y ibinalita sa inyo sa pamamagitan ng mga nangaral sa inyo ng ebanghelyo sa pamamagitan ng Espiritu Santo na sinugo mula sa langit; na ang mga bagay na ito'y pinananabikang makita ng mga anghel.
+Kaya't ihanda ninyo sa gawain ang inyong mga pag-iisip; na supilin ninyo ang inyong sarili at ilagak ang inyong pag-asa sa biyayang darating sa inyo kapag inihayag na si Jesu-Cristo.
+Tulad ng mga masunuring mga anak, huwag kayong gumaya sa masasamang pagnanasa ng inyong kamangmangan noong una.
+Sa halip, yamang banal ang sa inyo'y tumawag, maging banal naman kayo sa lahat ng paraan ng pamumuhay;
+sapagkat nasusulat, “Kayo'y maging banal, sapagkat ako'y banal.”
+Kung inyong tinatawagan bilang Ama ang humahatol na walang pagtatangi ayon sa gawa ng bawat isa, mamuhay kayo na may takot sa panahon ng inyong pangingibang bayan.
+Nalalaman ninyong kayo'y tinubos mula sa inyong walang kabuluhang paraan ng pamumuhay na minana ninyo sa inyong mga ninuno, hindi ng mga bagay na nasisira, tulad ng pilak o ginto,
+kundi ng mahalagang dugo ni Cristo, gaya ng sa korderong walang kapintasan at walang dungis.
+Siya ay itinalaga na nang una bago itinatag ang sanlibutan, ngunit inihayag sa mga huling panahon dahil sa inyo.
+Sa pamamagitan niya ay nanampalataya kayo sa Diyos, na bumuhay sa kanya mula sa mga patay at sa kanya'y nagbigay ng kaluwalhatian, kaya't ang inyong pananampalataya at pag-asa ay nakatuon sa Diyos.
+Ngayong nilinis na ninyo ang inyong mga kaluluwa sa pamamagitan ng inyong pagsunod sa katotohanan, kaya't kayo'y may tunay na pag-ibig sa isa't isa, mag-ibigan kayo sa isa't isa nang buong alab mula sa dalisay na puso.
+Ipinanganak na kayong muli, hindi ng binhing nasisira, kundi ng walang kasiraan, sa pamamagitan ng buháy at nananatiling salita ng Diyos.
+Sapagkat,
+“Ang lahat ng laman ay gaya ng damo,
+at ang lahat ng kaluwalhatian nito ay gaya ng bulaklak ng damo.
+Ang damo'y natutuyo,
+Kaya't iwaksi ninyo ang lahat ng kasamaan, pandaraya, pagkukunwari, inggitan, at lahat ng paninirang-puri.
+Gaya ng mga sanggol na bagong silang ay mithiin ninyo ang malinis na espirituwal na gatas, upang sa pamamagitan nito'y lumago kayo tungo sa kaligtasan,
+kung natikman nga ninyo na ang Panginoon ay mabuti.
+Lumapit kayo sa kanya, na isang batong buháy, bagaman itinakuwil ng mga tao gayunma'y pinili at mahalaga sa paningin ng Diyos, at
+tulad ng mga batong buháy, hayaan ninyong kayo ay maitayo bilang espirituwal na bahay tungo sa banal na pagkapari, upang mag-alay ng mga espirituwal na handog na kasiya-siya sa Diyos sa pamamagitan ni Jesu-Cristo.
+Sapagkat ito ang isinasaad ng kasulatan:
+“Tingnan ninyo, aking inilalagay sa Zion ang isang bato,
+isang batong panulok na pinili at mahalaga;
+at sinumang sumasampalataya sa kanya ay hindi mapapahiya.”
+Kaya't sa inyo na nananampalataya, siya'y mahalaga; subalit sa mga hindi nananampalataya,
+“Ang batong itinakuwil ng mga tagapagtayo ng bahay
+ay siyang naging puno ng panulok,”
+at,
+“Isang batong nagpapatisod sa kanila,
+at malaking bato na nagpabagsak sa kanila.”
+Sila'y natitisod dahil sa pagsuway sa salita, na dito naman sila itinalaga.
+Ngunit kayo'y isang lahing pinili, isang maharlikang pagkapari, isang bansang banal, sambayanang pag-aari ng Diyos, upang inyong ipahayag ang mga makapangyarihang gawa niya na tumawag sa inyo mula sa kadiliman, tungo sa kanyang kagila-gilalas na liwanag.
+Noon ay hindi kayo bayan, ngunit ngayo'y bayan kayo ng Diyos; noon ay hindi kayo tumanggap ng habag, ngunit ngayo'y tumanggap kayo ng habag.
+Mga minamahal, ipinapakiusap ko sa inyo bilang mga dayuhan at ipinatapon, na kayo'y umiwas sa mga pagnanasa ng laman na nakikipaglaban sa kaluluwa.
+Maging marangal ang inyong pag-uugali sa gitna ng mga Hentil upang kung magsalita sila laban sa inyo na parang kayo'y gumagawa ng kasamaan, ay makita nila ang inyong mabubuting gawa at luwalhatiin nila ang Diyos sa araw ng pagdalaw.
+Pasakop kayo sa bawat pamahalaan ng tao alang-alang sa Panginoon, maging sa hari, na kataas-taasan,
+o sa mga gobernador na sinugo niya upang parusahan ang mga gumagawa ng masama at parangalan ang mga gumagawa ng mabuti.
+Sapagkat gayon ang kalooban ng Diyos na dahil sa paggawa ng mabuti ay inyong mapatahimik ang kamangmangan ng mga taong hangal.
+Mamuhay kayo nang tulad sa taong malalaya, ngunit huwag ninyong gamitin ang kalayaan bilang balabal ng kasamaan, kundi bilang mga alipin ng Diyos.
+Igalang ninyo ang lahat ng mga tao. Ibigin ninyo ang kapatiran. Matakot kayo sa Diyos. Igalang ninyo ang hari.
+Mga alipin, magpasakop kayo nang may buong paggalang sa inyong mga amo; hindi lamang sa mabubuti at mahihinahon, kundi gayundin sa mababagsik.
+Sapagkat ito'y kapuri-puri, kung dahil sa pagkakilala sa Diyos ay nagtiis ang sinuman ng sakit habang nagdurusa nang hindi nararapat.
+Sapagkat anong pakinabang nga, na kapag kayo'y nagkakasala at hinahampas dahil dito, ay inyong tinatanggap na may pagtitiis? Ngunit kung kayo'y gumagawa ng mabuti at kayo'y nagdurusa dahil dito at inyong tinatanggap na may pagtitiis, ito'y kalugud-lugod sa Diyos.
+Sapagkat ukol dito kayo'y tinawag, sapagkat si Cristo man ay nagdusa alang-alang sa inyo, na kayo'y iniwanan ng halimbawa, upang sumunod kayo sa kanyang mga yapak.
+Gayundin naman, kayong mga asawang babae, pasakop kayo sa inyu-inyong sariling asawa, kahit na ang ilan sa kanila ay hindi sumusunod sa salita, upang mahikayat nang walang salita sa pamamagitan ng ugali ng kani-kanilang asawang babae;
+kapag nakikita nila ang dalisay at magalang ninyong pag-uugali.
+Ang inyong kagayakan ay huwag maging panlabas na pagpapahiyas ng buhok, at pagsusuot ng ginto, o pagbibihis ng maringal na damit.
+Sa halip, ay ang panloob na pagkatao na may kagandahang walang paglipas, ng isang mahinhin at maamong espiritu na napakahalaga sa paningin ng Diyos.
+Sapagkat nang unang panahon ay ganito ginayakan ng mga banal na babae na umaasa sa Diyos ang kanilang sarili, at sila'y nagpasakop sa kani-kanilang mga asawa,
+tulad nang pagsunod ni Sarah kay Abraham, na kanyang tinawag na panginoon. At kayo ngayon ay mga anak niya kung gumagawa kayo ng mabuti, at hindi kayo natatakot sa anumang pananakot.
+Gayundin naman kayong mga lalaki, maging mapagbigay kayo sa inyu-inyong mga asawa sa inyong pagsasama, na binibigyan ng karangalan ang babae bilang isang mas marupok na sisidlan, yamang sila man ay tagapagmana rin ng biyaya ng buhay, upang walang makahadlang sa inyong mga panalangin.
+Katapus-tapusan, magkaisa kayong lahat sa pag-iisip, maging madamayin, mapagmahal sa mga kapatid, mababait at may mapagpakumbabang pag-iisip.
+Huwag ninyong gantihan ng masama ang masama, o ng pag-alipusta ang pag-alipusta, kundi ng pagpapala; sapagkat ukol dito kayo'y tinawag, upang kayo'y magmana ng pagpapala.
+Sapagkat,
+“Ang nagmamahal sa buhay,
+at nais makakita ng mabubuting araw,
+ay magpigil ng kanyang dila sa masama,
+at ang kanyang mga labi ay huwag magsalita ng daya,
+lumayo siya sa masama at gumawa ng kabutihan;
+hanapin niya ang kapayapaan, at ito'y lakaran.
+Sapagkat ang mga mata ng Panginoon ay nasa mga matuwid,
+at ang kanyang mga tainga ay bukas sa kanilang mga panalangin.
+Ngunit ang mukha ng Panginoon ay laban sa mga gumagawa ng masama.”
+At sino ang gagawa ng masama sa inyo kung kayo'y masigasig sa paggawa ng mabuti?
+Subalit magdusa man kayo ng dahil sa katuwiran ay mapapalad kayo. Huwag kayong matakot sa kanilang pananakot, ni mabahala,
+kundi sa inyong mga puso ay pakabanalin ninyo si Cristo bilang Panginoon. Lagi kayong maging handa na ipagtanggol sa bawat taong humihingi sa inyo ng katuwiran ang tungkol sa pag-asang nasa inyo,
+ngunit gawin ito nang may kaamuan at paggalang. Ingatan ninyong malinis ang budhi, upang kapag kayo ay inalipusta, ang mga nagsasalita ng laban sa inyong mabuting paraan ng pamumuhay kay Cristo ay mapahiya.
+Sapagkat mas mabuting magdusa dahil sa paggawa ng mabuti kung iyon ay kalooban ng Diyos, kaysa magdusa dahil sa paggawa ng masama.
+Sapagkat si Cristo man ay minsang nagdusa dahil sa mga kasalanan, ang isang matuwid dahil sa mga di-matuwid, upang kayo ay madala niya sa Diyos. Siya ay pinatay sa laman, ngunit binuhay sa espiritu;
+Kung paanong si Cristo ay nagdusa sa laman ay sandatahan din naman ninyo ang inyong sarili ng gayong pag-iisip, sapagkat ang nagdusa sa laman ay tapos na sa kasalanan,
+upang hindi na kayo mamuhay sa laman sa inyong nalalabing panahon sa masasamang pagnanasa ng mga tao, kundi sa kalooban ng Diyos.
+Sapat na ang nakaraang panahon sa paggawa ninyo ng mga gustong gawin ng mga Hentil, na namumuhay sa kahalayan, masasamang pita, paglalasing, kalayawan, pag-iinuman, at sa kasuklamsuklam na pagsamba sa mga diyus-diyosan.
+Sila ay nagtataka na kayo ay hindi na nakikisama sa gayong labis na kaguluhan, kaya't kayo'y nilalait nila.
+Ngunit sila'y magbibigay-sulit sa kanya na handang humatol sa mga buháy at sa mga patay.
+Sapagkat ito ang dahilan kung bakit ang ebanghelyo ay ipinangaral maging sa mga patay, upang bagaman sila'y nahatulan sa laman na gaya ng mga tao, ay mabubuhay sila sa espiritu tulad ng Diyos.
+Ngunit ang wakas ng lahat ng mga bagay ay malapit na, kaya kayo'y magpakatino at magpigil sa sarili alang-alang sa inyong mga panalangin.
+Higit sa lahat, magkaroon kayo ng maningas na pag-ibig sa isa't isa, sapagkat ang pag-ibig ay nagtatakip ng maraming kasalanan.
+Maging mapagpatulóy kayo sa isa't isa nang walang bulung-bulungan.
+Kung paanong ang bawat isa ay tumanggap ng kaloob, ipaglingkod ito sa isa't isa bilang mabubuting katiwala ng masaganang biyaya ng Diyos.
+Sinumang nagsasalita ay gawin iyon nang tulad sa nagsasalita ng mga aral ng Diyos; sinumang naglilingkod ay tulad sa naglilingkod mula sa kalakasang ibinibigay ng Diyos, upang ang Diyos ay maluwalhati sa lahat ng mga bagay sa pamamagitan ni Jesu-Cristo. Sa kanya ang kaluwalhatian at ang kapangyarihan magpakailanman. Amen.
+Mga minamahal, huwag kayong magtaka tungkol sa mahigpit na pagsubok na dumarating sa inyo upang kayo'y subukin, na waring may isang kataka-takang bagay na nangyayari sa inyo.
+Kundi kayo'y magalak, yamang kayo'y nakikibahagi sa mga pagdurusa ni Cristo, upang kayo man ay matuwa at sumigaw sa galak kapag ang kaluwalhatian niya ay nahayag.
+Kung kayo'y inaalipusta dahil sa pangalan ni Cristo ay mapapalad kayo; sapagkat ang espiritu ng kaluwalhatian at ang Espiritu ng Diyos ay naninirahan sa inyo.
+Ngunit huwag magdusa ang sinuman sa inyo bilang isang mamamatay-tao, o magnanakaw, o gumagawa ng masama, o bilang isang mapanghimasok.
+Ngunit kung ang isang tao ay nagdurusa bilang Cristiano, huwag niyang ikahiya ito, kundi luwalhatiin niya ang Diyos sa pangalang ito.
+Sapagkat ito'y panahon upang simulan ang paghuhukom sa sambahayan ng Diyos; at kung magsimula sa atin, ano kaya ang wakas ng mga hindi sumusunod sa ebanghelyo ng Diyos?
+At kung ang matuwid ay bahagya nang makaligtas, ano kaya ang mangyayari sa masasama at makasalanan?
+Kaya't ang mga nagdurusa ayon sa kalooban ng Diyos ay ipagkatiwala ang kanilang mga kaluluwa sa tapat na lumikha sa paggawa ng mabuti.
+Ngayon, bilang kapwa matanda at isang saksi sa mga pagdurusa ni Cristo, at bilang kabahagi sa kaluwalhatiang ihahayag, ipinapakiusap ko sa mga matatanda sa inyo,
+na pangalagaan ninyo ang kawan ng Diyos na nasa inyong pangangasiwa, na maglingkod bilang tagapangasiwa, hindi sapilitan kundi bukal sa loob, ayon sa kalooban ng Diyos, ni hindi dahil sa mahalay na pakinabang, kundi may sigasig.
+Huwag kayong maging panginoon ng mga pinangangasiwaan ninyo, kundi kayo'y maging mga halimbawa sa kawan.
+At sa pagpapakita ng punong Pastol, tatanggapin ninyo ang hindi kumukupas na putong ng kaluwalhatian.
+Gayundin naman, kayong mga kabataan, pasakop kayo sa matatanda. At kayong lahat ay magsuot ng kapakumbabaan sa inyong pakikitungo sa isa't isa, sapagkat “Ang Diyos ay sumasalungat sa mga palalo, ngunit nagbibigay ng biyaya sa mga mapagpakumbaba.”
+Kaya't kayo'y magpakumbaba sa ilalim ng makapangyarihang kamay ng Diyos, upang kayo'y kanyang itaas sa takdang panahon.
+Ilagak ninyo sa kanya ang lahat ng inyong kabalisahan, sapagkat siya'y nagmamalasakit sa inyo.
+Magpakatino kayo, magbantay kayo. Ang diyablo na inyong kaaway ay tulad ng leong gumagala at umuungal, na humahanap ng kanyang malalapa.
+Siya'y labanan ninyo, maging matatag sa inyong pananampalataya, yamang inyong nalalaman na ang mga gayong hirap ay nararanasan ng inyong mga kapatid sa buong sanlibutan.
+At pagkatapos na kayo'y magdusa nang sandaling panahon, ang Diyos ng buong biyaya na sa inyo'y tumawag tungo sa kanyang walang hanggang kaluwalhatian kay Cristo, ay siya ring magpapanumbalik, magpapatibay, at magpapalakas sa inyo.
+Sumakanya nawa ang kapangyarihan magpakailanman. Amen.
+Sa pamamagitan ni Silvano, na itinuturing kong tapat nating kapatid, ay sinulatan ko kayo nang maikli upang pasiglahin kayo at magpatotoo na ito ang tunay na biyaya ng Diyos. Manindigan kayo rito.
+Binabati kayo ng babaing nasa Babilonia, na kasama ninyong hinirang, at ni Marcos na aking anak.
+Magbatian kayo ng halik ng pag-ibig.
+Kapayapaan nawa ang sumainyong lahat na na kay Cristo.
+Si Pablo, at sina Silvano at Timoteo, sa iglesya ng mga taga-Tesalonica na sa Diyos Ama at sa Panginoong Jesu-Cristo: Sumainyo nawa ang biyaya at kapayapaan.
+Nagpapasalamat kaming lagi sa Diyos dahil sa inyong lahat na tuwina'y binabanggit namin kayo sa aming mga panalangin.
+Aming inaalala sa harapan ng ating Diyos at Ama ang inyong gawang mula sa pananampalataya, pagpapagal sa pag-ibig at katatagan ng pag-asa sa ating Panginoong Jesu-Cristo;
+yamang aming nalalaman, mga kapatid na minamahal ng Diyos, ang pagkahirang sa inyo.
+Sapagkat ang aming ebanghelyo ay hindi dumating sa inyo sa salita lamang, kundi sa kapangyarihan din at sa Espiritu Santo at sa lubos na pagtitiwala, kung paanong nalalaman ninyo kung anong pagkatao ang aming pinatunayan sa inyo alang-alang sa inyo.
+At kayo'y naging taga-tulad sa amin at sa Panginoon, na inyong tinanggap ang salita sa matinding kapighatian, na may kagalakan ng Espiritu Santo,
+anupa't kayo'y naging halimbawa sa lahat ng mananampalatayang nasa Macedonia at nasa Acaia.
+Sapagkat mula sa inyo'y umalingawngaw ang salita ng Panginoon, hindi lamang sa Macedonia at Acaia, kundi sa lahat ng dako ay napabalita ang inyong pananampalataya sa Diyos; kaya't kami ay hindi na kailangang magsalita pa ng anuman.
+Sapagkat sila ang nagbalita tungkol sa amin, kung paano ninyo kami tinanggap at kung paanong bumaling kayo sa Diyos mula sa mga diyus-diyosan, upang maglingkod sa buháy at tunay na Diyos,
+at upang hintayin ang kanyang Anak mula sa langit, na kanyang binuhay mula sa mga patay, si Jesus na nagliligtas sa atin mula sa poot na darating.
+Kayo mismo ang nakakaalam, mga kapatid, na ang aming pagdating sa inyo ay hindi nawalan ng kabuluhan.
+Bagaman nagdusa na kami at inalipusta sa Filipos, tulad ng inyong nalalaman, ay naglakas loob kami sa ating Diyos upang ipahayag sa inyo ang ebanghelyo ng Diyos sa gitna ng napakalaking pagsalungat.
+Sapagkat ang aming pangaral ay hindi mula sa pandaraya, ni sa karumihan, ni sa panlilinlang,
+kundi kung paanong kami'y minarapat ng Diyos na pagkatiwalaan ng ebanghelyo ay gayon kami nagsasalita, hindi upang bigyang-lugod ang mga tao, kundi ang Diyos na sumusuri sa aming mga puso.
+Sapagkat hindi kami natagpuang gumamit kailanman ng mga salitang paimbabaw, gaya ng nalalaman ninyo, ni ng balabal ng kasakiman, saksi namin ang Diyos;
+ni nagsihanap man sa mga tao ng kapurihan, ni sa inyo o sa iba man, bagaman may karapatan kaming humingi bilang mga apostol ni Cristo.
+Kundi kami ay naging malumanay sa gitna ninyo, gaya ng isang ina na nag-aaruga sa kanyang mga anak.
+Palibhasa'y nagmamalasakit kami sa inyo, ipinasiya naming kayo'y bahaginan, hindi lamang ng ebanghelyo ng Diyos, kundi pati ng aming mga sariling kaluluwa, sapagkat kayo'y napamahal na sa amin.
+Natatandaan ninyo, mga kapatid, ang aming pagpapagal at paghihirap. Gumagawa kami araw at gabi upang huwag kaming maging pasanin sa kaninuman sa inyo. Ipinahayag namin sa inyo ang ebanghelyo ng Diyos.
+Kayo'y mga saksi, at pati ang Diyos, kung gaano kadalisay, matuwid at walang kapintasan ang inasal namin sa inyo na mga mananampalataya.
+Gaya ng inyong nalalaman, pinakitunguhan namin kayong tulad ng isang ama sa kanyang mga anak,
+na kayo'y pinangaralan at pinalakas ang loob ninyo, at nagpatotoo, upang kayo'y lumakad nang nararapat sa Diyos, na siyang tumawag sa inyo sa kanyang sariling kaharian at kaluwalhatian.
+At kami ay patuloy na nagpapasalamat sa Diyos, na nang inyong tanggapin ang salita ng Diyos na inyong narinig sa amin ay inyong tinanggap iyon hindi bilang salita ng mga tao, kundi, ayon sa katotohanan, ay bilang salita ng Diyos, na gumagawa naman sa inyo na sumasampalataya.
+Sapagkat kayo, mga kapatid, ay naging taga-tulad sa mga iglesya ng Diyos kay Cristo Jesus na nasa Judea, sapagkat nagdusa din naman kayo ng mga gayong bagay mula sa inyong sariling mga kababayan, gaya naman nila sa mga Judio.
+Sila ang pumatay sa Panginoong Jesus at sa mga propeta, at kami ay kanilang pinalayas. Sila'y hindi nagbigay-lugod sa Diyos at sinalungat ang lahat ng mga tao,
+at pinagbawalan kaming magsalita sa mga Hentil upang maligtas ang mga ito. Kaya't kanilang pinupunong lagi ang kanilang mga kasalanan; ngunit dumating sa kanila ang poot ng Diyos hanggang sa katapusan.
+Ngunit kami, mga kapatid, na nahiwalay sa inyo ng maikling panahon, sa katawan hindi sa puso, ay lalong higit na nananabik na makita kayo nang mukhaan.
+Sapagkat nais naming pumunta sa inyo—lalo na akong si Pablo na paulit-ulit na nais makabalik—ngunit hinadlangan kami ni Satanas.
+Sapagkat ano ang aming pag-asa, o kagalakan, o putong ng kapurihan sa harapan ng ating Panginoong Jesus sa kanyang pagdating? Hindi ba kayo?
+Sapagkat kayo ang aming kaluwalhatian at kagalakan.
+Kaya't nang hindi na kami makatiis ay minabuti naming maiwang walang kasama sa Atenas;
+at aming isinugo si Timoteo, na aming kapatid at kamanggagawa ng Diyos sa ebanghelyo ni Cristo, upang kayo'y kanyang patibayin at pasiglahin tungkol sa inyong pananampalataya;
+upang ang sinuma'y huwag mabagabag ng mga kapighatiang ito. Sa katunayan kayo rin ang nakakaalam na itinalaga kami sa bagay na ito.
+Sapagkat sa katotohanan, nang kami ay kasama ninyo ay aming sinabi noon pa mang una na kami ay makakaranas ng kapighatian; gaya nga ng nangyari, at nalalaman ninyo.
+Dahil dito, nang hindi ko na matiis pa, ako'y nagsugo upang mabatid ko ang inyong pananampalataya, sa takot na baka sa anumang paraan kayo'y natukso na ng manunukso, at ang aming pagpapagal ay mawalan ng kabuluhan.
+Ngunit si Timoteo ay dumating na sa amin mula sa inyo, at nagdala sa amin ng magandang balita tungkol sa inyong pananampalataya at pag-ibig. Sinabi rin niya sa amin na lagi ninyo kaming naaalala at nananabik na makita kami na gaya naman namin na nananabik na makita kayo.
+Dahil dito'y naaliw kami, mga kapatid, sa lahat ng aming kalungkutan at paghihirap sa pamamagitan ng inyong pananampalataya.
+Sapagkat ngayon ay nabubuhay kami, kung kayo'y maninindigang matibay sa Panginoon.
+Sapagkat ano ngang pasasalamat ang aming maisasauli sa Diyos dahil sa inyo, dahil sa lahat ng kagalakan na aming nadarama dahil sa inyo sa harapan ng aming Diyos?
+Gabi't araw ay masikap naming idinadalangin na makita namin kayo nang mukhaan at aming maibalik ang anumang kulang sa inyong pananampalataya.
+Ngayo'y patnubayan nawa ng ating Diyos at Ama at ng ating Panginoong Jesus ang aming paglalakbay patungo sa inyo.
+At nawa'y palaguin at pasaganain kayo ng Panginoon sa pag-ibig sa isa't isa at sa lahat ng tao, gaya naman namin sa inyo.
+Patibayin nawa niya ang inyong mga puso sa kabanalan upang maging walang kapintasan sa harapan ng ating Diyos at Ama, sa pagdating ng ating Panginoong Jesus na kasama ang lahat ng kanyang mga banal.
+Katapus-tapusan, mga kapatid, hinihiling namin sa inyo at nakikiusap kami sa Panginoong Jesus, yamang natutunan ninyo sa amin kung paano kayo dapat lumakad at magbigay-lugod sa Diyos, na tulad ng inyong ginagawa, ay gayon ang dapat ninyong gawin at higit pa.
+Sapagkat batid ninyo kung anong mga tagubilin ang ibinigay namin sa inyo sa pamamagitan ng Panginoong Jesus.
+Sapagkat ito ang kalooban ng Diyos, ang inyong pagpapakabanal: na kayo'y umiiwas sa pakikiapid;
+na ang bawat isa sa inyo'y matutong maging mapagpigil sa kanyang sariling katawan sa pagpapakabanal at karangalan,
+hindi sa pita ng kahalayan, na gaya ng mga Hentil na hindi nakakakilala sa Diyos;
+na sinuma'y huwag magkasala o manlamang sa kanyang kapatid sa bagay na ito, sapagkat ang Panginoon ay tagapaghiganti sa lahat ng mga bagay na ito, gaya ng aming sinabi noong una at ibinabala sa inyo.
+Sapagkat hindi tayo tinawag ng Diyos para sa karumihan kundi sa kabanalan.
+Kaya't ang tumanggi dito ay hindi tao ang tinatanggihan, kundi ang Diyos na nagbibigay sa amin ng kanyang Espiritu Santo.
+Ngunit tungkol sa pag-iibigan ng magkakapatid ay hindi ninyo kailangan na kayo'y sulatan ng sinuman, sapagkat kayo man ay tinuruan ng Diyos na mag-ibigan sa isa't isa.
+At katotohanang ginagawa ninyo ang gayon sa lahat ng kapatid na nasa buong Macedonia. Ngunit aming hinihiling sa inyo, mga kapatid, na higit pa sa rito ang inyong gawin.
+Nasain ninyong mamuhay nang tahimik, gawin ang inyong sariling gawain, at kayo'y magpagal ng inyong sariling mga kamay, gaya ng aming ipinagbilin sa inyo;
+upang kayo'y igalang ng mga nasa labas, at huwag maging palaasa sa sinuman.
+Mga kapatid, nais naming malaman ninyo ang tungkol sa mga natutulog upang kayo'y huwag malungkot, na gaya ng iba na walang pag-asa.
+Sapagkat kung tayo'y sumasampalatayang si Jesus ay namatay at muling binuhay ay gayundin naman, sa pamamagitan ni Jesus, ang mga natutulog ay dadalhin ng Diyos na kasama niya.
+Sapagkat ito'y sinasabi namin sa inyo sa pamamagitan ng salita ng Panginoon, na tayong nabubuhay, na natitira hanggang sa pagdating ng Panginoon, ay hindi mauuna sa anumang paraan sa mga natutulog.
+Sapagkat ang Panginoon mismo ang bababa mula sa langit na may sigaw, may tinig ng arkanghel, at may trumpeta ng Diyos, at ang mga namatay kay Cristo ay babangon muna.
+Pagkatapos, tayong nabubuhay na natitira ay aagawing kasama nila sa mga ulap, upang salubungin ang Panginoon sa papawirin; at sa gayon ay makakapiling natin ang Panginoon magpakailanman.
+Kaya't mag-aliwan kayo sa isa't isa ng mga salitang ito.
+Mga kapatid, tungkol sa oras at mga panahon, hindi na kailangang mayroong isulat pa sa inyo.
+Sapagkat kayo rin ang lubos na nakakaalam na ang araw ng Panginoon ay darating na gaya ng magnanakaw sa gabi.
+Kapag sinasabi nila, “Kapayapaan at katiwasayan,” kaagad darating sa kanila ang biglang pagkawasak, na gaya ng pagdaramdam sa panganganak ng babaing nagdadalang-tao, at walang makakatakas!
+Ngunit kayo, mga kapatid, ay wala sa kadiliman, upang sa araw na iyon ay mabigla kayong gaya sa magnanakaw.
+Sapagkat kayong lahat ay pawang mga anak ng liwanag at mga anak ng araw; tayo'y hindi ng gabi ni ng kadiliman man.
+Kaya nga, huwag tayong matulog gaya ng mga iba, kundi tayo'y manatiling handa at magpakatino.
+Sapagkat ang mga natutulog ay natutulog sa gabi; at ang naglalasing ay naglalasing sa gabi.
+Ngunit palibhasa'y mga anak tayo ng araw, magpakatino tayo, at isuot natin ang baluti ng pananampalataya at ng pag-ibig; at ang maging helmet ay ang pag-asa ng kaligtasan.
+Sapagkat tayo'y hindi itinalaga ng Diyos sa galit, kundi sa pagtatamo ng kaligtasan sa pamamagitan ng ating Panginoong Jesu-Cristo,
+na namatay dahil sa atin, upang tayo, maging gising o tulog man, ay mabuhay tayong kasama niya.
+Dahil dito, pasiglahin ninyo ang isa't isa at patibayin ang isa't isa, gaya ng inyong ginagawa.
+Subalit hinihiling namin sa inyo, mga kapatid, na inyong igalang ang mga nagpapagal sa inyo, at namumuno sa inyo sa Panginoon at nagtuturo sa inyo;
+at lubos ninyo silang igalang na may pag-ibig dahil sa kanilang gawain. Magkaroon kayo ng kapayapaan sa isa't isa.
+Mga kapatid, aming isinasamo sa inyo, na inyong pangaralan ang mga tamad, palakasin ang mahihinang-loob, alalayan ang mga mahihina, at maging matiisin kayo sa lahat.
+Tiyakin ninyo na ang sinuman ay huwag gumanti ng masama sa masama, kundi lagi ninyong naisin ang mabuti para sa isa't isa at sa lahat.
+Magalak kayong lagi.
+Manalangin kayong walang patid.
+Sa lahat ng bagay ay magpasalamat kayo, sapagkat ito ang kalooban ng Diyos kay Cristo Jesus para sa inyo.
+Huwag ninyong patayin ang ningas ng Espiritu.
+Huwag ninyong hamakin ang mga pagpapahayag ng propesiya,
+kundi subukin ninyo ang lahat ng mga bagay; panghawakan ninyo ang mabuti.
+Layuan ninyo ang bawat anyo ng kasamaan.
+Pakabanalin nawa kayong lubos mismo ng Diyos ng kapayapaan; at ang inyong espiritu at kaluluwa at katawan ay ingatang buo, na walang kapintasan sa pagdating ng ating Panginoong Jesu-Cristo.
+Tapat ang sa inyo'y tumatawag, na gagawa rin naman nito.
+Mga kapatid, idalangin ninyo kami.
+Batiin ninyo ang lahat ng mga kapatid ng banal na halik.
+Si Pablo, na apostol ni Cristo Jesus ayon sa utos ng Diyos na ating Tagapagligtas, at ni Cristo Jesus na ating pag-asa,
+Kay Timoteo na aking tunay na anak sa pananampalataya: Biyaya, kahabagan, at kapayapaan mula sa Diyos Ama at kay Jesu-Cristo na Panginoon natin.
+Pinapakiusapan kitang manatili sa Efeso gaya noong patungo ako sa Macedonia, na iyong atasan ang ilang tao na huwag magturo ng ibang aral,
+ni huwag bigyang-pansin ang mga alamat at walang katapusang talaan ng lahi, na nagiging sanhi ng mga haka-haka sa halip ng pagsasanay na mula sa Diyos na nakikilala sa pamamagitan ng pananampalataya.
+Subalit ang layunin ng aming tagubilin ay pag-ibig na nagmumula sa malinis na puso at sa mabuting budhi at sa pananampalatayang hindi pakunwari.
+Ang ilan ay lumihis mula rito at bumaling sa walang kabuluhang pag-uusap,
+na nagnanais na maging mga guro ng kautusan, gayong hindi nila nauunawaan ang kanilang sinasabi, maging ang mga bagay na kanilang buong tiwalang pinaninindigan.
+Ngunit nalalaman natin na ang kautusan ay mabuti, kung ginagamit ng tao sa matuwid na paraan.
+Ito ay nangangahulugang nauunawaan na ang kautusan ay hindi ginawa para sa taong matuwid, kundi para sa mga walang kinikilalang batas at mapaghimagsik, para sa masasama at mga makasalanan, para sa mga hindi banal at lapastangan, para sa mga pumapatay sa ama at sa ina, para sa mga mamamatay-tao,
+para sa mga mapakiapid, para sa nakikipagtalik sa kapwa lalaki o kapwa babae, para sa mga nagbebenta ng alipin, para sa mga sinungaling, para sa mga mandaraya, at kung may iba pang bagay na salungat sa mahusay na aral;
+ayon sa maluwalhating ebanghelyo ng mapagpalang Diyos na ipinagkatiwala sa akin.
+Nagpapasalamat ako sa kanya na nagpapalakas sa akin, kay Cristo Jesus na Panginoon natin, sapagkat ako'y itinuring niyang tapat, na ako'y inilagay sa paglilingkod sa kanya.
+Kahit na noong una ako'y isang lapastangan, mang-uusig at mang-aalipusta, gayunma'y kinahabagan ako, sapagkat sa kamangmangan ay ginawa ko iyon sa kawalan ng pananampalataya,
+at labis na sumagana sa akin ang biyaya ng ating Panginoon na may pananampalataya at pag-ibig na na kay Cristo Jesus.
+Tapat ang salita at nararapat tanggapin nang lubos, na si Cristo Jesus ay pumarito sa sanlibutan upang iligtas ang mga makasalanan; na ako ang pangunahin sa mga ito.
+Ngunit dahil dito, nakatanggap ako ng habag upang sa akin na pangunahin ay maipahayag ni Jesu-Cristo ang kanyang sakdal na pagtitiis, bilang halimbawa sa mga sasampalataya sa kanya, tungo sa buhay na walang hanggan.
+Sa Haring walang hanggan, walang kamatayan, di-nakikita, tanging Diyos, ang karangalan at kaluwalhatian magpakailanpaman. Amen.
+Ang biling ito ay ipinagkakatiwala ko sa iyo, Timoteo na aking anak, ayon sa mga propesiya na ginawa noong una tungkol sa iyo, upang sa pamamagitan ng mga ito ay makipaglaban ka ng mabuting pakikipaglaban,
+na iniingatan ang pananampalataya at ang mabuting budhi. Sa pamamagitan ng pagtatakuwil sa budhi, ang ibang tao ay nakaranas ng pagkawasak ng barko sa kanilang pananampalataya;
+kabilang sa mga ito sina Himeneo at Alejandro na aking ibinigay kay Satanas, upang sila'y maturuang huwag manlapastangan.
+Una sa lahat, ay isinasamo ko na gawin ang mga paghiling, mga panalangin, mga pamamagitan, at mga pagpapasalamat patungkol sa lahat ng mga tao;
+patungkol sa mga hari at sa lahat ng nasa mataas na katungkulan upang tayo'y mamuhay na tahimik at payapa sa buong kabanalan at paggalang.
+Ito'y mabuti at kaaya-aya sa paningin ng Diyos na ating Tagapagligtas;
+na nagnanais na ang lahat ng tao ay maligtas at makarating sa pagkakilala ng katotohanan.
+Sapagkat may isang Diyos at may isang tagapamagitan sa Diyos at sa mga tao, ang taong si Cristo Jesus,
+na ibinigay ang kanyang sarili na pantubos sa lahat; na siyang patotoo sa tamang panahon.
+Para dito'y itinalaga ako na isang mangangaral at apostol (sinasabi ko ang katotohanan, hindi ako nagsisinungaling), guro sa mga Hentil sa pananampalataya at katotohanan.
+Ibig ko ngang ang mga lalaki ay manalangin sa bawat dako, na itinataas ang kanilang mga banal na kamay na walang galit at pag-aalinlangan.
+Gayundin naman, na ang mga babae ay dapat na magdamit na may kahinhinan, naaangkop at hindi mahalay; hindi ng napapalamutiang buhok, at ng ginto o perlas o mamahaling damit;
+kundi ng mabubuting gawa na siyang nararapat sa mga babaing nagpapahayag ng paggalang sa Diyos.
+Hayaang ang babae'y matuto sa katahimikan na may buong pagpapasakop.
+Hindi ko ipinahihintulot na ang babae ay magturo, ni magkaroon ng pamumuno sa lalaki, kundi tumahimik.
+Sapagkat si Adan ang unang nilalang, pagkatapos ay si Eva;
+at si Adan ay hindi nadaya, kundi ang babae nang madaya ay nahulog sa pagkakasala.
+Ngunit ililigtas ang babae sa pamamagitan ng panganganak, kung sila'y mananatiling may kaayusan sa pananampalataya, pag-ibig at sa kabanalan.
+Tapat ang salita: Kung ang sinuman ay naghahangad na maging obispo, siya ay nagnanais ng mabuting gawain.
+Kailangan na ang obispo ay walang kapintasan, asawa ng isang babae, mapagpigil, matino ang pag-iisip, kagalang-galang, mapagpatuloy ng panauhin, mahusay magturo,
+hindi mahilig sa alak, hindi mapusok kundi mahinahon, hindi palaaway, at hindi maibigin sa salapi.
+Dapat ay pinamamahalaan niyang mabuti ang kanyang sariling sambahayan, sinusupil ang kanyang mga anak, at may lubos na paggalang.
+Sapagkat kung ang sinuman ay hindi marunong mamahala ng kanyang sariling sambahayan, paano niya pangangalagaan ang iglesya ng Diyos?
+Hindi isang bagong hikayat, baka siya magpalalo at mahulog sa kahatulan ng diyablo.
+Bukod dito'y dapat din namang siya'y magkaroon ng mabuting patotoo mula sa mga nasa labas, baka siya mahulog sa kahihiyan at bitag ng diyablo.
+Gayundin naman ang mga diakono ay dapat na maging kagalang-galang, hindi dalawang dila, hindi nalululong sa maraming alak, hindi mga sakim sa masamang pagkakakitaan,
+na iniingatan ang hiwaga ng pananampalataya nang may malinis na budhi.
+At ang mga ito rin naman ay subukin muna; at kung mapatunayang walang kapintasan, hayaan silang maglingkod bilang mga diakono.
+Gayundin naman, ang mga babae ay dapat na maging kagalang-galang, hindi mapanirang-puri, kundi mapagpigil, tapat sa lahat ng mga bagay.
+Ang mga diakono ay dapat na may tig-iisang asawa lamang, at pinamamahalaang mabuti ang kanilang mga anak at ang kanilang sariling mga sambahayan.
+Sapagkat ang mga nakapaglingkod nang mabuti bilang mga diakono ay nagtatamo para sa kanilang sarili ng isang mabuting katayuan, at ng malaking pagtitiwala sa pananampalataya kay Cristo Jesus.
+Ang mga bagay na ito ay aking isinusulat sa iyo, na umaasang makakarating sa iyo sa madaling panahon,
+ngunit kung ako'y maantala, ay maaari mong malaman kung ano ang dapat ugaliin ng bawat tao sa bahay ng Diyos, na siyang iglesya ng Diyos na buháy, ang haligi at suhay ng katotohanan.
+Walang pag-aalinlangan, dakila ang hiwaga ng kabanalan:
+Siyang nahayag sa laman,
+pinatunayang matuwid sa espiritu, nakita ng mga anghel,
+Ngayon ay maliwanag na sinasabi ng Espiritu na sa mga huling panahon ang iba'y tatalikod sa pananampalataya sa pamamagitan ng pakikinig sa mga mandarayang espiritu at sa mga aral ng mga demonyo,
+sa pamamagitan ng pagkukunwari ng mga nagsasalita ng mga kasinungalingan, na ang mga budhi ay tinatakan ng nagbabagang bakal.
+Kanilang ipagbabawal ang pag-aasawa at ipag-uutos na lumayo sa mga pagkaing nilalang ng Diyos upang tanggapin na may pagpapasalamat ng mga nananampalataya at nakakaalam ng katotohanan.
+Sapagkat ang bawat nilalang ng Diyos ay mabuti at walang anumang dapat tanggihan, kung tinatanggap ito na may pagpapasalamat;
+sapagkat ito ay pinababanal sa pamamagitan ng salita ng Diyos at ng panalangin.
+Kung ituturo mo sa mga kapatid ang mga bagay na ito, ikaw ay magiging isang mabuting lingkod ni Cristo Jesus, na pinalusog sa mga salita ng pananampalataya at ng mabuting aral na iyong sinusunod.
+Subalit tanggihan mo ang masasama at mga walang kabuluhang katha. Sanayin mo ang iyong sarili sa kabanalan,
+sapagkat ang pagsasanay sa katawan ay may kaunting pakinabang subalit ang kabanalan ay may kapakinabangan sa lahat ng bagay, na may pangako sa buhay na ito at sa darating.
+Tapat ang salita at nararapat tanggapin nang lubos.
+Sapagkat dahil dito ay nagpapagal kami at nagsisikap, sapagkat nakalagak ang aming pag-asa sa Diyos na buháy, na siyang Tagapagligtas ng lahat ng tao, lalo na ng mga nananampalataya.
+Iutos at ituro mo ang mga bagay na ito.
+Huwag mong hayaang hamakin ng sinuman ang iyong kabataan; kundi ikaw ay maging halimbawa ng mga mananampalataya sa pananalita, pag-uugali, pag-ibig, pananampalataya, at sa kalinisan.
+Hanggang sa dumating ako, bigyang-pansin mo ang hayagang pagbabasa ng kasulatan, ang pangangaral, at ang pagtuturo.
+Huwag mong pabayaan ang kaloob na sa iyo'y ibinigay sa pamamagitan ng propesiya, na may pagpapatong ng mga kamay ng kapulungan ng matatanda.
+Gawin mo ang mga bagay na ito; italaga mo ang iyong sarili sa mga ito upang ang iyong pag-unlad ay makita ng lahat.
+Ingatan mo ang iyong sarili at ang iyong pagtuturo. Manatili ka sa mga bagay na ito, sapagkat sa paggawa nito ay maililigtas mo ang iyong sarili at ang mga nakikinig sa iyo.
+Huwag mong pagsabihan na may kagaspangan ang nakatatandang lalaki, kundi pakiusapan mo siyang tulad sa isang ama; sa mga kabataang lalaki na tulad sa mga kapatid;
+sa matatandang babae na tulad sa mga ina; at sa mga kabataang babae na tulad sa mga kapatid na babae, na may buong kalinisan.
+Parangalan mo ang mga babaing balo na tunay na balo.
+Ngunit kung ang sinumang babaing balo ay may mga anak o mga apo, hayaang matutunan muna nila ang kanilang banal na tungkulin sa kanilang sariling sambahayan, at gantihan ang kanilang mga magulang, sapagkat ito'y kaaya-aya sa paningin ng Diyos.
+Ang tunay na babaing balo at naiwang nag-iisa ay umaasa sa Diyos at nagpapatuloy sa mga pagdaing at mga panalangin gabi't araw;
+subalit ang nabubuhay sa mga kalayawan, bagama't buháy ay patay.
+Ang mga bagay na ito'y iutos mo rin naman upang sila'y hindi magkaroon ng kapintasan.
+Ngunit kung ang sinuman ay hindi kumakalinga sa kanyang kamag-anak, lalung-lalo na sa kanyang sariling sambahayan, tinanggihan niya ang pananampalataya at siya'y masahol pa sa hindi mananampalataya.
+Isama sa talaan ang babaing balo kung siya ay animnapung taong gulang pataas, at naging asawa ng iisang lalaki;
+na may mabuting patotoo tungkol sa mabubuting gawa; na siya'y nagpalaki ng mga anak, na siya'y nagpatuloy ng mga panauhin sa kanyang tahanan, naghugas ng mga paa ng mga banal, dumamay sa mga naghihirap, at itinalaga niya ang sarili sa paggawa ng mabuti sa lahat ng paraan.
+Ngunit huwag mong itala ang mga nakababatang babaing balo; sapagkat nang magkaroon sila ng masamang nasa na naghihiwalay sa kanila kay Cristo, ay nais nilang mag-asawa;
+kaya't sila'y nagkakaroon ng kahatulan, sapagkat itinakuwil nila ang kanilang unang panata.
+Bukod dito, natututo silang maging mga tamad, nagpapalipat-lipat sa bahay-bahay; at hindi lamang mga tamad, kundi mga tsismosa at mga pakialamera, na nagsasalita ng mga bagay na hindi nararapat.
+Kaya nga, ibig kong magsipag-asawa ang mga batang babaing balo, manganak, mamahala ng sambahayan, huwag magbigay sa kaaway ng anumang kadahilanan ng panlilibak,
+sapagkat ang mga iba'y bumaling at sumunod na kay Satanas.
+Kung ang sinumang babaing nananampalataya ay may mga kamag-anak sa mga babaing balo, kanyang tulungan sila upang huwag nang mabigatan ang iglesya, at upang matulungan ng iglesya ang mga tunay na balo.
+Ang matatanda na namamahalang mabuti ay ituring na may karapatan sa ibayong karangalan, lalung-lalo na ang mga nagpapagal sa pangangaral at sa pagtuturo.
+Sapagkat sinasabi ng kasulatan, “Huwag mong lalagyan ng busal ang baka kapag gumigiik,” at, “Ang manggagawa ay karapat-dapat sa kanyang sahod.”
+Huwag kang tatanggap ng sumbong laban sa matanda, maliban sa patotoo ng dalawa o tatlong saksi.
+Sila namang nagpapatuloy sa pagkakasala ay sawayin mo sa harapan ng lahat, upang ang iba nama'y matakot.
+Inaatasan kita sa harap ng Diyos at ni Cristo Jesus, at ng mga anghel na hinirang, na iyong sundin ang mga bagay na ito na walang kinikilingan, at huwag mong gagawin ang anumang bagay nang may pagtatangi.
+Huwag mong ipatong na madalian ang iyong mga kamay sa kanino man, ni huwag kang makiisa sa mga kasalanan ng iba; panatilihin mong malinis ang iyong sarili.
+Huwag ka nang iinom ng tubig lamang, kundi gumamit ka ng kaunting alak dahil sa iyong tiyan at sa iyong madalas na pagkakasakit.
+Ang mga kasalanan ng ibang tao ay hayag, at nauuna sa kanila sa paghuhukom, ngunit ang kasalanan ng iba ay susunod sa kanila roon.
+Gayundin naman, ang mabubuting gawa ay hayag at kung hindi gayon, ang mga iyon ay hindi mananatiling lihim.
+Ituring ng lahat ng mga nasa ilalim ng pamatok ng pagkaalipin ang kanilang mga amo bilang karapat-dapat sa lahat ng karangalan, upang ang pangalan ng Diyos at ang aral ay hindi malapastangan.
+Ang mga may among mananampalataya ay huwag maging walang-galang sa kanila, sapagkat sila'y mga kapatid, kundi lalo pa silang maglingkod, sapagkat ang mga makikinabang ay mga mananampalataya at mga minamahal. Iyong ituro at ipangaral ang mga bagay na ito.
+Kung ang sinuma'y nagtuturo ng ibang aral at hindi sumasang-ayon sa mahuhusay na salita ng ating Panginoong Jesu-Cristo, at sa aral na ayon sa kabanalan,
+siya ay palalo, walang nauunawang anuman; at siya ay nahuhumaling sa mga usapin at sa pagtatalo tungkol sa mga salita na pinagmumulan ng inggit, away, paninirang-puri, mga masasamang hinala,
+pag-aaway ng mga taong masasama ang pag-iisip at salat sa katotohanan, na inaakalang ang kabanalan ay paraan ng pakinabang.
+Subalit ang kabanalan na may kasiyahan ay malaking pakinabang.
+Sapagkat wala tayong dinalang anuman sa sanlibutan, at wala rin naman tayong mailalabas na anuman;
+ngunit kung tayo'y may pagkain at damit, masiyahan na tayo sa mga ito.
+Ngunit ang mga nagnanais yumaman ay nahuhulog sa tukso, at nabibitag sa maraming hangal at nakapipinsalang pagnanasa, na siyang naglulubog sa mga tao sa pagkawasak at kapahamakan.
+Sapagkat ang pag-ibig sa salapi ay ugat ng lahat ng uri ng kasamaan; na ang ilang nagnasa rito ay napalayo sa pananampalataya at tinusok ang kanilang mga sarili ng maraming kalungkutan.
+Ngunit ikaw, O tao ng Diyos, layuan mo ang mga bagay na ito at sumunod ka sa katuwiran, sa pagiging maka-Diyos, sa pananampalataya, sa pag-ibig, sa pagtitiis, at sa kaamuan.
+Makipaglaban ka sa mabuting pakikipaglaban ng pananampalataya, panghawakan mo ang buhay na walang hanggan na dito'y tinawag ka, at ipinahayag mo ang mabuting pagpapahayag sa harapan ng maraming mga saksi.
+Sa harapan ng Diyos na nagbibigay ng buhay sa lahat ng mga bagay, at ni Cristo Jesus na nagpatotoo ng mabuting pagpapahayag sa harapan ni Poncio Pilato, inaatasan kita,
+na ingatan mong walang dungis at walang kapintasan ang utos hanggang sa pagpapakita ng ating Panginoong Jesu-Cristo;
+na kanyang ipahahayag sa takdang panahon—siya na mapalad at tanging Makapangyarihan, ang Hari ng mga hari, at Panginoon ng mga panginoon.
+Siya lamang ang walang kamatayan at naninirahan sa liwanag na di-malapitan; na hindi nakita ng sinumang tao, o makikita man. Sumakanya nawa ang karangalan at paghaharing walang hanggan. Amen.
+Ang mayayaman sa sanlibutang ito ay atasan mo na huwag magmataas ni huwag umasa sa mga kayamanang hindi tiyak, kundi sa Diyos na nagbibigay sa atin ng lahat ng mga bagay para sa ating kasiyahan.
+Dapat silang gumawa ng mabuti, maging mayaman sa mabubuting gawa, bukas ang palad at handang mamahagi,
+sa gayo'y magtitipon sila para sa kanilang sarili ng isang mabuting saligan para sa hinaharap upang sila'y makapanghawak sa tunay na buhay.
+O Timoteo, ingatan mo ang ipinagkatiwala sa iyo. Iwasan mo ang mga usapang walang kabuluhan at ang mga pagsalungat ng huwad na kaalaman;
+na sa pamamagitan ng paniniwala dito ang ilan ay nalihis sa pananampalataya. Sumainyo nawa ang biyaya.
 Si Pablo, na apostol ni Cristo Jesus sa pamamagitan ng kalooban ng Diyos, at si Timoteo na ating kapatid, sa iglesya ng Diyos na nasa Corinto, kasama ng lahat ng mga banal na nasa buong Acaia:
 Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos na ating Ama at sa Panginoong Jesu-Cristo.
 Purihin ang Diyos at Ama ng ating Panginoong Jesu-Cristo, ang Ama ng mga kaawaan at Diyos ng lahat ng kaaliwan;
@@ -258,6 +682,222 @@ Sa katapus-tapusan, mga kapatid, magalak kayo. Isaayos ninyo ang mga bagay-bagay
 Magbatian ang isa't isa ng banal na halik.
 Binabati kayo ng lahat ng mga banal.
 Ang biyaya ng Panginoong Jesu-Cristo, ang pag-ibig ng Diyos, at ang pakikisama ng Espiritu Santo ay sumainyo nawang lahat.
+Ang matanda, sa hinirang na ginang at sa kanyang mga anak, na aking iniibig sa katotohanan, at hindi lamang ako, kundi pati ang lahat ng mga nakakaalam ng katotohanan,
+dahil sa katotohanan na nananatili sa atin, at sasaatin magpakailanman:
+Sumaatin nawa ang biyaya, kahabagan, at kapayapaang mula sa Diyos Ama at kay Jesu-Cristo, ang Anak ng Ama, sa katotohanan at sa pag-ibig.
+Ako'y labis na nagalak na aking natagpuan ang ilan sa iyong mga anak na lumalakad sa katotohanan, ayon sa utos na ating tinanggap mula sa Ama.
+Ngunit ngayo'y hinihiling ko sa iyo, ginang, na hindi para bang sinusulatan kita ng isang bagong utos, kundi ang ating tinanggap buhat nang pasimula, na tayo'y mag-ibigan sa isa't isa.
+At ito ang pag-ibig, na tayo'y lumakad ayon sa kanyang mga utos. Ito ang utos, na gaya ng inyong narinig nang pasimula, na doon kayo'y lumakad.
+Maraming mandaraya na lumitaw sa sanlibutan, yaong mga hindi kumikilala na si Jesu-Cristo ay naparito sa laman; ito ang mandaraya at ang anti-Cristo.
+Ingatan ninyo ang inyong sarili, upang huwag ninyong maiwala ang mga bagay na aming pinagpaguran, kundi upang tumanggap kayo ng lubos na gantimpala.
+Ang sinumang lumalampas at hindi nananatili sa aral ni Cristo, ay hindi kinaroroonan ng Diyos; ang nananatili sa aral ay kinaroroonan ng Ama at gayundin ng Anak.
+Kung sa inyo'y dumating ang sinuman at hindi dala ang aral na ito, huwag ninyong tanggapin sa inyong bahay, at huwag ninyo siyang batiin,
+sapagkat ang bumabati sa kanya ay nakikibahagi sa kanyang masasamang gawa.
+Kahit na marami akong bagay na isusulat sa inyo, minabuti kong huwag ng gumamit ng papel at tinta, kundi inaasahan kong pumariyan sa inyo at makipag-usap nang harapan, upang malubos ang ating kagalakan.
+Ang mga anak ng iyong hinirang na kapatid na babae ay bumabati sa iyo.
+Si Simon Pedro, alipin at apostol ni Jesu-Cristo,
+Sa mga tumanggap ng mahalagang pananampalataya na gaya ng sa amin sa pamamagitan ng katuwiran ng ating Diyos at Tagapagligtas na si Jesu-Cristo:
+Sumagana nawa sa inyo ang biyaya at kapayapaan sa pagkakilala sa Diyos at kay Jesus na Panginoon natin.
+Ipinagkaloob sa atin ng kanyang banal na kapangyarihan ang lahat ng mga bagay na kailangan sa buhay at pagiging maka-Diyos, sa pamamagitan ng pagkakilala sa kanya na tumawag sa atin sa kanyang sariling kaluwalhatian at kabutihan.
+Gayon niya ipinagkaloob sa atin ang kanyang mahahalaga at mga dakilang pangako upang sa pamamagitan ng mga ito ay makatakas kayo sa kabulukang nasa sanlibutan dahil sa masamang pagnanasa, at maging kabahagi kayo sa likas ng Diyos.
+At dahil dito, gawin ninyo ang lahat ng inyong makakaya na tustusan ang inyong pananampalataya ng kabutihan; ang kabutihan ng kaalaman;
+ang kaalaman ng pagpipigil; ang pagpipigil ng pagtitiis; ang pagtitiis ng pagiging maka-Diyos;
+at ang pagiging maka-Diyos ng pagmamahal sa kapatid; at ang pagmamahal sa kapatid ng pag-ibig.
+Sapagkat kung ang mga bagay na ito ay nasa inyo at dumarami, hindi kayo magiging mga walang saysay o mga walang bunga sa pagkakilala sa ating Panginoong Jesu-Cristo.
+Sapagkat sinumang wala ng mga bagay na ito ay bulag at ang nasa malapit lamang ang nakikita, at nakalimutan na siya ay nilinis mula sa kanyang dating mga kasalanan.
+Kaya, mga kapatid, lalong pagsikapan ninyo na patatagin ang pagkatawag at pagkapili sa inyo, sapagkat kung gawin ninyo ang mga bagay na ito, hindi kayo matitisod kailanman.
+Sapagkat sa ganitong paraan ay masaganang ibibigay sa inyo ang pagpasok sa walang hanggang kaharian ng ating Panginoon at Tagapagligtas na si Jesu-Cristo.
+Kaya't lagi kong hinahangad na ipaalala sa inyo ang mga bagay na ito, bagama't inyong nalalaman na, at kayo'y pinapatibay sa katotohanang dumating sa inyo.
+Inaakala kong tama, na habang ako'y nasa toldang ito, ay gisingin ko kayo ng isang paalala,
+yamang aking nalalaman na malapit na ang pag-aalis ng aking tolda na gaya ng ipinakita sa akin ng Panginoon nating si Jesu-Cristo.
+At sisikapin ko rin na pagkatapos ng aking pagpanaw ay inyong maaalala ang mga bagay na ito sa anumang panahon.
+Sapagkat kami ay hindi sumunod sa mga kathang-isip na ginawang may katusuhan nang aming ipaalam sa inyo ang kapangyarihan at pagdating ng ating Panginoong Jesu-Cristo, kundi kami ay mga saksing nakakita ng kanyang kadakilaan.
+Sapagkat siya'y tumanggap sa Diyos Ama ng karangalan at kaluwalhatian, at dumating sa kanya ang isang tinig mula sa Marangal na Kaluwalhatian, na nagsasabi, “Ito ang minamahal kong Anak, na siya kong kinalulugdan.”
+Kami mismo ang nakarinig ng tinig na ito na nanggaling sa langit, nang kami ay kasama niya sa banal na bundok.
+Kaya't mayroon kaming salita ng propesiya na lalong tiyak. Mabuti ang inyong ginagawa kung ito'y inyong pagtutuunan ng pansin, gaya sa isang ilawang tumatanglaw sa isang dakong madilim, hanggang sa pagbubukang-liwayway, at ang tala sa umaga ay sumilang sa inyong mga puso.
+Una sa lahat, dapat ninyong malaman ito, na walang propesiya ng kasulatan na nagmula sa pansariling pagpapakahulugan,
+Ngunit may lumitaw ding mga bulaang propeta sa gitna ng sambayanan, kung paanong sa inyo'y magkakaroon ng mga bulaang guro, na palihim na magpapasok ng mga nakapipinsalang turo. Itatakuwil nila pati ang Panginoon na bumili sa kanila, na nagdadala sa kanilang sarili ng mabilis na pagkapuksa.
+At maraming susunod sa kanilang mga gawang mahahalay, na dahil sa kanila ay lalaitin ang daan ng katotohanan.
+At sa kanilang kasakiman ay pagsasamantalahan nila kayo sa pamamagitan ng mga pakunwaring salita. Ang hatol sa kanila mula nang una ay hindi maaantala at ang kanilang kapahamakan ay hindi natutulog.
+Sapagkat kung hindi pinatawad ng Diyos ang mga anghel nang magkasala sila, kundi sila'y ibinulid sa impiyerno, at nilagyan ng mga tanikala ng kadiliman, upang ingatan hanggang sa paghuhukom;
+at kung paanong ang matandang daigdig ay hindi niya pinatawad, bagaman iniligtas si Noe na tagapangaral ng katuwiran, kasama ng pitong iba pa, noong ang daigdig ng masasamang tao ay dinalhan ng baha;
+kung paanong pinarusahan niya ng pagkalipol ang mga lunsod ng Sodoma at Gomorra na ginawa niyang abo, upang maging halimbawa sa mga mamumuhay sa kasamaan,
+at kung paanong iniligtas niya ang matuwid na si Lot, na lubhang nabagabag sa mahahalay na pamumuhay ng masasama
+(sapagkat ang matuwid na taong ito na nabuhay na kasama nila araw-araw, ay lubhang nabagabag ang matuwid na kaluluwa dahil sa kanilang masasamang gawa na kanyang nakita at narinig),
+kung gayon ang Panginoon ay marunong magligtas ng mga banal mula sa pagsubok at maglaan ng mga di-matuwid sa ilalim ng kaparusahan hanggang sa araw ng paghuhukom;
+lalung-lalo na sa mga nagpapasasa sa kanilang laman sa pagnanasa, at hinahamak ang maykapangyarihan. Sila'y pangahas, matitigas ang ulo, at hindi natatakot na alipustain ang mga maluwalhati,
+samantalang ang mga anghel, bagama't lalong dakila ang lakas at kapangyarihan, ay hindi nagdadala ng paghatol na may pag-aalipusta laban sa kanila sa harapan ng Panginoon.
+Subalit ang mga taong ito, ay gaya ng mga hayop na walang bait, na ipinanganak na talagang mga hayop upang hulihin at patayin. Kanilang inaalipusta ang mga bagay na hindi nila nauunawaan at kapag ang mga nilalang na ito ay nilipol, sila ay lilipulin din,
+na pagdurusahan ang parusa sa paggawa ng masama. Itinuturing nilang isang kaligayahan ang magpakalayaw kung araw. Sila ay mga bahid at dungis, na nagpapakalayaw sa kanilang mga daya, habang sila'y nakikisalo sa inyong mga handaan.
+May mga mata silang punô ng pangangalunya, at hindi mapuknat sa pagkakasala, na kanilang inaakit ang mahihinang kaluluwa. May mga puso silang sanay sa kasakiman. Mga anak na isinumpa!
+Iniwan nila ang daang matuwid at naligaw sila, palibhasa'y sumunod sa daan ni Balaam na anak ni Beor, na umibig sa kabayaran ng kalikuan.
+Ngunit siya'y sinaway sa kanyang sariling pagsuway; isang asnong hindi makapagsalita ang nagsalita sa tinig ng tao at pinigil ang kabaliwan ng propeta.
+Ang mga ito'y mga bukal na walang tubig, mga ulap na tinatangay ng unos. Sa kanila'y inilaan ang pusikit na kadiliman.
+Sapagkat sila'y nagsasalita ng mga kayabangang walang kabuluhan, at nang-aakit sila sa pagnanasa ng laman sa pamamagitan ng kahalayan sa mga nakatakas mula sa mga namumuhay sa kamalian.
+Sila'y pinapangakuan nila ng kalayaan, gayong sila mismo'y mga alipin ng kabulukan; sapagkat sinuman ay inaalipin ng anumang lumupig sa kanila.
+Sapagkat kung pagkatapos na sila'y makatakas sa mga karumihan ng sanlibutan sa pamamagitan ng pagkakilala sa Panginoon at Tagapagligtas na si Jesu-Cristo, ay muli silang napasabit sa mga ito at nadaig, ang huling kalagayan nila ay mas masama kaysa nang una.
+Sapagkat mas mabuti pa sa kanila ang hindi nakaalam ng daan ng katuwiran, kaysa, pagkatapos na malaman ito ay tumalikod sa banal na utos na ibinigay sa kanila.
+Nangyari sa kanila ang ayon sa tunay na kawikaan, “Nagbabalik muli ang aso sa kanyang sariling suka,” at, “Ang babaing baboy na nahugasan na, sa paglulublob sa putik.”
+Mga minamahal, ito ngayon ang ikalawang sulat na isinusulat ko sa inyo; at sa dalawang ito'y ginigising ko ang inyong tapat na pag-iisip sa pamamagitan ng pagpapaalala sa inyo;
+na dapat ninyong maalala ang mga salitang ipinahayag noong una ng mga banal na propeta, at ang utos ng Panginoon at Tagapagligtas sa pamamagitan ng inyong mga apostol!
+Una sa lahat, dapat ninyong malaman ito, na sa mga huling araw ay darating ang mga manlilibak, na manlilibak at lumalakad ayon sa kanilang sariling mga pagnanasa,
+at magsasabi, “Nasaan ang pangako ng kanyang pagdating? Sapagkat, buhat pa nang mamatay ang ating mga ninuno, nananatili ang lahat ng mga bagay sa dati nilang kalagayan mula nang pasimula ng paglalang.”
+Sinasadya nilang hindi pansinin ang katotohanang ito, na sa pamamagitan ng salita ng Diyos ay nagkaroon ng langit nang unang panahon at inanyuan ang lupa mula sa tubig at sa pamamagitan ng tubig,
+na sa pamamagitan din nito ang daigdig noon ay inapawan ng tubig at nagunaw.
+Ngunit sa pamamagitan ng gayunding salita ang kasalukuyang langit at lupa ay iningatan para sa apoy, na inilalaan sa araw ng paghuhukom at sa paglipol sa masasamang tao.
+Subalit huwag ninyong kaliligtaan ang katotohanang ito, mga minamahal, ang isang araw sa Panginoon ay tulad ng sanlibong taon, at ang sanlibong taon ay tulad ng isang araw.
+Hindi mabagal ang Panginoon tungkol sa kanyang pangako, na gaya ng kabagalang itinuturing ng iba, kundi matiyaga sa inyo, na hindi niya ibig na sinuman ay mapahamak, kundi ang lahat ay dumating sa pagsisisi.
+Ngunit darating ang araw ng Panginoon na gaya ng isang magnanakaw, at ang kalangitan ay maglalaho kasabay ng malakas na ingay at ang mga sangkap ay matutupok sa apoy at ang lupa at ang mga gawang naroon ay masusunog.
+Yamang ang lahat ng mga bagay na ito ay mawawasak nang ganito, ano ngang uri ng pagkatao ang nararapat sa inyo sa banal na pamumuhay at pagiging maka-Diyos,
+na hinihintay at pinagmamadali ang pagdating ng araw ng Diyos, sapagkat ang kalangitan na nagliliyab ay matutupok, at ang mga sangkap ay matutunaw sa init!
+Ngunit, ayon sa kanyang pangako, ay naghihintay tayo ng bagong langit at ng bagong lupa, kung saan ang katuwiran ay naninirahan.
+Kaya nga, mga minamahal, yamang kayo'y naghihintay sa mga bagay na ito, ay pagsikapan ninyong matagpuan kayo sa kapayapaan, na walang dungis at walang kapintasan sa paningin niya.
+At inyong ituring ang pagtitiyaga ng ating Panginoon bilang kaligtasan. Gaya rin ng ating minamahal na kapatid na si Pablo, ayon sa karunungang ibinigay sa kanya, ay sinulatan kayo;
+gayundin naman sa lahat ng kanyang mga sulat na sinasabi sa mga iyon ang mga bagay na ito. Doon ay may mga bagay na mahirap unawain, na binabaluktot ng mga hindi nakakaalam at ng mga walang tiyaga, gaya rin naman ng kanilang ginagawa sa ibang mga kasulatan, sa ikapapahamak din nila.
+Kaya't kayo, mga minamahal, yamang nalalaman na ninyo noon pa ang mga bagay na ito, mag-ingat kayo, baka mailigaw kayo sa pamamagitan ng kamalian ng masasama at mahulog kayo mula sa inyong sariling katatagan.
+Subalit lumago kayo sa biyaya at sa pagkakilala sa ating Panginoon at Tagapagligtas na si Jesu-Cristo. Sumakanya nawa ang kaluwalhatian ngayon at hanggang sa araw ng walang-hanggan. Amen.
+Si Pablo, si Silvano, at si Timoteo, sa iglesya ng mga taga-Tesalonica na nasa Diyos na ating Ama at sa Panginoong Jesu-Cristo:
+Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos Ama at sa Panginoong Jesu-Cristo.
+Dapat kaming laging magpasalamat sa Diyos, mga kapatid, dahil sa inyo, gaya ng nararapat, sapagkat ang inyong pananampalataya ay lumalagong lubha, at ang pag-ibig ng bawat isa sa inyo para sa isa't isa ay nadaragdagan.
+Anupa't ipinagmamalaki namin kayo sa mga iglesya ng Diyos dahil sa inyong pagtitiis at pananampalataya sa lahat ng mga pag-uusig sa inyo at sa mga kapighatiang inyong tinitiis.
+Ito ay malinaw na katibayan ng matuwid na paghatol ng Diyos, upang kayo'y ariing karapat-dapat sa kaharian ng Diyos, na dahil dito'y nagdurusa kayo.
+Sapagkat tunay na matuwid sa Diyos na gantihan ng kapighatian ang mga nagpapahirap sa inyo,
+at kayong mga pinahihirapan ay bigyan ng kapahingahang kasama namin, sa pagkapahayag ng Panginoong Jesus mula sa langit na kasama ang kanyang mga makapangyarihang anghel,
+na nasa nagliliyab na apoy, na magbibigay ng parusa sa mga hindi kumikilala sa Diyos at sa mga hindi sumusunod sa ebanghelyo ng ating Panginoong Jesus.
+Ang mga ito'y tatanggap ng kaparusahang walang hanggang pagkapuksa at palalayasin sa harapan ng Panginoon at mula sa kaluwalhatian ng kanyang kalakasan,
+kapag dumating siya sa araw na iyon upang luwalhatiin sa kanyang mga banal, at kamanghaan ng lahat ng mga sumasampalataya, sapagkat ang aming patotoo sa inyo ay pinaniwalaan.
+Dahil din dito ay lagi naming idinadalangin kayo, na kayo'y ariin ng ating Diyos na karapat-dapat sa pagkatawag sa inyo, at tuparin ang bawat hangarin sa kabutihan at gawa ng pananampalataya na may kapangyarihan,
+upang ang pangalan ng ating Panginoong Jesus ay luwalhatiin sa inyo, at kayo'y sa kanya, ayon sa biyaya ng ating Diyos at ng Panginoong Jesu-Cristo.
+Ngayon, hinihiling namin sa inyo, mga kapatid, tungkol sa pagdating ng ating Panginoong Jesu-Cristo, at sa ating pagkakatipon sa kanya;
+na huwag kayong madaling matinag sa inyong pag-iisip, at huwag din namang mabagabag sa pamamagitan man ng espiritu, o sa pamamagitan ng salita, o sa pamamagitan ng sulat, na waring mula sa amin, na para bang dumating na ang araw ng Panginoon.
+Huwag kayong padaya kanino man sa anumang paraan, sapagkat ito'y hindi darating malibang maunang maganap ang pagtalikod, at mahayag ang taong makasalanan, ang anak ng kapahamakan.
+Siya ay sumasalungat at nagmamataas laban sa lahat ng tinatawag na diyos o sinasamba; anupa't siya'y nauupo sa templo ng Diyos, na ipinahahayag ang kanyang sarili na Diyos.
+Hindi ba ninyo naaalala na noong ako'y kasama pa ninyo ay sinabi ko sa inyo ang mga bagay na ito?
+At ngayo'y nakikilala ninyo kung ano ang nakakapigil upang siya'y mahayag sa kanyang takdang panahon.
+Sapagkat ang hiwaga ng kasamaan ay gumagawa na; tanging siya na sa ngayon ay pumipigil niyon ang gagawa ng gayon hanggang sa siya ay maalis.
+At kung magkagayo'y mahahayag ang taong makasalanan na siyang pupuksain ng Panginoong Jesus sa pamamagitan ng hininga ng kanyang bibig, at lilipulin sa pamamagitan ng pagkahayag ng kanyang pagdating.
+Ang pagdating ng taong makasalanan ay ayon sa paggawa ni Satanas na may buong kapangyarihan at mga tanda at mga mapanlinlang na kababalaghan,
+at may lahat ng mapandayang kasamaan para sa mga napapahamak, sapagkat tumanggi silang ibigin ang katotohanan upang sila'y maligtas.
+At dahil dito'y pinapadalhan sila ng Diyos ng makapangyarihang pagkalinlang upang maniwala sila sa kasinungalingan,
+upang mahatulan silang lahat na hindi sumampalataya sa katotohanan, sa halip ay nalugod sa kalikuan.
+Ngunit kami ay dapat laging magpasalamat sa Diyos dahil sa inyo, mga kapatid na minamahal ng Panginoon, sapagkat hinirang kayo ng Diyos bilang unang bunga sa kaligtasan sa pamamagitan ng pagpapabanal ng Espiritu at pananampalataya sa katotohanan.
+Dito'y tinawag niya kayo sa pamamagitan ng aming ebanghelyo, upang magkamit ng kaluwalhatian ng ating Panginoong Jesu-Cristo.
+Kaya nga, mga kapatid, kayo'y manindigang matibay at inyong panghawakan ang mga tradisyon na sa inyo'y itinuro namin, maging sa pamamagitan ng salita, o ng sulat mula sa amin.
+Ngayon, ang ating Panginoong Jesu-Cristo mismo at ang Diyos na ating Ama na umibig sa atin at nagbigay ng walang hanggang kaaliwan at mabuting pag-asa sa pamamagitan ng biyaya,
+Sa katapus-tapusan, mga kapatid, idalangin ninyo kami, upang ang salita ng Panginoon ay mabilis na lumaganap at luwalhatiin na tulad din sa inyo,
+at upang kami ay maligtas sa mga taong makasalanan at masasama, sapagkat hindi lahat ay mayroong pananampalataya.
+Ngunit tapat ang Panginoon na magpapatibay sa inyo, at magbabantay sa inyo laban sa masama.
+At may tiwala kami sa Panginoon tungkol sa inyo, na inyong ginagawa at gagawin naman ang mga bagay na aming ipinag-uutos.
+Patnubayan nawa ng Panginoon ang inyong mga puso sa pag-ibig ng Diyos at sa katatagan ni Cristo.
+Aming ipinag-uutos ngayon sa inyo, mga kapatid, sa pangalan ng ating Panginoong Jesu-Cristo, na kayo'y lumayo sa bawat kapatid na namumuhay sa katamaran, at hindi ayon sa tradisyon na tinanggap nila sa amin.
+Sapagkat kayo rin ang nakakaalam kung paano ninyo kami dapat tularan; hindi kami tamad noong kami'y kasama ninyo.
+Hindi kami kumain ng tinapay ng sinuman nang walang bayad, kundi sa pagpapagal at hirap ay gumagawa gabi't araw, upang kami ay huwag maging pasanin sa kanino man sa inyo.
+Hindi dahil sa kami ay walang karapatan, kundi upang maibigay namin ang aming mga sarili sa inyo bilang huwaran na dapat tularan.
+Sapagkat noon pa mang kami ay kasama ninyo ay aming iniutos ito sa inyo: “Kung ang sinuman ay ayaw magtrabaho ay huwag din namang kumain.”
+Sapagkat aming nababalitaan na ang ilan sa inyo ay namumuhay sa katamaran, hindi man lamang gumagawa, sa halip ay mga mapanghimasok.
+Ngayon, ang mga taong iyon ay inaatasan namin at pinapakiusapan namin sa Panginoong Jesu-Cristo na gumawa nang may katahimikan, upang makakain sila ng sarili nilang pagkain.
+Ngunit kayo, mga kapatid, huwag kayong manlupaypay sa paggawa ng mabuti.
+Inyong tandaan ang mga hindi sumusunod sa aming mga sinasabi sa sulat na ito; at huwag ninyo siyang pakisamahan nang siya'y mapahiya.
+Gayunma'y huwag ninyong ituring siyang kaaway, kundi inyo siyang pagsabihan bilang kapatid.
+Ngayon, nawa'y mismong ang Panginoon ng kapayapaan ang magbigay sa inyo ng kapayapaan sa lahat ng panahon at sa lahat ng paraan. Ang Panginoon ay sumainyo nawang lahat.
+Akong si Pablo ay sumusulat ng pagbating ito ng aking sariling kamay. Ito ang palatandaan sa bawat sulat ko; gayon ako sumusulat.
+Ang biyaya ng ating Panginoong Jesu-Cristo ay sumainyo nawang lahat.
+Si Pablo, apostol ni Cristo Jesus sa pamamagitan ng kalooban ng Diyos, ayon sa pangako ng buhay na na kay Cristo Jesus,
+Kay Timoteo na aking minamahal na anak: Biyaya, kahabagan, kapayapaan nawang mula sa Diyos Ama at kay Cristo Jesus na ating Panginoon.
+Nagpapasalamat ako sa Diyos, na aking pinaglilingkuran na may malinis na budhi gaya ng aking mga ninuno, kapag lagi kitang naaalala sa aking mga panalangin gabi't araw.
+Kapag naaalala ko ang iyong mga pagluha, kinasasabikan kong makita ka, upang ako'y mapuno ng kagalakan.
+Naaalala ko ang iyong tapat na pananampalataya, isang pananampalataya na unang nabuhay kay Loida na iyong lola at kay Eunice na iyong ina at ngayon, ako'y nakakatiyak, ay namamalagi sa iyo.
+Dahil dito ay ipinaaalala ko sa iyo na paningasin mo ang kaloob ng Diyos na nasa iyo sa pamamagitan ng pagpapatong ng aking mga kamay;
+sapagkat hindi tayo binigyan ng Diyos ng espiritu ng kaduwagan kundi ng espiritu ng kapangyarihan, ng pag-ibig at ng pagpipigil sa sarili.
+Huwag mong ikahiya ang pagpapatotoo sa ating Panginoon, ni sa akin na bilanggo niya, kundi makipagtiis ka alang-alang sa ebanghelyo ayon sa kapangyarihan ng Diyos,
+na siyang sa atin ay nagligtas at sa atin ay tumawag ng isang banal na pagtawag, hindi ayon sa ating mga gawa, kundi ayon sa kanyang sariling layunin at biyaya. Ang biyayang ito ay ibinigay sa atin kay Cristo Jesus bago pa nagsimula ang mga panahon,
+subalit ngayon ay nahayag sa pamamagitan ng pagpapakita ng ating Tagapagligtas na si Cristo Jesus, na siyang nag-alis ng kamatayan, at nagdala sa buhay at sa kawalan ng kamatayan tungo sa liwanag sa pamamagitan ng ebanghelyo.
+Dito ay itinalaga ako na tagapangaral, apostol at guro.
+At dahil din dito, ako'y nagdurusa ng mga bagay na ito; gayunma'y hindi ako nahihiya sapagkat kilala ko ang aking sinampalatayanan, at ako'y lubos na naniniwalang maiingatan niya ang aking ipinagkatiwala sa kanya hanggang sa araw na iyon.
+Sundan mo ang huwaran ng mga wastong salita na narinig mo sa akin, sa pananampalataya at pag-ibig na na kay Cristo Jesus.
+Ingatan mo ang mabuting bagay na ipinagkatiwala sa iyo sa pamamagitan ng Espiritu Santo na nabubuhay sa atin.
+Ito'y nalalaman mo na humiwalay sa akin ang lahat ng nasa Asia, kabilang sa kanila sina Figello at Hermogenes.
+Pagkalooban nawa ng Panginoon ng habag ang sambahayan ni Onesiforo, sapagkat madalas niya akong pinagiginhawa, at hindi niya ikinahiya ang aking tanikala;
+kundi nang siya'y dumating sa Roma, hinanap niya ako nang buong sikap, at ako'y natagpuan niya.
+Kaya't ikaw, anak ko, maging malakas ka sa biyayang na kay Cristo Jesus,
+at ang mga bagay na iyong narinig sa akin sa harap ng maraming saksi ay siya mo ring ipagkatiwala sa mga taong tapat na makakapagturo rin naman sa iba.
+Makipagtiis ka ng mga kahirapan, gaya ng mabuting kawal ni Cristo Jesus.
+Walang kawal na naglilingkod ang nakikisangkot sa mga bagay ng buhay na ito, yamang ang kanyang mithiin ay bigyang-kasiyahan ang nagtala sa kanya.
+Sinumang manlalaro ay hindi pinuputungan malibang nakipagpaligsahan siya ayon sa mga alituntunin.
+Ang magsasaka na nagpapakapagod ay siyang unang dapat na magkaroon ng bahagi sa mga bunga.
+Isipin mo ang sinasabi ko, sapagkat bibigyan ka ng Panginoon ng pagkaunawa sa lahat ng mga bagay.
+Alalahanin mo si Jesu-Cristo na muling binuhay mula sa mga patay, mula sa binhi ni David, ayon sa aking ebanghelyo,
+na dahil sa kanya ay nagtitiis ako ng kahirapan, maging hanggang sa pagkakaroon ng tanikala na tulad sa isang masamang tao. Ngunit ang salita ng Diyos ay hindi nagagapos.
+Kaya aking tinitiis ang lahat ng mga bagay dahil sa mga hinirang, upang kamtan din nila ang kaligtasan kay Cristo Jesus na may kaluwalhatiang walang hanggan.
+Tapat ang salita:
+Kung tayo'y namatay na kasama niya, mabubuhay rin tayong kasama niya;
+kung tayo'y magtitiis, maghahari naman tayong kasama niya;
+kung ating ikakaila siya, ay ikakaila rin niya tayo;
+kung tayo'y hindi tapat, siya'y nananatiling tapat;
+sapagkat hindi niya maipagkakaila ang kanyang sarili.
+Ipaalala mo sa kanila ang mga bagay na ito, na sila'y pagbilinan mo sa harapan ng Diyos na sila'y huwag makipagtalo tungkol sa mga salita na hindi mapapakinabangan kundi sa ikapapahamak lamang ng mga nakikinig.
+Pagsikapan mong humarap na subok sa Diyos, manggagawang walang anumang dapat ikahiya, na gumagamit nang wasto sa salita ng katotohanan.
+Subalit iwasan mo ang mga usapang walang kabuluhan, sapagkat ito'y magtutulak sa mga tao sa higit pang kasamaan,
+at ang kanilang salita ay kakalat na gaya ng ganggrena. Kasama sa mga ito si Himeneo at si Fileto,
+na lumihis sa katotohanan at sinasabing ang muling pagkabuhay ay naganap na. Kanilang ginugulo ang pananampalataya ng iba.
+Ngunit ang matibay na saligan ng Diyos ay nananatiling matatag na may tatak na ganito: “Kilala ng Panginoon ang mga kanya,” at, “Lumayo sa kalikuan ang bawat tumatawag sa pangalan ng Panginoon.”
+Sa isang malaking bahay ay hindi lamang may mga kasangkapang ginto at pilak, kundi mayroon din namang kahoy at luwad, at ang iba'y sa natatanging paggagamitan at ang iba'y para sa karaniwan.
+Kung nililinis ng sinuman ang kanyang sarili mula sa mga bagay na ito ay magiging tanging kagamitan, itinalaga at mahalaga sa may-ari ng bahay, handa sa lahat ng mabuting gawa.
+Ngunit layuan mo ang masasamang pagnanasa ng kabataan at sundin mo ang katuwiran, pananampalataya, pag-ibig, at kapayapaan, kasama ng mga tumatawag sa Panginoon mula sa malinis na puso.
+Iwasan mo ang mga usapang walang kabuluhan at hangal, yamang nalalaman mo na namumunga ang mga ito ng mga away.
+Ngunit unawain mo ito, na sa mga huling araw ay darating ang mga panahon ng kapighatian.
+Sapagkat ang mga tao'y magiging maibigin sa kanilang sarili, maibigin sa salapi, mayayabang, mga mapagmalaki, mapanlait, suwail sa mga magulang, mga walang utang na loob, walang kabanalan,
+walang katutubong pag-ibig, mga walang habag, mga mapanirang-puri, mga walang pagpipigil sa sarili, mababangis, mga hindi maibigin sa mabuti,
+mga taksil, matitigas ang ulo, mga palalo, mga maibigin sa kalayawan sa halip na mga maibigin sa Diyos;
+na may anyo ng kabanalan, ngunit tinatanggihan ang kapangyarihan nito. Lumayo ka rin naman sa mga ito.
+Sapagkat mula sa mga ito ang mga pumapasok sa sambahayan, at binibihag ang mga hangal na babae na punô ng mga kasalanan, at hinihila ng mga iba't ibang pagnanasa,
+na laging nag-aaral at kailanman ay hindi nakakarating sa pagkakilala ng katotohanan.
+Kung paanong sina Janes at Jambres ay sumalungat kay Moises, ang mga ito'y sumasalungat din sa katotohanan, mga taong masasama ang pag-iisip at mga nagtakuwil sa pananampalataya.
+Ngunit sila'y hindi magpapatuloy, sapagkat mahahayag sa lahat ng mga tao ang kanilang kahangalan, gaya ng nangyari sa mga lalaking iyon.
+Ngayon, sinunod mong mabuti ang aking aral, pamumuhay, layunin, pananampalataya, pagtitiyaga, pag-ibig, at pagtitiis,
+mga pag-uusig, mga pagdurusa, anumang mga bagay ang nangyari sa akin sa Antioquia, Iconio, Listra. Napakaraming pag-uusig ang tiniis ko! Ngunit sa lahat ng ito ay iniligtas ako ng Panginoon.
+Tunay na ang lahat ng ibig mabuhay na may kabanalan kay Cristo Jesus ay daranas ng pag-uusig.
+Subalit ang masasamang tao at mga mandaraya ay lalong sasama nang sasama, sila'y mandaraya at madadaya.
+Subalit manatili ka sa mga bagay na iyong natutunan at matatag na pinaniwalaan, yamang nalalaman mo kung kanino ka natuto,
+at kung paanong mula sa pagkabata ay iyong nalaman ang mga banal na kasulatan na makakapagturo sa iyo tungo sa kaligtasan sa pamamagitan ng pananampalataya kay Cristo Jesus.
+Ang lahat ng mga kasulatan ay kinasihan ng Diyos at mapapakinabangan sa pagtuturo, sa pagsaway, pagtutuwid, at sa pagsasanay sa katuwiran,
+upang ang tao ng Diyos ay maging ganap, nasasangkapang lubos sa lahat ng mga gawang mabuti.
+Sa harapan ng Diyos at ni Cristo Jesus, na siyang hahatol sa mga buháy at sa mga patay, at sa pamamagitan ng kanyang pagpapakita at sa kanyang kaharian, ay inaatasan kita:
+ipangaral mo ang salita, magsikap ka sa kapanahunan at sa di-kapanahunan, magtuwid ka, manaway ka, mangaral ka na may buong pagtitiyaga at pagtuturo.
+Sapagkat darating ang panahon na hindi nila matitiis ang wastong aral; kundi, sa pagkakaroon nila ng makakating tainga, ay mag-iipon sila para sa kanilang sarili ng mga gurong ayon sa kanilang sariling pagnanasa,
+at tatalikod sa pakikinig sa katotohanan ang kanilang mga tainga, at babaling sa mga kathang-isip.
+Ngunit ikaw ay maging matino sa lahat ng mga bagay, magtiis ka ng mga kahirapan, gampanan mo ang gawain ng isang ebanghelista, ganapin mong lubos ang iyong ministeryo.
+Tungkol sa akin, ako'y ibinuhos na tulad sa inuming handog, at ang panahon ng aking pagpanaw ay dumating na.
+Nakipaglaban ako ng mabuting pakikipaglaban, natapos ko na ang aking takbuhin, iningatan ko ang pananampalataya.
+Kaya't mula ngayon ay nakalaan na sa akin ang putong ng katuwiran, na ibibigay sa akin ng Panginoon na tapat na hukom sa araw na iyon, at hindi lamang sa akin, kundi sa lahat din naman ng mga naghahangad sa kanyang pagpapakita.
+Magsikap kang pumarito agad sa akin,
+sapagkat iniwan ako ni Demas, na umibig sa sanlibutang ito, at nagtungo sa Tesalonica; si Crescente ay nagtungo sa Galacia, at si Tito ay sa Dalmacia.
+Si Lucas lamang ang kasama ko. Sunduin mo si Marcos at isama mo, sapagkat siya'y kapaki-pakinabang sa akin sa ministeryo.
+Samantala, si Tiquico ay sinugo ko sa Efeso.
+Ang balabal na aking iniwan sa Troas kay Carpo ay iyong dalhin pagparito mo, at ang mga aklat, lalung-lalo na ang mga pergamino.
+Maraming ginawang kasamaan sa akin si Alejandro na panday ng tanso. Gagantihan siya ng Panginoon ayon sa kanyang mga gawa.
+Mag-ingat ka rin sa kanya, sapagkat tunay na kanyang sinalungat ang aming ipinangangaral.
+Sa aking unang pagsasanggalang ay walang sinumang kumampi sa akin, bagkus pinabayaan ako ng lahat. Huwag nawang singilin sa kanila ito.
+Ngunit ang Panginoon ay tumindig sa tabi ko at ako'y pinalakas niya upang sa pamamagitan ko ay ganap na maipahayag ang mensahe upang mapakinggan ito ng lahat ng mga Hentil. Kaya't ako'y iniligtas sa bibig ng leon.
+Ako'y ililigtas ng Panginoon sa bawat masamang gawa at ako'y kanyang iingatan para sa kanyang kaharian sa langit. Sumakanya nawa ang kaluwalhatian magpakailanman. Amen.
+Batiin mo sina Priscila at Aquila at ang sambahayan ni Onesiforo.
+Si Erasto ay nanatili sa Corinto, ngunit si Trofimo ay iniwan kong maysakit sa Mileto.
+Magsikap kang pumarito bago dumating ang taglamig. Binabati ka nina Eubulo, Pudente, Lino, Claudia, at ng lahat ng mga kapatid.
+Ang Panginoon nawa'y sumainyong espiritu. Sumainyo nawa ang biyaya.
+Ang matanda, kay Gayo na minamahal, na aking iniibig sa katotohanan.
+Minamahal, aking idinadalangin na sa lahat ng mga bagay ay mapabuti ka at magkaroon ng kalusugan, kung paanong nasa mabuti ring kalagayan ang iyong kaluluwa.
+Ako'y labis na nagalak nang dumating ang mga kapatid at nagpatotoong ikaw ay nasa katotohanan, kung paanong lumalakad ka sa katotohanan.
+Wala nang higit pang kagalakan sa ganang akin na gaya nito, na marinig na ang aking mga anak ay lumalakad sa katotohanan.
+Minamahal, ginagawa mo ang tapat na gawa tuwing gagawa ka ng paglilingkod sa mga kapatid, at gayundin sa mga taga-ibang bayan,
+sila'y nagpatotoo sa harap ng iglesya tungkol sa iyong pag-ibig. Mabuti ang magagawa mo kung isusugo mo sila sa kanilang paglalakbay sa paraang nararapat sa Diyos;
+sapagkat humayo sila alang-alang sa Pangalan, na hindi tumanggap ng anuman mula sa mga Hentil.
+Kaya't nararapat nating tustusan ang mga gayong tao, upang tayo'y maging mga kamanggagawa sa katotohanan.
+Ako'y sumulat ng ilang bagay sa iglesya, ngunit hindi kami tinatanggap ni Diotrefes na nagnanais maging pangunahin sa kanila.
+Kaya't pagdating ko riyan, ay ipapaalala ko ang kanyang mga ginagawa, na nagsasalita ng masasamang salita laban sa amin. At hindi pa nasisiyahan sa ganito, hindi niya tinatanggap ang mga kapatid, at hinahadlangan ang mga nagnanais tumanggap sa kanila at pinapalayas sila sa iglesya.
+Minamahal, huwag mong tularan ang masama, kundi ang mabuti. Ang gumagawa ng mabuti ay sa Diyos; ang gumagawa ng masama ay hindi nakakita sa Diyos.
+Si Demetrio ay pinatototohanan ng lahat at ng katotohanan mismo; kami rin ay nagpapatotoo tungkol sa kanya at nalalaman mo na ang aming patotoo ay tunay.
+Marami akong isusulat sa iyo, ngunit hindi ko ibig isulat sa iyo sa pamamagitan ng tinta at panulat;
+inaasahan kong makita ka agad at tayo'y mag-usap nang harapan.
 O Teofilo, sa unang aklat ay isinulat ko ang tungkol sa lahat ng ginawa at itinuro ni Jesus mula sa simula,
 hanggang sa araw na iakyat siya sa langit pagkatapos na makapagbigay ng mga tagubilin sa pamamagitan ng Espiritu Santo sa mga apostol na kanyang hinirang.
 Pagkatapos na siya'y magdusa ay buháy siyang nagpakita sa kanila sa pamamagitan ng maraming mga katunayan. Nagpakita siya sa kanila sa loob ng apatnapung araw at nagsalita ng mga bagay tungkol sa kaharian ng Diyos.
@@ -1306,6 +1946,101 @@ baka sila'y makakita sa kanilang mga mata,
 at makarinig sa kanilang mga tainga,
 at makaunawa sa kanilang puso, at magbalik-loob,
 at sila'y aking pagalingin.’
+Si Pablo, na apostol ni Cristo-Jesus sa pamamagitan ng kalooban ng Diyos, at si Timoteo na ating kapatid,
+Sa mga banal at tapat na mga kapatid kay Cristo na nasa Colosas: Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos na ating Ama.
+Lagi kaming nagpapasalamat sa Diyos na Ama ng ating Panginoong Jesu-Cristo, sa aming pananalangin para sa inyo,
+sapagkat nabalitaan namin ang inyong pananampalataya kay Cristo Jesus, at ang pag-ibig ninyo sa lahat ng mga banal,
+dahil sa pag-asa na nakalaan para sa inyo sa langit, na inyong narinig noong una sa salita ng katotohanan, ang ebanghelyo,
+na dumating sa inyo. Gayundin naman kung paanong ito ay namumunga at lumalago sa buong sanlibutan, ay gayundin naman sa inyo, mula nang araw na inyong marinig at maunawaan ang biyaya ng Diyos sa katotohanan.
+Ito ay inyong natutunan kay Epafras na aming minamahal na kapwa alipin. Siya ay isang tapat na lingkod ni Cristo alang-alang sa inyo,
+at siya rin namang sa amin ay nagpahayag ng inyong pag-ibig sa Espiritu.
+Kaya't mula nang araw na aming marinig ito, hindi kami tumigil ng pananalangin para sa inyo at sa paghiling na kayo'y punuin ng kaalaman ng kanyang kalooban sa buong karunungan at pagkaunawang espirituwal,
+upang kayo'y lumakad nang nararapat sa Panginoon, na lubos na nakakalugod sa kanya, namumunga sa bawat gawang mabuti, at lumalago sa pagkakilala sa Diyos.
+Nawa'y palakasin kayo sa buong kapangyarihan, ayon sa kalakasan ng kanyang kaluwalhatian, para sa lahat ng katatagan at pagtitiyaga na may galak;
+na nagpapasalamat sa Ama, na ginawa niya tayong karapat-dapat na makabahagi sa mana ng mga banal sa kaliwanagan.
+Iniligtas niya tayo sa kapangyarihan ng kadiliman at inilipat tayo sa kaharian ng kanyang minamahal na Anak,
+na sa kanya ay mayroon tayong katubusan, na siyang kapatawaran ng mga kasalanan.
+Siya ang larawan ng Diyos na hindi nakikita, ang panganay sa lahat ng mga nilalang;
+sapagkat sa pamamagitan niya nilalang ang lahat ng mga bagay sa langit at sa lupa, ang mga bagay na nakikita at ang mga bagay na hindi nakikita, maging mga trono o mga pagka-panginoon, maging mga pinuno o mga may kapangyarihan—lahat ng mga bagay ay nilalang sa pamamagitan niya at para sa kanya.
+Siya mismo ay una sa lahat ng mga bagay, at ang lahat ng mga bagay ay nahahawakang sama-sama sa kanya.
+Siya ang ulo ng katawan, ang iglesya; siya ang pasimula, ang panganay mula sa mga patay, upang siya ay maging pangunahin sa lahat ng mga bagay.
+Sapagkat minagaling na ang buong kapuspusan ay manirahan sa kanya,
+at sa pamamagitan niya ay pagkasunduin ng Diyos sa kanyang sarili ang lahat ng mga bagay, sa lupa man o sa langit, na ginagawa ang kapayapaan sa pamamagitan ng dugo ng kanyang krus.
+At kayo, na nang dati ay hiwalay at mga kaaway sa pag-iisip, sa pamamagitan ng masasamang gawa,
+ay pinakipagkasundo niya ngayon sa kanyang katawang laman, sa pamamagitan ng kamatayan, upang kayo'y iharap na mga banal at walang dungis at walang kapintasan sa harapan niya,
+kung kayo'y nagpapatuloy na matatag at matibay sa pananampalataya, at hindi nakikilos sa pag-asa sa ebanghelyo na inyong narinig, na ipinangaral sa lahat ng mga nilalang sa silong ng langit. Akong si Pablo ay naging ministro ng ebanghelyong ito.
+Ngayo'y nagagalak ako sa aking mga pagtitiis alang-alang sa inyo, at sa aking laman ay pinupunan ko ang kakulangan sa mga paghihirap ni Cristo alang-alang sa kanyang katawan, na siyang iglesya.
+Ako'y naging ministro nito, ayon sa katungkulang ipinagkatiwala ng Diyos sa akin para sa inyo, upang lubos na maipahayag ang salita ng Diyos,
+ang hiwaga na nakatago sa lahat ng mga panahon at mga salinlahi, ngunit ngayo'y ipinahayag sa kanyang mga banal.
+Sa kanila'y ninais ng Diyos na ipaalam kung gaano kalaki ang mga kayamanan ng kaluwalhatian ng hiwagang ito sa gitna ng mga Hentil, na ito'y si Cristo na nasa inyo, na siyang pag-asa sa kaluwalhatian.
+Siya ang aming ipinahahayag, na binabalaan ang bawat tao at tinuturuan ang bawat tao, sa buong karunungan, upang ang lahat ay maiharap naming sakdal kay Cristo.
+Dahil dito'y nagpapagal din naman ako at nagsisikap ayon sa kanyang paggawa na gumagawa sa akin na may kapangyarihan.
+Sapagkat ibig kong malaman ninyo kung gaano kalaki ang aking pagsisikap alang-alang sa inyo, at sa mga nasa Laodicea, at sa lahat na hindi pa nakakita sa akin nang mukhaan.
+Upang maaliw sana ang kanilang mga puso, sa kanilang pagkakaisa sa pag-ibig, at magkaroon ang lahat ng mga kayamanan ng buong katiyakan ng pagkaunawa, at magkaroon ng kaalaman ng hiwaga ng Diyos, na si Cristo,
+na sa kanya nakatago ang lahat ng mga kayamanan ng karunungan at kaalaman.
+Ito'y sinasabi ko upang huwag kayong madaya ng sinuman sa mga pananalitang kaakit-akit.
+Sapagkat bagaman ako'y wala sa katawan, gayunma'y nasa inyo ako sa espiritu, at nagagalak na makita ko ang inyong kaayusan, at ang katatagan ng inyong pananampalataya kay Cristo.
+Kaya't kung paanong tinanggap ninyo si Cristo Jesus na Panginoon, ay lumakad kayong gayon sa kanya,
+na nakaugat at nakatayo sa kanya, at matibay sa pananampalataya, gaya ng itinuro sa inyo, na sumasagana sa pasasalamat.
+Kayo'y mag-ingat, baka sa inyo'y may bumihag sa pamamagitan ng pilosopiya at walang kabuluhang pandaraya, ayon sa tradisyon ng mga tao, ayon sa mga simulain ng sanlibutan, at hindi ayon kay Cristo.
+Sapagkat sa kanya'y naninirahan ang buong kapuspusan ng pagka-Diyos sa katawan,
+at kayo'y napuspos sa kanya, na siyang ulo ng lahat ng pamunuan at kapangyarihan.
+Sa kanya ay tinuli rin kayo ng pagtutuling hindi gawa ng mga kamay, sa pamamagitan ng paghuhubad ng katawang laman sa pagtutuli ni Cristo;
+nang ilibing kayong kasama niya sa bautismo, kayo rin ay muling binuhay na kasama niya sa pamamagitan ng pananampalataya sa kapangyarihan ng Diyos, na muling bumuhay sa kanya mula sa mga patay.
+At kayo'y mga patay dahil sa inyong mga kasalanan at sa di-pagtutuli ng inyong laman ay kanyang binuhay kayong kasama niya, nang ipinatawad niya sa inyo ang lahat ng mga kasalanan,
+na pinawi ang sulat-kamay na laban sa atin na nasa mga tuntuning salungat sa atin, at ito'y kanyang inalis at ipinako sa krus.
+Inalisan niya ng sandata ang mga pinuno at ang mga may kapangyarihan at sila'y ginawa niyang hayag sa madla, na nagtatagumpay sa kanila sa pamamagitan nito.
+Kaya't ang sinuman ay huwag humatol sa inyo tungkol sa pagkain at inumin, o tungkol sa kapistahan, o bagong buwan o mga araw ng Sabbath,
+na ang mga ito ay isang anino ng mga bagay na darating, ngunit ang katawan ay kay Cristo.
+Huwag ninyong hayaan na agawan kayo ng gantimpala sa pamamagitan ng kusang pagpapakababa at pagsamba sa mga anghel, na pinanghahawakan ang mga bagay na kanyang nakita, na nagyayabang nang walang dahilan sa pamamagitan ng kanyang makalamang pag-iisip,
+at hindi kumakapit sa Ulo, na sa kanya'y ang buong katawan, na tinutustusan at pinagsasanib sa pamamagitan ng mga kasukasuan at mga litid ay lumalago ng paglagong mula sa Diyos.
+Kung kayo'y namatay na kasama ni Cristo mula sa mga simulain ng sanlibutan, bakit kayo'y nabubuhay na parang nasa sanlibutan pa rin? Bakit kayo'y nagpapasakop sa mga alituntuning,
+“Huwag humipo, huwag tumikim, huwag humawak”?
+Ang lahat ng mga alituntuning ito ay masisira sa paggamit, palibhasa'y mga utos at mga aral lamang ng mga tao.
+Ang mga bagay na ito'y mayroong anyo ng karunungan sa pagsambang ayon sa sariling kagustuhan, sa pagpapakababa, at sa pagpapahirap sa katawan, ngunit wala silang kabuluhan laban sa kalayawan ng laman.
+Kung kayo nga'y muling binuhay na kasama ni Cristo, ay hanapin ninyo ang mga bagay na nasa itaas, na kinaroroonan ni Cristo, na nakaupo sa kanan ng Diyos.
+Ituon ninyo ang inyong pag-iisip sa mga bagay na nasa itaas, hindi sa mga bagay na nasa ibabaw ng lupa,
+sapagkat kayo'y namatay na, at ang inyong buhay ay natatagong kasama ni Cristo sa Diyos.
+Kapag si Cristo na inyong buhay ay nahayag, ay mahahayag nga rin kayo na kasama niya sa kaluwalhatian.
+Patayin ninyo ang anumang makalupa na nasa inyo: pakikiapid, karumihan, masamang pita, masasamang pagnanasa, at kasakiman na ito'y pagsamba sa mga diyus-diyosan.
+Dahil sa mga bagay na ito ay dumarating ang poot ng Diyos sa mga anak ng pagsuway.
+Ang mga ito rin ang nilakaran ninyo noong una, nang kayo'y nabubuhay pa sa mga bagay na ito.
+Ngunit ngayon ay itakuwil ninyo ang lahat ng mga ito: galit, poot, masamang pag-iisip, panlalait, at maruming pananalita mula sa inyong bibig.
+Huwag kayong magsinungaling sa isa't isa, yamang hinubad na ninyo ang dating pagkatao pati ang mga gawa nito,
+at kayo'y nagbihis na ng bagong pagkatao, na binabago sa kaalaman ayon sa larawan ng lumalang sa kanya.
+Dito'y wala ng Griyego at Judio, tuli at di-tuli, ng barbaro, ng Scita, ng alipin, ng malaya; kundi si Cristo ang lahat at nasa lahat!
+Bilang mga hinirang ng Diyos, mga banal at minamahal, magbihis kayo ng kahabagan, ng kabaitan, ng kababaang-loob, ng kaamuan, at ng katiyagaan.
+Pagtiisan ninyo ang isa't isa, at kung ang sinuman ay may reklamo laban sa kanino man, magpatawaran kayo sa isa't isa, kung paanong pinatawad kayo ng Panginoon, ay gayundin naman ang inyong gawin.
+At higit sa lahat ng mga bagay na ito ay magbihis kayo ng pag-ibig na siyang tali ng kasakdalan.
+At maghari sa inyong puso ang kapayapaan ni Cristo, na doon ay tinawag din naman kayo sa isang katawan. At kayo'y maging mapagpasalamat.
+Manirahan nawang sagana sa inyo ang salita ni Cristo ayon sa lahat ng karunungan; magturo at magpaalalahanan kayo sa isa't isa sa pamamagitan ng mga salmo at ng mga himno at mga awiting espirituwal, na umaawit na may pasasalamat sa Diyos sa inyong mga puso.
+At anumang inyong ginagawa, sa salita, o sa gawa, gawin ninyong lahat sa pangalan ng Panginoong Jesus, na nagpapasalamat kayo sa Diyos Ama sa pamamagitan niya.
+Mga babae, pasakop kayo sa inyu-inyong asawa, gaya ng nararapat sa Panginoon.
+Mga lalaki, ibigin ninyo ang inyu-inyong asawa at huwag kayong maging malupit sa kanila.
+Mga anak, sumunod kayo sa inyong mga magulang sa lahat ng mga bagay, sapagkat ito'y nakakalugod sa Panginoon.
+Mga ama, huwag ninyong ibunsod sa galit ang inyong mga anak, baka manghina ang loob nila.
+Mga alipin, sumunod kayo sa lahat ng mga bagay sa mga panginoon ninyo sa lupa, hindi naglilingkod kung may tumitingin, na gaya ng pagbibigay-lugod sa mga tao, kundi sa katapatan ng puso, na may takot sa Panginoon.
+Anuman ang inyong ginagawa, ay inyong gawin ng buong puso, na gaya ng sa Panginoon, at hindi sa mga tao;
+yamang inyong nalalaman na sa Panginoon ay tatanggapin ninyo ang gantimpalang mana. Paglingkuran ninyo ang Panginoong Jesu-Cristo.
+Sapagkat ang gumagawa ng masama ay pagbabayarin sa kasamaang kanyang ginawa; at walang itinatanging tao.
+Mga panginoon, pakitunguhan ninyo ang inyong mga alipin nang matuwid at makatarungan, yamang nalalaman ninyo na kayo man ay mayroon ding Panginoon sa langit.
+Magpatuloy kayo sa pananalangin, at kayo'y magbantay na may pagpapasalamat.
+At idalangin din ninyo kami, na buksan ng Diyos para sa amin ang pinto para sa salita, upang aming maipahayag ang hiwaga ni Cristo, na dahil din dito ako'y nakagapos,
+upang ito'y aking maipahayag, gaya ng aking nararapat na sabihin.
+Lumakad kayo na may karunungan sa harap ng mga nasa labas, na inyong samantalahin ang pagkakataon.
+Ang inyong pananalita nawa'y laging may biyaya, na may timplang asin, upang inyong malaman kung paano ninyo dapat sagutin ang bawat isa.
+Ang lahat na mga bagay tungkol sa akin ay ipababatid sa inyo ni Tiquico, na minamahal na kapatid at tapat na ministro, at kapwa alipin sa Panginoon.
+Siya ang aking sinugo sa inyo ukol sa bagay na ito, upang malaman ninyo ang aming kalagayan, at upang kanyang pasiglahin ang inyong mga puso;
+kasama niya si Onesimo, tapat at minamahal na kapatid, na siya'y isa sa inyo. Sila ang magbabalita sa inyo tungkol sa lahat ng mga bagay na nangyayari dito.
+Binabati kayo ni Aristarco na kasama kong bilanggo, at ni Marcos na pinsan ni Bernabe—tungkol sa kanya'y tumanggap kayo ng mga utos—kung magpupunta siya sa inyo, siya ay inyong tanggapin,
+at si Jesus na tinatawag na Justo. Ang mga ito lamang sa aking mga kamanggagawa sa kaharian ng Diyos ang kabilang sa pagtutuli at sila'y naging kaaliwan ko.
+Binabati kayo ni Epafras, na isa sa inyo, na alipin ni Cristo Jesus, na siyang laging nagsisikap para sa inyo sa kanyang pananalangin, upang kayo'y tumayong sakdal at lubos na nakakatiyak sa lahat ng kalooban ng Diyos.
+Sapagkat nagpapatotoo ako para sa kanya na siya'y labis na nagpagal para sa inyo, at sa mga nasa Laodicea, at sa mga nasa Hierapolis.
+Binabati kayo ni Lucas, ang minamahal na manggagamot, at ni Demas.
+Batiin ninyo ang mga kapatid na nasa Laodicea, at si Nimfa, at ang iglesyang nasa kanyang bahay.
+At kapag nabasa na ang sulat na ito sa inyo, ay ipabasa rin ninyo sa iglesya ng mga taga-Laodicea; at basahin naman ninyo ang sulat na mula sa Laodicea.
+At sabihin ninyo kay Arquipo, “Sikapin mong gampanan ang ministeryo na tinanggap mo sa Panginoon.”
+Akong si Pablo ay sumusulat ng pagbating ito ng sarili kong kamay. Alalahanin ninyo ang aking mga tanikala. Sumainyo nawa ang biyaya.
 Si Pablo, apostol ni Cristo Jesus sa pamamagitan ng kalooban ng Diyos, sa mga banal [na nasa Efeso], at sa mga mananampalataya kay Cristo Jesus:
 Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos na ating Ama at sa Panginoong Jesu-Cristo.
 Purihin nawa ang Diyos at Ama ng ating Panginoong Jesu-Cristo, na siyang nagpapala sa atin kay Cristo ng bawat pagpapalang espirituwal sa sangkalangitan,
@@ -1612,6 +2347,462 @@ Sapagkat ang pagtutuli o ang di-pagtutuli ay walang kabuluhan, kundi ang bagong 
 Kapayapaan at kaawaan nawa ang sumakanilang lahat na lumalakad sa alituntuning ito, at maging sa Israel ng Diyos.
 Buhat ngayon ay huwag akong guluhin ng sinuman; sapagkat taglay ko sa aking katawan ang mga bakas ng paghihirap ni Jesus.
 Mga kapatid, ang biyaya ng ating Panginoong Jesu-Cristo ay sumainyo nawang espiritu. Amen.
+Noong unang panahon, ang Diyos ay nagsalita sa ating mga ninuno sa iba't ibang panahon at sa iba't ibang paraan sa pamamagitan ng mga propeta,
+subalit sa mga huling araw na ito ay nagsalita siya sa atin sa pamamagitan ng Anak, na kanyang itinalagang tagapagmana ng lahat ng mga bagay, na sa pamamagitan din niya'y ginawa ang mga sanlibutan.
+Siya ang kaningningan ng kaluwalhatian ng Diyos at tunay na larawan ng kanyang likas, at kanyang inaalalayan ang lahat ng bagay sa pamamagitan ng kapangyarihan ng kanyang salita. Nang magawa na niya ang paglilinis ng mga kasalanan, siya ay umupo sa kanan ng Kamahalan sa kaitaasan,
+palibhasa'y naging higit na mataas kaysa mga anghel, palibhasa'y nagmana ng higit na marilag na pangalan kaysa kanila.
+Sapagkat kanino sa mga anghel sinabi ng Diyos kailanman,
+“Ikaw ay aking Anak,
+ako ngayon ay naging iyong Ama?”
+At muli,
+“Ako'y magiging kanyang Ama,
+at siya'y magiging aking Anak?”
+At muli, nang kanyang dinadala ang panganay sa daigdig ay sinasabi niya,
+“Sambahin siya ng lahat ng mga anghel ng Diyos.”
+Tungkol sa mga anghel ay sinasabi niya,
+“Ginagawa niyang mga hangin ang mga anghel,
+at ang kanyang mga lingkod ay ningas ng apoy.”
+Ngunit, tungkol naman sa Anak ay sinasabi niya,
+“Ang iyong trono, O Diyos, ay magpakailanman;
+at ang setro ng katuwiran ang siyang setro ng iyong kaharian.
+Inibig mo ang katuwiran, at kinapootan ang kasamaan;
+kaya't ang Diyos, ang Diyos mo, ay binuhusan ka
+ng langis ng kagalakang higit pa sa iyong mga kasamahan.”
+At,
+“Ikaw, Panginoon, nang pasimula'y inilagay mo ang saligan ng lupa,
+at ang mga langit ay mga gawa ng iyong mga kamay;
+Kaya't dapat nating pag-ukulan ng higit pang pansin ang mga bagay na ating narinig, baka tayo'y matangay na papalayo.
+Sapagkat kung ang salita na ipinahayag sa pamamagitan ng mga anghel ay may bisa, at ang bawat paglabag at pagsuway ay tumanggap ng kaukulang parusa,
+paano nga tayo makakatakas, kung ating pababayaan ang ganito kadakilang kaligtasan? Ito ay ipinahayag noong una sa pamamagitan ng Panginoon, at pinatunayan sa atin ng mga nakarinig sa kanya,
+na pawang pinatotohanan din ng Diyos sa pamamagitan ng mga tanda at ng mga kababalaghan at iba't ibang himala at ng mga kaloob ng Espiritu Santo, na ipinamahagi ayon sa kanyang kalooban.
+Sapagkat hindi ipinasakop ng Diyos sa mga anghel ang sanlibutang darating, na siya naming sinasabi,
+Ngunit may nagpatunay sa isang dako, na sinasabi,
+“Ano ang tao upang siya'y iyong alalahanin?
+O ang anak ng tao upang siya'y iyong pagmalasakitan?
+Siya'y ginawa mong mababa kaysa mga anghel nang sandaling panahon;
+siya'y pinutungan mo ng kaluwalhatian at ng karangalan,
+at siya'y inilagay mo sa ibabaw ng mga gawa ng iyong mga kamay.
+Ipinasakop mo ang lahat ng bagay sa ilalim ng kanyang mga paa.”
+Nang masakop niya ang bawat bagay, wala siyang iniwan na hindi niya nasasakop. Ngunit ngayon ay hindi pa natin nakikitang nasasakop niya ang lahat ng mga bagay,
+kundi nakikita natin si Jesus, na sa sandaling panahon ay ginawang mababa kaysa mga anghel, na dahil sa pagdurusa ng kamatayan ay pinutungan ng kaluwalhatian at karangalan, upang sa pamamagitan ng biyaya ng Diyos ay maranasan niya ang kamatayan alang-alang sa lahat.
+Sapagkat nararapat na ang Diyos, na para sa kanya at sa pamamagitan niya ay nagkaroon ng lahat ng mga bagay, sa pagdadala ng maraming anak tungo sa kaluwalhatian, ay gawing sakdal ang tagapagtatag ng kanilang kaligtasan sa pamamagitan ng mga pagdurusa.
+Sapagkat ang gumagawang banal at ang mga ginawang banal ay pawang nagmula sa isa. Dahil dito'y hindi nahihiya si Jesus na tawagin silang mga kapatid,
+na sinasabi,
+“Ipahahayag ko ang iyong pangalan sa aking mga kapatid,
+sa gitna ng kapulungan ay aawitan kita ng mga himno.”
+At muli,
+“Ilalagak ko ang aking pagtitiwala sa kanya.”
+At muli,
+“Narito ako at ang mga anak na ibinigay sa akin ng Diyos.”
+Kaya, yamang ang mga anak ay nakibahagi sa laman at dugo, at siya man ay nakibahagi rin sa mga bagay na ito, upang sa pamamagitan ng kamatayan ay kanyang mapuksa ang may kapangyarihan sa kamatayan, samakatuwid ay ang diyablo,
+Kaya, mga banal na kapatid, mga kabahagi sa makalangit na pagkatawag, isaalang-alang ninyo na si Jesus, ang Apostol at Pinakapunong Pari ng ating pagpapahayag,
+ay tapat sa nagtalaga sa kanya, gaya ni Moises na tapat sa buong sambahayan ng Diyos.
+Sapagkat siya ay itinuring na karapat-dapat sa higit na kaluwalhatian kaysa kay Moises, yamang ang nagtayo ng bahay ay may higit na karangalan kaysa bahay.
+Sapagkat ang bawat bahay ay may nagtayo, subalit ang nagtayo ng lahat ng mga bagay ay ang Diyos.
+At si Moises ay naging tapat sa buong sambahayan ng Diyos gaya ng isang lingkod, bilang patotoo sa mga bagay na sasabihin.
+Subalit si Cristo ay tapat sa bahay ng Diyos, bilang isang anak, at tayo ang bahay na iyon kung ating iingatang matibay hanggang sa katapusan ang ating pagtitiwala at pagmamalaki sa ating pag-asa.
+Kaya't gaya ng sinasabi ng Espiritu Santo,
+“Ngayon, kung marinig ninyo ang kanyang tinig,
+huwag ninyong papagmatigasin ang inyong mga puso gaya ng sa paghihimagsik,
+gaya ng sa araw ng pagsubok sa ilang,
+na doon ay sinubok ako ng inyong mga ninuno,
+bagaman nakita nila ang aking mga gawa sa loob ng
+apatnapung taon.
+Kaya't nagalit ako sa lahing ito,
+at aking sinabi, ‘Sila'y laging naliligaw sa kanilang puso,
+at hindi nila nalaman ang aking mga daan.’
+Gaya ng sa aking galit ay aking isinumpa,
+‘Hindi sila papasok sa aking kapahingahan.’”
+Mga kapatid, mag-ingat kayo, na walang sinuman sa inyo ang may pusong masama at walang pananampalataya na naglalayo sa buháy na Diyos.
+Ngunit magpayuhan kayo sa isa't isa araw-araw, habang ito ay tinatawag na “ngayon,” upang walang sinuman sa inyo ang papagmatigasin ng pagiging madaya ng kasalanan.
+Sapagkat tayo'y nagiging kabahagi ni Cristo kung ating hinahawakang matatag ang pasimula ng ating pagtitiwala hanggang sa katapusan.
+Gaya ng sinasabi,
+“Ngayon, kung marinig ninyo ang kanyang tinig,
+Kaya't habang nananatiling bukas ang pangakong makapasok sa kanyang kapahingahan, mag-ingat tayo na baka sinuman sa inyo ay hindi makaabot doon.
+Sapagkat dumating sa atin ang magandang balita, gaya rin naman sa kanila, ngunit hindi nila pinakinabangan ang pangangaral na narinig nila, sapagkat hindi sila naging kalakip sa pamamagitan ng pananampalataya ng mga taong nakarinig.
+Sapagkat tayong sumasampalataya ay pumapasok sa kapahingahang iyon, gaya ng sinabi ng Diyos,
+“Gaya ng aking isinumpa sa aking pagkagalit,
+sila'y hindi papasok sa aking kapahingahan,”
+bagama't ang mga gawa niya mula nang itatag ang sanlibutan ay natapos na.
+Sapagkat sa isang dako ay sinabi niya ang ganito tungkol sa ikapitong araw, “At nagpahinga ang Diyos nang ikapitong araw sa lahat ng kanyang mga gawa.”
+At sa dakong ito ay muling sinabi, “Sila'y hindi papasok sa aking kapahingahan.”
+Kaya't yamang nananatiling bukas para sa ilan upang makapasok doon, at ang mga pinangaralan ng magandang balita nang una ay hindi nakapasok dahil sa pagsuway,
+siya ay muling nagtakda ng isang araw, “Ngayon,” na pagkatapos ng ilang panahon ay sinabi sa pamamagitan ni David, gaya ng sinabi noong una,
+“Ngayon, kung marinig ninyo ang kanyang tinig,
+huwag ninyong papagmatigasin ang inyong mga puso.”
+Sapagkat kung sila ay nabigyan ni Josue ng kapahingahan, hindi na sana nagsalita ang Diyos tungkol sa ibang araw pagkatapos ng mga ito.
+Kaya't may natitira pang isang pamamahingang Sabbath para sa bayan ng Diyos.
+Sapagkat ang pumasok sa kanyang kapahingahan ay nagpahinga rin sa kanyang mga gawa, gaya ng Diyos sa kanyang mga gawa.
+Kaya't magsikap tayong pumasok sa kapahingahang iyon, upang huwag mabuwal ang sinuman sa pamamagitan ng gayong halimbawa ng pagsuway.
+Sapagkat ang salita ng Diyos ay buháy, mabisa, at higit na matalas kaysa alin mang tabak na may dalawang talim, at tumatagos hanggang sa pinaghihiwalayan ng kaluluwa at espiritu, ng mga kasukasuan at ng utak sa buto, at may kakayahang kumilala ng mga pag-iisip at mga hangarin ng puso.
+At walang nilalang na nakukubli sa harapan niya, kundi ang lahat ng mga bagay ay hubad at hayag sa mga mata niya na ating pagsusulitan.
+Yamang tayo'y mayroong isang marangal at Pinakapunong Pari na pumasok sa kalangitan, si Jesus na Anak ng Diyos, ay hawakan nating matatag ang ating ipinahahayag.
+Sapagkat tayo'y mayroong isang Pinakapunong Pari na marunong makiramay sa ating mga kahinaan, isa na tinukso sa lahat ng mga paraan gaya rin naman natin, gayunma'y walang kasalanan.
+Bawat pinakapunong pari na pinili mula sa mga tao ay pinangasiwa sa mga bagay na may kaugnayan sa Diyos, para sa kanilang kapakanan, upang siya'y makapaghandog ng mga kaloob at ng mga alay para sa mga kasalanan.
+Siya ay marunong makitungo na may kaamuan sa mga mangmang at naliligaw, yamang siya man ay napapaligiran ng kahinaan.
+Dahil dito, kailangang siya'y maghandog para sa kanyang sariling mga kasalanan, at gayundin para sa taong-bayan.
+At sinuman ay hindi kumukuha ng karangalang ito para sa kanyang sarili, kundi siya ay tinatawag ng Diyos, na gaya ni Aaron.
+Maging si Cristo man ay hindi lumuwalhati sa kanyang sarili upang maging pinakapunong pari, kundi itinalaga ng nagsabi sa kanya,
+“Ikaw ay aking Anak,
+ako ngayon ay naging Ama mo.”
+Gaya rin naman ng sinasabi niya sa ibang dako,
+“Ikaw ay pari magpakailanman,
+ayon sa pagkapari ni Melquizedek.”
+Sa mga araw ng kanyang buhay dito sa mundo, si Jesus ay naghandog ng mga panalangin at mga pakiusap na may malakas na pagtangis at pagluha sa may kapangyarihang magligtas sa kanya mula sa kamatayan, at siya'y pinakinggan dahil sa kanyang magalang na pagpapasakop.
+Bagama't siya'y isang Anak, siya'y natuto ng pagsunod sa pamamagitan ng mga bagay na kanyang tiniis,
+at nang maging sakdal, siya ang naging pinagmulan ng walang hanggang kaligtasan ng lahat ng mga sumusunod sa kanya;
+yamang itinalaga ng Diyos bilang pinakapunong pari ayon sa pagkapari ni Melquizedek.
+Tungkol sa kanya'y marami kaming masasabi, at mahirap ipaliwanag, palibhasa'y naging mapurol na kayo sa pakikinig.
+Sapagkat bagaman sa panahong ito'y dapat na kayo'y mga guro na, kailangang muling may magturo sa inyo ng mga unang simulain ng aral ng Diyos. Kayo'y nangangailangan ng gatas, at hindi ng pagkaing matigas.
+Kaya't iwan na natin ang mga unang simulain ng aral ni Cristo, at tayo'y magpatuloy sa kasakdalan, na huwag nating muling ilagay ang saligan ng pagsisisi mula sa mga patay na gawa at pananampalataya sa Diyos,
+ng aral tungkol sa mga bautismo, pagpapatong ng mga kamay, muling pagkabuhay ng mga patay, at ng walang hanggang paghuhukom.
+At ating gagawin ito, kung ipahihintulot ng Diyos.
+Sapagkat hindi mangyayari na ang mga dating naliwanagan na, at nakalasap ng kaloob ng kalangitan, at mga naging kabahagi ng Espiritu Santo,
+at nakalasap ng kabutihan ng salita ng Diyos, at ng mga kapangyarihan ng panahong darating,
+at pagkatapos ay tumalikod ay muling panumbalikin sa pagsisisi, yamang sa kanilang sarili ay muli nilang ipinapako sa krus ang Anak ng Diyos, at itinataas sa kahihiyan.
+Sapagkat ang lupang umiinom ng ulang madalas na pumapatak sa kanya, at tinutubuan ng mga halamang angkop doon na dahil sa kanila ito ay binungkal, ay tumatanggap ng pagpapalang mula sa Diyos.
+Subalit kung ito'y tinutubuan ng mga tinik at dawag, ito ay walang kabuluhan at malapit nang sumpain, at ang kanyang kahihinatnan ay ang pagkasunog.
+Ngunit, mga minamahal, kami ay lubos na naniniwala sa mga mabubuting bagay tungkol sa inyo, at sa mga bagay na may kinalaman sa kaligtasan, bagama't kami ay nagsasalita ng ganito.
+Sapagkat ang Diyos ay hindi masama; hindi niya kaliligtaan ang inyong gawa at ang pag-ibig na inyong ipinakita sa kanyang pangalan, sa inyong paglilingkod sa mga banal, gaya ng ginagawa ninyo ngayon.
+At nais namin na ang bawat isa sa inyo ay magpakita ng gayunding sigasig upang inyong malaman ang ganap na katiyakan ng pag-asa hanggang sa katapusan;
+upang kayo'y huwag maging mga tamad, kundi mga taga-tulad kayo sa kanila na sa pamamagitan ng pananampalataya at ng pagtitiis ay nagmamana ng mga pangako.
+Nang mangako ang Diyos kay Abraham, palibhasa'y walang sinumang higit na dakila na kanyang panunumpaan, siya ay nanumpa sa kanyang sarili,
+na sinasabi, “Tiyak na pagpapalain at pararamihin kita.”
+Kaya't si Abraham, nang makapaghintay na may pagtitiis, ay tumanggap ng pangako.
+Nanunumpa ang mga tao sa harap ng higit na mataas sa kanila, at ang sumpang binitawan bilang katibayan ay nagwawakas ng bawat usapin.
+Gayundin naman, sa pagnanais ng Diyos na maipakita sa mga tagapagmana ng pangako na hindi maaaring mabago ang kanyang pasiya, pinagtibay niya ito sa pamamagitan ng isang sumpa;
+upang sa pamamagitan ng dalawang bagay na di-mababago, na dito'y hindi maaaring magsinungaling ang Diyos, tayong nagtungo sa kanlungan ay magkaroon ng higit na katiyakang panghawakan ang pag-asang nakalagay sa harapan natin.
+Taglay natin ito bilang isang tiyak at matibay na angkla ng kaluluwa, isang pag-asa na pumapasok sa loob ng santuwaryo, sa kabila ng tabing,
+na doo'y naunang pumasok para sa atin si Jesus, na naging pinakapunong pari magpakailanman ayon sa pagkapari ni Melquizedek.
+Itong si Melquizedek, hari ng Salem, pari ng Kataas-taasang Diyos, ang siyang sumalubong kay Abraham sa pagbabalik niya galing sa paglipol sa mga hari at siya'y kanyang binasbasan,
+at sa kanya ay ibinahagi ni Abraham ang ikasampung bahagi ng lahat. Una, ang kahulugan ng kanyang pangalan ay hari ng katuwiran; ikalawa, siya rin ay hari ng Salem, na ang kahulugan ay hari ng kapayapaan.
+Walang ama, walang ina, walang talaan ng angkan, ni walang pasimula ng mga araw o katapusan ng buhay, subalit ginawang katulad ng Anak ng Diyos, siya ay nananatiling pari magpakailanman.
+Talagang napakadakila ang taong ito! Maging si Abraham na patriyarka ay nagbigay sa kanya ng ikasampung bahagi ng mga samsam.
+At ang mga anak ni Levi na tumanggap ng katungkulang pari ay mayroong utos ayon sa kautusan na maglikom ng ikasampung bahagi mula sa taong-bayan, samakatuwid ay sa kanilang mga kapatid, bagaman ang mga ito ay mga nagmula sa balakang ni Abraham.
+Ngunit ang taong ito na hindi mula sa kanilang lahi ay tumanggap ng mga ikasampung bahagi mula kay Abraham, at binasbasan ang tumanggap ng mga pangako.
+Hindi mapapabulaanan na ang nakabababa ay binabasbasan ng nakatataas.
+At dito, ang mga taong may kamatayan ay tumatanggap ng ikasampung bahagi, subalit sa kabilang dako ay ang isa na pinatutunayang nabubuhay.
+Maaaring sabihin na maging si Levi, na siyang tumatanggap ng mga ikasampung bahagi ay nagbayad ng ikasampung bahagi sa pamamagitan ni Abraham,
+sapagkat siya'y nasa mga balakang pa ng kanyang ninuno nang siya'y salubungin ni Melquizedek.
+Ngayon, kung may kasakdalan sa pamamagitan ng pagkapari ng mga Levita, (sapagkat batay dito ay tinanggap ng bayan ang kautusan), ano pa ang karagdagang pangangailangan upang lumitaw ang isa pang pari, ayon sa pagkapari ni Melquizedek, sa halip na ayon sa pagkapari ni Aaron?
+Sapagkat nang palitan ang pagkapari ay kailangan din namang palitan ang kautusan.
+Sapagkat ang tinutukoy ng mga bagay na ito ay kabilang sa ibang angkan, na doon ang sinuma'y hindi naglingkod sa dambana.
+Sapagkat maliwanag na ang ating Panginoon ay nagmula sa Juda at tungkol sa liping iyon ay walang sinabing anuman si Moises tungkol sa mga pari.
+At ito ay lalo pang naging maliwanag nang lumitaw ang ibang pari, na kagaya ni Melquizedek,
+na naging pari, hindi ayon sa itinatakda ng batas na ukol sa laman, kundi ayon sa kapangyarihan ng isang buhay na hindi mapupuksa.
+Sapagkat pinatotohanan,
+“Ikaw ay pari magpakailanman,
+ayon sa pagkapari ni Melquizedek.”
+Sa kabilang dako, mayroong pagpapawalang-bisa sa naunang utos, sapagkat ito ay mahina at walang pakinabang
+(sapagkat ang kautusan ay walang pinasasakdal), sa gayon ay ipinapakilala ang isang higit na mabuting pag-asa, na sa pamamagitan nito ay lumalapit tayo sa Diyos.
+At iyon ay mayroong panunumpa. Yaong nang una ay naging pari ay nagsimula sa kanilang katungkulan na walang panunumpa,
+ngunit ang isang ito ay naging pari na may panunumpa,
+“Nanumpa ang Panginoon at hindi siya magbabago ng kanyang isip,
+‘Ikaw ay pari magpakailanman.’”
+Sa gayon, si Jesus ay naging tagapanagot ng isang higit na mabuting tipan.
+Marami sa bilang ang dating mga pari, sapagkat sila'y hinadlangan ng kamatayan upang makapagpatuloy sa panunungkulan.
+Subalit hawak niya ang pagiging pari magpakailanman, sapagkat siya ay nagpapatuloy magpakailanman.
+Dahil dito, siya'y may kakayahang iligtas nang lubos ang mga lumalapit sa Diyos sa pamamagitan niya, yamang lagi siyang nabubuhay upang mamagitan para sa kanila.
+Sapagkat nararapat na tayo'y magkaroon ng gayong Pinakapunong Pari, banal, walang sala, walang dungis, hiwalay sa mga makasalanan, at ginawang lalong mataas kaysa mga langit.
+Ngayon, ang pangunahing bagay na aming sinasabi ay ito: Mayroon tayong gayong Pinakapunong Pari na nakaupo sa kanan ng trono ng Kamahalan sa kalangitan,
+isang ministro sa santuwaryo at sa tunay na tabernakulo na itinayo ng Panginoon, hindi ng tao.
+Sapagkat itinalaga ang bawat pinakapunong pari upang maghandog ng mga kaloob at ng mga alay. Kaya't kailangan din namang siya'y magkaroon ng kanyang ihahandog.
+Kaya't kung siya'y nasa lupa, hindi siya maaaring maging pari, sapagkat mayroon nang mga paring naghandog ng mga kaloob ayon sa kautusan.
+Sila'y naglilingkod sa anyo at anino ng makalangit na santuwaryo; sapagkat si Moises ay binalaan ng Diyos nang malapit na niyang itayo ang tabernakulo, “Tiyakin mo na iyong gagawin ang lahat ng mga bagay ayon sa huwarang ipinakita sa iyo sa bundok.”
+Subalit ngayo'y nagtamo si Cristo ng ministeryong higit na marangal, yamang siya'y tagapamagitan sa isang higit na mabuting tipan na pinagtibay sa higit na mabubuting pangako.
+Sapagkat kung ang unang tipang iyon ay walang kapintasan, hindi na sana kailangang humanap pa ng pangalawa.
+Sapagkat nang makakita ang Diyos ng kapintasan sa kanila, ay sinabi niya,
+“Ang mga araw ay tiyak na darating, sabi ng Panginoon,
+na ako'y gagawa ng isang bagong tipan sa sambahayan ni Israel
+at sa sambahayan ni Juda,
+hindi ayon sa tipang aking ginawa sa kanilang mga ninuno,
+nang araw na hawakan ko sila sa kamay, upang sila'y ihatid papalabas sa lupain ng Ehipto,
+sapagkat sila'y hindi nagpatuloy sa aking tipan,
+kaya't ako'y hindi nagmalasakit sa kanila, sabi ng Panginoon.
+Ito ang tipang aking gagawin sa sambahayan ni Israel
+pagkatapos ng mga araw na iyon, sabi ng Panginoon:
+ilalagay ko ang aking mga kautusan sa kanilang pag-iisip,
+at isusulat ko ang mga iyon sa kanilang mga puso,
+Ngayon, maging ang unang tipan ay nagkaroon ng mga alituntunin sa pagsamba at ng isang panlupang santuwaryo.
+Sapagkat inihanda ang unang tabernakulo na kinaroroonan ng ilawan, dulang, at ng mga tinapay na handog; ito ay tinatawag na Dakong Banal.
+Sa likod ng ikalawang tabing ay ang tabernakulo na tinatawag na Dakong Kabanal-banalan.
+Dito ay nakatayo ang isang gintong dambana ng insenso at ang kaban ng tipan na ang paligid ay nababalutan ng ginto, na siyang kinaroroonan ng sisidlang-ginto na kinalalagyan ng manna at ng tungkod ni Aaron na namulaklak, at ang mga tapyas na bato ng tipan.
+Sa ibabaw nito ay ang mga kerubin ng kaluwalhatian na lumililim sa trono ng awa. Ang mga bagay na ito ay hindi namin masasabi ngayon ng isa-isa.
+Pagkatapos magawa ang ganitong pagkahanda, ang mga pari ay patuloy na pumapasok sa unang tabernakulo upang gawin ang kanilang katungkulan sa paglilingkod;
+subalit sa ikalawa ay nag-iisang pumapasok ang pinakapunong pari, minsan sa isang taon, na may dalang dugo bilang handog niya para sa kanyang sarili at sa mga kasalanang nagawa nang di sinasadya ng taong-bayan.
+Sa pamamagitan nito, itinuturo ng Espiritu Santo na hindi pa naihahayag ang daan patungo sa santuwaryo, habang nakatayo pa ang unang tabernakulo.
+Iyon ay isang sagisag ng panahong kasalukuyan, na sa panahong yaon ang mga kaloob at ang mga alay na inihahandog ay hindi makapagpapasakdal sa budhi ng sumasamba,
+kundi tungkol lamang sa mga pagkain at mga inumin at iba't ibang paghuhugas, na mga alituntunin tungkol sa katawan na ipinatutupad hanggang sa ang panahon ay dumating upang maisaayos ang mga bagay.
+Ngunit nang dumating si Cristo na Pinakapunong Pari ng mabubuting bagay na darating, sa pamamagitan ng lalong dakila at lalong sakdal na tabernakulo na hindi gawa ng mga kamay ng tao, samakatuwid ay hindi sa sangnilikhang ito,
+at hindi rin sa pamamagitan ng dugo ng mga kambing at mga toro, kundi sa pamamagitan ng kanyang sariling dugo, siya ay pumasok na minsan magpakailanman sa Dakong Banal, sa gayo'y tinitiyak ang walang hanggang katubusan.
+Sapagkat kung ang dugo ng mga kambing at ng mga toro, at ang abo ng dumalagang baka na iwiniwisik sa mga nadungisan ay makapagpapabanal sa ikalilinis ng laman,
+gaano pa kaya ang dugo ni Cristo, na sa pamamagitan ng walang hanggang Espiritu ay inihandog ang kanyang sarili na walang dungis sa Diyos, ay maglilinis ng ating budhi mula sa mga gawang patay upang maglingkod sa Diyos na buháy?
+Kaya't siya ang tagapamagitan ng isang bagong tipan, upang ang mga tinawag ay tumanggap ng pangako na pamanang buhay na walang hanggan. Yamang naganap ang isang kamatayan na tumutubos sa kanila mula sa mga pagsalangsang sa ilalim ng unang tipan.
+Sapagkat kung saan mayroong tipan, ang kamatayan ng gumawa niyon ay dapat matiyak.
+Sapagkat ang isang tipan ay pinagtitibay sa kamatayan, yamang ito'y walang bisa habang nabubuhay pa ang gumawa ng tipan.
+Kaya't maging ang unang tipan ay hindi pinagtibay ng walang dugo.
+Sapagkat nang sabihin ni Moises ang bawat utos sa buong bayan ayon sa kautusan, kumuha siya ng dugo ng baka at ng mga kambing, na may tubig at mapulang balahibo at isopo, at winisikan niya ang aklat at gayundin ang buong bayan,
+na sinasabi, “Ito ang dugo ng tipan na iniutos ng Diyos sa inyo.”
+Sa gayunding paraan, ang tabernakulo at ang lahat ng mga kasangkapang ginagamit sa banal na pagsamba ay pinagwiwisikan niya ng dugo.
+Sa katunayan, sa ilalim ng kautusan, halos lahat ng mga bagay ay nililinis ng dugo, at kung walang pagdanak ng dugo ay walang kapatawaran ng mga kasalanan.
+Kaya't kailangan na ang mga sinipi mula sa mga bagay sa kalangitan ay linisin ng mga ito, ngunit ang mga bagay sa sangkalangitan ay sa pamamagitan ng higit na mabubuting handog kaysa mga ito.
+Sapagkat si Cristo ay hindi pumasok sa santuwaryo na ginawa ng mga kamay ng tao na mga kahalintulad lamang ng mga tunay na bagay, kundi sa mismong langit, upang dumulog ngayon sa harapan ng Diyos para sa atin.
+Hindi upang ihandog na paulit-ulit ang kanyang sarili, gaya ng pinakapunong pari na pumapasok sa Dakong Banal taun-taon na may dalang dugo na hindi mula sa kanya,
+sapagkat kung gayon ay kailangan siyang paulit-ulit na maghirap mula pa nang lalangin ang sanlibutan. Subalit ngayon, minsanan siyang nahayag sa katapusan ng panahon para sa pag-aalis ng mga kasalanan sa pamamagitan ng pag-aalay ng kanyang sarili.
+At yamang itinakda sa mga tao ang mamatay na minsan, at pagkatapos nito ay ang paghuhukom,
+ay gayundin naman si Cristo, na inihandog na minsan upang dalhin ang mga kasalanan ng marami, ay magpapakita sa ikalawang pagkakataon, hindi upang harapin ang kasalanan, kundi upang iligtas ang mga sabik na naghihintay sa kanya.
+Yamang ang kautusan ay anino lamang ng mabubuting bagay na darating, at hindi ang tunay na larawan ng mga bagay na ito, kailanman ay hindi nito mapapasakdal ang mga lumalapit sa pamamagitan ng gayunding mga alay na laging inihahandog taun-taon.
+Sapagkat kung di gayon, hindi ba sana ay itinigil nang ihandog ang mga iyon? Kung ang mga sumasamba na nalinis nang minsan, sana ay hindi na sila nagkaroon pa ng kamalayan sa kasalanan.
+Ngunit sa pamamagitan ng mga handog na ito ay may pagpapaalala ng mga kasalanan taun-taon.
+Sapagkat hindi maaaring mangyari na ang dugo ng mga toro at ng mga kambing ay makapag-alis ng mga kasalanan.
+Kaya't pagdating ni Cristo sa sanlibutan ay sinabi niya,
+“Hindi mo nais ang alay at handog,
+ngunit ipinaghanda mo ako ng isang katawan;
+sa mga handog na sinusunog at sa mga handog para sa mga kasalanan
+ay hindi ka nalugod.
+Kaya't sinabi ko, ‘Narito, ako'y dumating upang gawin ang iyong kalooban, O Diyos,’
+sa balumbon ng aklat ay nasusulat tungkol sa akin.”
+Nang sabihin niya sa itaas na, “Hindi mo ibig at hindi mo rin kinalugdan ang alay at mga handog, at mga buong handog na sinusunog at mga alay para sa kasalanan” na inihahandog ayon sa kautusan,
+pagkatapos ay idinagdag niya, “Narito, ako'y dumating upang gawin ang iyong kalooban.” Inalis niya ang una, upang maitatag ang ikalawa,
+at sa pamamagitan ng kalooban niya tayo'y ginawang banal sa pamamagitan ng pag-aalay ng katawan ni Cristo minsan magpakailanman.
+At bawat pari ay tumatayo araw-araw na naglilingkod at paulit-ulit na nag-aalay ng gayunding mga handog na kailanman ay hindi nakapag-aalis ng mga kasalanan.
+Ngunit nang makapaghandog si Cristo ng isa lamang alay para sa mga kasalanan para sa lahat ng panahon, siya ay umupo sa kanan ng Diyos,
+at buhat noon ay naghihintay hanggang sa ang kanyang mga kaaway ay maging tuntungan ng kanyang mga paa.
+Sapagkat sa pamamagitan ng isang pag-aalay ay kanyang pinasakdal para sa lahat ng panahon ang mga pinababanal.
+At ang Espiritu Santo ay nagpapatotoo rin sa atin, sapagkat pagkatapos niyang sabihin,
+“Ito ang tipan na aking gagawin sa kanila,
+pagkatapos ng mga araw na iyon, sabi ng Panginoon;
+ilalagay ko ang aking mga kautusan sa kanilang mga puso,
+at isusulat ko ang mga iyon sa kanilang pag-iisip,”
+sinabi rin niya,
+“At ang kanilang mga kasalanan at mga kasamaan ay hindi ko na aalalahanin pa.”
+Kung saan may kapatawaran ng mga ito, ay wala ng pag-aalay para sa kasalanan.
+Kaya, mga kapatid, yamang mayroon tayong pagtitiwala na pumasok sa santuwaryo sa pamamagitan ng dugo ni Jesus,
+na kanyang binuksan para sa atin ang isang bago at buháy na daan, sa pamamagitan ng tabing, samakatuwid ay sa kanyang laman,
+at yamang mayroon tayong isang pinakapunong pari sa bahay ng Diyos,
+tayo'y lumapit na may tapat na puso sa lubos na katiyakan ng pananampalataya, na ang mga puso ay winisikang malinis mula sa isang masamang budhi at nahugasan ang ating katawan ng dalisay na tubig.
+Panghawakan nating matatag ang pagpapahayag ng ating pag-asa nang walang pag-aalinlangan, sapagkat siya na nangako ay tapat.
+At ating isaalang-alang kung papaano gigisingin ang isa't isa sa pag-ibig at sa mabubuting gawa,
+na huwag nating pabayaan ang ating pagtitipon, gaya ng ugali ng iba, kundi palakasin ang loob ng isa't isa, lalung-lalo na kapag inyong nakikita na papalapit na ang Araw.
+Sapagkat kung sinasadya nating magkasala, matapos nating tanggapin ang lubos na pagkakilala sa katotohanan, ay wala ng natitira pang alay para sa mga kasalanan,
+kundi isang kakilakilabot na paghihintay sa paghuhukom, at isang naglalagablab na apoy na tutupok sa mga kaaway.
+Ang sumuway sa kautusan ni Moises, sa patotoo ng dalawa o tatlong saksi, ay walang awang namamatay.
+Gaano pa kayang higpit na parusa sa akala ninyo, ang nararapat sa kanila na yumurak sa Anak ng Diyos at lumapastangan sa dugo ng tipan na nagpabanal sa kanila, at umalipusta sa Espiritu ng biyaya?
+Sapagkat kilala natin ang nagsabi, “Akin ang paghihiganti, ako ang gaganti.” At muli, “Huhukuman ng Panginoon ang kanyang bayan.”
+Isang kakilakilabot na bagay ang mahulog sa mga kamay ng Diyos na buháy.
+Subalit alalahanin ninyo ang mga nakaraang araw, na pagkatapos na kayo'y maliwanagan, ay nagtiis kayo ng matinding pakikipaglaban na may pagdurusa,
+na kung minsan ay hayagang inilalantad sa pag-alipusta at pag-uusig, at kung minsan ay nagiging mga kabahagi ng mga nagdaranas ng gayon.
+Sapagkat kayo'y nahabag sa mga bilanggo, at tinanggap ninyo nang buong galak ang pagkasamsam sa inyong mga ari-arian, palibhasa'y inyong nalalamang mayroon kayong isang pag-aaring higit na mabuti at tumatagal.
+Kaya't huwag ninyong itakuwil ang inyong pagtitiwala na may dakilang gantimpala.
+Sapagkat kailangan ninyo ng pagtitiis, upang kapag inyong nagampanan ang kalooban ng Diyos ay tanggapin ninyo ang pangako.
+Sapagkat “sa sandaling panahon,
+ang siyang dumarating ay darating, at hindi maaantala.
+Ngayon, ang pananampalataya ay ang katiyakan sa mga bagay na inaasahan, ang paninindigan sa mga bagay na hindi nakikita.
+Tunay na sa pamamagitan nito ang mga tao noong una ay tumanggap ng patotoo.
+Sa pananampalataya ay nauunawaan natin na ang mga sanlibutan ay nilikha sa pamamagitan ng salita ng Diyos, anupa't ang mga bagay na nakikita ay nagmula sa mga bagay na hindi nakikita.
+Sa pananampalataya si Abel ay nag-alay sa Diyos ng higit na dakilang handog kaysa kay Cain. Sa pamamagitan nito siya'y pinuri bilang matuwid at ang Diyos ang nagpapatotoo sa pamamagitan ng pagtanggap sa kanyang mga kaloob. Patay na siya, gayunma'y nagsasalita pa sa pamamagitan ng kanyang pananampalataya.
+Sa pananampalataya si Enoc ay dinalang paitaas anupa't hindi na niya naranasan ang kamatayan. “Hindi na siya natagpuan, sapagkat siya'y kinuha ng Diyos.” Sapagkat bago siya dinalang paitaas, pinatotohanan na ang Diyos ay nalugod sa kanya.
+At kung walang pananampalataya ay hindi maaaring kalugdan ng Diyos, sapagkat ang sinumang lumalapit sa kanya ay dapat sumampalatayang may Diyos at siya ang tagapagbigay-gantimpala sa mga masigasig na humahanap sa kanya.
+Sa pananampalataya si Noe, nang mabigyan ng Diyos ng babala tungkol sa mga bagay na hindi pa nakikita, ay pinakinggan ang babala at gumawa ng isang daong para sa kaligtasan ng kanyang sambahayan. Sa pamamagitan nito ay hinatulan niya ang sanlibutan, at siya'y naging tagapagmana ng katuwirang ayon sa pananampalataya.
+Sa pananampalataya si Abraham, nang tawagin, ay sumunod upang pumunta sa isang lugar na kanyang tatanggapin bilang pamana; at siya'y pumunta na hindi nalalaman ang kanyang pupuntahan.
+Sa pananampalataya siya'y dumayo sa lupang pangako na tulad ng sa ibang lupain, at nanirahan sa mga tolda na kasama sina Isaac at Jacob, na kapwa mga tagapagmana ng gayunding pangako.
+Sapagkat siya'y umaasa sa lunsod na may mga kinasasaligan, na ang nagplano at nagtayo ay ang Diyos.
+Sa pananampalataya, maging si Sarah na isang baog ay tumanggap ng kakayahang magkaanak, bagaman lipas na sa tamang gulang, palibhasa'y itinuring niyang tapat ang nangako.
+Kaya't mula naman sa isang lalaki na parang patay na, ay isinilang ang mga inapo na kasindami ng mga bituin sa langit, at gaya ng di mabilang na mga buhangin sa tabi ng dagat.
+Ang lahat ng mga ito ay namatay sa pananampalataya na hindi tinanggap ang mga pangako, ngunit mula sa malayo ang mga iyon ay kanilang natanaw at binati. Kanilang ipinahayag na sila'y pawang mga dayuhan at manlalakbay sa ibabaw ng lupa,
+sapagkat ang mga nagsasabi ng gayong mga bagay ay nagpapakilalang sila ay naghahanap ng sariling bayan.
+Kung kanilang naalala ang kanilang pinanggalingan, nagkaroon sana sila ng pagkakataong makabalik.
+Ngunit sila ay nagnanais ng isang higit na mabuting lupain, samakatuwid ay ang makalangit. Kaya't ang Diyos ay hindi nahihiyang tawaging Diyos nila, sapagkat kanyang ipinaghanda sila ng isang lunsod.
+Sa pamamagitan ng pananampalataya, nang subukin si Abraham, ay kanyang inihandog si Isaac. Siya na tumanggap ng mga pangako ay handang maghandog ng kanyang bugtong na anak,
+na tungkol sa kanya ay sinabi, “Kay Isaac ay tatawagin ang iyong binhi.”
+Itinuring niya na maging mula sa mga patay ay maaaring buhayin ng Diyos ang isang tao, at sa matalinghagang pananalita, siya'y muli niyang tinanggap.
+Sa pananampalataya, binasbasan ni Isaac sina Jacob at Esau tungkol sa mga bagay na mangyayari.
+Sa pananampalataya, si Jacob nang mamamatay na ay binasbasan niya ang bawat isa sa mga anak ni Jose, at sumamba sa ibabaw ng kanyang tungkod.
+Sa pananampalataya, nang malapit nang mamatay si Jose ay binanggit niya ang tungkol sa paglikas ng mga Israelita, at nagbilin tungkol sa kanyang mga buto.
+Sa pananampalataya, nang ipanganak si Moises ay itinago siya ng tatlong buwan ng kanyang mga magulang, sapagkat kanilang nakitang maganda ang bata, at hindi sila natakot sa utos ng hari.
+Sa pananampalataya, nang nasa hustong gulang na si Moises ay tumangging siya'y tawaging anak ng anak na babae ni Faraon,
+na pinili pa ang mapasama sa kaapihan ng bayan ng Diyos, kaysa magkaroon ng pansamantalang kasiyahan ng kasalanan.
+Kanyang itinuring na malaking kayamanan ang magdusa alang-alang kay Cristo, kaysa sa mga kayamanan ng Ehipto, sapagkat kanyang pinagtutuunan ng pansin ang gantimpala.
+Sa pananampalataya ay iniwan niya ang Ehipto, at hindi natakot sa poot ng hari, sapagkat siya ay matiyagang nagpatuloy na tulad sa nakakakita sa kanya na hindi nakikita.
+Sa pananampalataya'y itinatag niya ang paskuwa at ang pagwiwisik ng dugo, upang huwag silang galawin ng Mamumuksa ng mga panganay.
+Sa pananampalataya'y tinahak nila ang Dagat na Pula na tulad sa tuyong lupa, ngunit nang tangkaing gawin ito ng mga Ehipcio ay nalunod sila.
+Sa pananampalataya'y gumuho ang pader ng Jerico, pagkatapos na malibot sa loob ng pitong araw.
+Sa pananampalataya si Rahab, na nagbibili ng aliw, ay hindi napahamak na kasama ng mga sumuway, sapagkat payapa niyang tinanggap ang mga espiya.
+At ano pa ang dapat kong sabihin? Sapagkat kukulangin ako ng panahon kung isasalaysay ko pa ang tungkol kina Gideon, Barak, Samson, Jefta, David, Samuel, at sa mga propeta;
+na ang mga ito, sa pamamagitan ng pananampalataya'y lumupig ng mga kaharian, naglapat ng katarungan, nagtamo ng mga pangako, nagpatikom ng mga bibig ng mga leon,
+pumatay ng bisa ng apoy, tumakas sa mga talim ng tabak, lumakas mula sa kahinaan, naging makapangyarihan sa digmaan, nagpaurong ng mga hukbong dayuhan.
+Tinanggap ng mga babae ang kanilang mga patay sa pamamagitan ng pagkabuhay na muli. Ang iba'y pinahirapan at tumangging tumanggap ng paglaya upang makamit nila ang higit na mabuting pagkabuhay na muli.
+Ang iba'y nagtiis ng pagkalibak at paghagupit, at maging ng mga tanikala at pagkabilanggo.
+Sila'y pinagbabato hanggang mamatay, nilagari, pinagpapatay sa tabak, sila'y naglibot na may suot na balat ng mga tupa at kambing, mga naghihirap, pinag-uusig, inaapi
+(na sa mga iyon ay hindi karapat-dapat ang sanlibutan). Sila'y nagpalabuy-laboy sa mga ilang, sa mga kabundukan, sa mga yungib, at sa mga lungga sa lupa.
+At ang lahat ng mga ito, bagaman pinuri dahil sa kanilang pananampalataya, ay hindi nila tinanggap ang ipinangako,
+yamang naghanda ang Diyos ng lalong mabuting bagay para sa atin, upang huwag silang gawing sakdal na hiwalay sa atin.
+Kaya't yamang napapalibutan tayo ng gayong kakapal na bilang ng mga saksi, itabi natin ang bawat pabigat at ang pagkakasalang madaling bumibitag sa atin, at tumakbo tayong may pagtitiis sa takbuhing inilagay sa harapan natin.
+Pagmasdan natin si Jesus na siyang nagtatag at nagpasakdal ng ating pananampalataya, na dahil sa kagalakang inilagay sa kanyang harapan ay tiniis niya ang krus, hindi inalintana ang kahihiyan, at siya'y umupo sa kanan ng trono ng Diyos.
+Isaalang-alang ninyo siya na nagtiis ng gayong pagsalungat ng mga makasalanan laban sa kanyang sarili, upang kayo'y huwag manghina o manlupaypay.
+Sa inyong pakikipaglaban sa kasalanan, hindi pa kayo humantong sa pagdanak ng inyong dugo.
+At nakalimutan na ninyo ang pangaral na sinasabi niya sa inyo bilang mga anak,
+“Anak ko, huwag mong ipagwalang-bahala ang disiplina ng Panginoon;
+huwag kang manlupaypay kung ikaw ay sinasaway niya;
+sapagkat dinidisiplina ng Panginoon ang kanyang minamahal,
+at pinarurusahan ang bawat itinuturing na anak.”
+Magtiis kayo alang-alang sa disiplina. Kayo ay pinapakitunguhan ng Diyos bilang mga anak, sapagkat ano ngang anak ang hindi dinidisiplina ng ama?
+Ngunit kung kayo ay hindi dinidisiplina, na siyang naranasan ng lahat, kung gayon kayo'y mga anak sa labas, at hindi mga tunay na anak.
+Bukod dito, tayo'y nagkaroon ng mga ama sa laman upang tayo'y disiplinahin, at sila'y ating iginagalang. Hindi ba dapat na tayo'y lalong pasakop sa Ama ng mga espiritu upang tayo'y mabuhay?
+Sapagkat tayo'y kanilang dinidisiplina nang maikling panahon ayon sa kanilang minamabuti, ngunit dinidisiplina niya tayo alang-alang sa ikabubuti natin, upang tayo'y makabahagi sa kanyang kabanalan.
+Subalit ang lahat ng disiplina sa kasalukuyan ay tila hindi kanais-nais kundi masakit, subalit sa hinaharap ay magdudulot ng mapayapang bunga ng katuwiran sa mga nasanay sa pamamagitan nito.
+Kaya't itaas ninyo ang mga kamay na nanghihina at muling palakasin ang mga tuhod na nanlulupaypay,
+at gumawa kayo ng matuwid na landas para sa inyong mga paa, upang huwag malinsad ang pilay, kundi bagkus ay gumaling.
+Pagsikapan ninyong magkaroon ng kapayapaan sa lahat at ng kabanalan na kung wala nito'y walang sinumang makakakita sa Panginoon.
+Pakaingatan ninyo na baka ang sinuma'y mahulog mula sa biyaya ng Diyos; baka may ilang ugat ng kapaitan ang sumibol at bumagabag sa inyo at mahawa nito ang marami.
+Tiyakin ninyong walang sinuman sa inyo na maging gaya ni Esau na mapakiapid, o lapastangan, na kapalit ng isang pinggang pagkain ay ipinagbili ang kanyang sariling pagkapanganay.
+Nalalaman ninyo na pagkatapos, nang nais niyang magmana ng pagpapala, siya'y itinakuwil sapagkat wala na siyang natagpuang pagkakataon upang magsisi, bagama't pinagsikapan niya iyon na may pagluha.
+Sapagkat hindi pa kayo lumapit sa bundok na nahihipo, sa apoy na nagliliyab, sa kadiliman, sa kapanglawan, at sa unos,
+sa tunog ng trumpeta, at sa tunog ng mga salita na ang nakarinig ay nakiusap na huwag nang magsalita pa sa kanila ng anuman.
+Sapagkat hindi nila matiis ang iniuutos na, “Maging isang hayop man ang tumuntong sa bundok ay pagbababatuhin.”
+At kakilakilabot ang nakikita kaya't sinabi ni Moises, “Ako'y natatakot at nanginginig.”
+Subalit kayo'y lumapit sa Bundok ng Zion, at sa lunsod ng Diyos na buháy, sa makalangit na Jerusalem, at sa mga di-mabilang na mga anghel, sa isang masayang pagtitipon,
+at sa kapulungan ng mga panganay na nakatala sa langit, at sa Diyos na Hukom ng lahat, at sa mga espiritu ng mga matuwid na pinasakdal,
+at kay Jesus na tagapamagitan ng bagong tipan, at sa dugong iwinisik na nagsasalita ng lalong mabuti kaysa dugo ni Abel.
+Pag-ingatan ninyong huwag itakuwil ang nagsasalita; sapagkat kung hindi nakatakas ang mga nagtakuwil sa nagbabala sa kanila sa lupa, lalo pa tayo kung tatalikuran natin ang nagbabala buhat sa langit!
+Sa pagkakataong iyon niyanig ng kanyang tinig ang lupa. Subalit ngayo'y nangako siya na sinasabi, “Minsan pang yayanigin ko, hindi lamang ang lupa, kundi pati ang langit.”
+Ngayon ang salitang, “Minsan pa,” ay nagpapahiwatig ng pag-aalis ng mga bagay na niyanig, gaya ng mga bagay na ginawa, upang manatili ang mga bagay na hindi nayayanig.
+Kaya't yamang tinanggap natin ang isang kahariang hindi mayayanig, magkaroon tayo ng biyaya na sa pamamagitan nito ay makapaghahandog tayo sa Diyos ng kalugud-lugod na paglilingkod, na may paggalang at takot,
+sapagkat ang Diyos natin ay isang apoy na tumutupok.
+Ipagpatuloy ninyo ang pag-iibigang magkakapatid.
+Huwag ninyong kalimutan ang magpatulóy ng mga dayuhan, sapagkat sa paggawa nito ang iba ay nakapagpatulóy na ng mga anghel nang hindi nila namamalayan.
+Alalahanin ninyo ang mga bilanggo na parang kayo'y nakabilanggong kasama nila; ang mga inaapi na parang kayo na rin sa katawan.
+Maging marangal sa lahat ang pag-aasawa, at huwag dungisan ang higaan, sapagkat ang mga nakikiapid at ang mga mangangalunya ay hahatulan ng Diyos.
+Umiwas kayo sa pag-ibig sa salapi at kayo'y masiyahan na kung anong mayroon kayo, sapagkat sinabi niya, “Sa anumang paraan ay hindi kita iiwan, o pababayaan man.”
+Kaya't panatag nating masasabi,
+“Ang Panginoon ang aking katulong; hindi ako matatakot:
+Anong magagawa sa akin ng tao?”
+Alalahanin ninyo ang mga namumuno sa inyo, silang nagsalita sa inyo ng salita ng Diyos; tingnan ninyo ang kinalabasan ng kanilang pamumuhay, tularan ninyo ang kanilang pananampalataya.
+Si Jesu-Cristo ay siya ring kahapon, ngayon, at magpakailanman.
+Huwag kayong padala sa sari-sari at kakaibang mga turo, sapagkat mabuti na ang puso ay patibayin ng biyaya; hindi sa pamamagitan ng mga pagkain, na di pinakinabangan ng mga tumupad ng mga iyon.
+Tayo ay may isang dambana, na kung saan ang mga naglilingkod sa tabernakulo ay walang karapatang kumain.
+Sapagkat ang katawan ng mga hayop na ang mga dugo'y dinadala ng pinakapunong pari sa santuwaryo para sa kasalanan ay sinusunog sa labas ng kampo.
+Kaya si Jesus man ay nagdusa sa labas ng pintuan ng lunsod upang gawing banal ang mga tao sa pamamagitan ng kanyang sariling dugo.
+Kaya't puntahan natin siya sa labas ng kampo na dala ang kanyang kahihiyan.
+Sapagkat dito'y wala tayong lunsod na magtatagal, ngunit hinahanap natin ang lunsod na darating.
+Kaya't sa pamamagitan niya ay maghandog tayong patuloy ng alay ng pagpupuri sa Diyos, samakatuwid ay ng bunga ng mga labi na nagpapahayag ng kanyang pangalan.
+Huwag ninyong kaliligtaan ang paggawa ng mabuti at ang pamamahagi, sapagkat ang Diyos ay nalulugod sa mga gayong handog.
+Sumunod kayo at pasakop sa mga namumuno sa inyo, sapagkat sila'y matamang nagbabantay alang-alang sa inyong mga kaluluwa bilang mga mananagot. Hayaang gampanan nila ito na may kagalakan at hindi nang may hapis, sapagkat kung ganito'y hindi ito magiging kapaki-pakinabang sa inyo.
+Idalangin ninyo kami, sapagkat kami'y naniniwalang kami ay may mabuting budhi, na nagnanais na mabuhay na marangal sa lahat ng mga bagay.
+At ako'y lalo pang nakikiusap sa inyo na inyong gawin ito, upang ako'y madaling maibalik sa inyo.
+Ngayon, ang Diyos ng kapayapaan na bumuhay mula sa mga patay sa ating Panginoong Jesus, ang dakilang pastol ng mga tupa, sa pamamagitan ng dugo ng walang hanggang tipan,
+nawa'y gawin niya kayong ganap sa bawat mabuting bagay upang magawa ninyo ang kanyang kalooban, at gawin sa atin ang nakakalugod sa paningin niya, sa pamamagitan ni Jesu-Cristo, na sa kanya ang kaluwalhatian magpakailanman. Amen.
+Mga kapatid, ngayon ay nananawagan ako sa inyo na inyong pagtiisan ang aking salita ng pangaral, sapagkat sa pamamagitan ng iilang mga salita ay sumulat ako sa inyo.
+Nais kong malaman ninyo na ang ating kapatid na si Timoteo ay pinalaya na; at kung siya'y dumating agad, kasama ko siyang makikita kayo.
+Batiin ninyo ang lahat ng mga namumuno sa inyo at ang lahat ng mga banal. Kayo'y binabati ng mga nasa Italia.
+Ang biyaya'y sumainyo nawang lahat. Amen.
+Si Santiago, na alipin ng Diyos at ng Panginoong Jesu-Cristo, ay bumabati sa labindalawang lipi na nasa Pangangalat.
+Mga kapatid ko, ituring ninyong buong kagalakan kapag kayo'y nahaharap sa sari-saring pagsubok,
+yamang inyong nalalaman na ang pagsubok sa inyong pananampalataya ay nagbubunga ng pagtitiis.
+At inyong hayaan na malubos ng pagtitiis ang gawa nito, upang kayo'y maging sakdal at ganap, na walang anumang kakulangan.
+Ngunit kung ang sinuman sa inyo ay nagkukulang ng karunungan, humingi siya sa Diyos na nagbibigay nang sagana sa lahat at hindi nanunumbat, at iyon ay ibibigay sa kanya.
+Ngunit humingi siyang may pananampalataya na walang pag-aalinlangan, sapagkat ang nag-aalinlangan ay katulad ng alon sa dagat na hinihipan at ipinapadpad ng hangin.
+Sapagkat ang taong iyon ay hindi dapat mag-akala na siya'y tatanggap ng anumang bagay mula sa Panginoon.
+Siya ay isang taong nagdadalawang isip, di-matatag sa lahat ng kanyang mga lakad.
+Ngunit ang kapatid na hamak ay hayaang magmalaki sa kanyang pagkakataas,
+at ang mayaman sa kanyang pagkaaba, sapagkat siya'y lilipas na gaya ng bulaklak sa parang.
+Sapagkat ang araw ay sumisikat na may nakakapasong init at tinutuyo ang damo at nilalagas ang bulaklak nito, at nawawala ang kagandahan nito. Gayundin ang taong mayaman ay malalanta sa gitna ng kanyang abalang pamumuhay.
+Mapalad ang taong nagtitiis ng pagsubok, sapagkat kapag siya ay subok na, siya'y tatanggap ng putong ng buhay, na ipinangako ng Panginoon sa mga nagmamahal sa kanya.
+Huwag sabihin ng sinuman kapag siya'y tinutukso, “Ako'y tinutukso ng Diyos,” sapagkat ang Diyos ay hindi natutukso ng masasama, at hindi rin siya nanunukso sa sinuman.
+Ngunit ang bawat tao ay natutukso ng sarili niyang pagnanasa, kapag siya ay nahila at naakit nito;
+at kapag ang pagnanasang iyon ay naipaglihi, ito ay nanganganak ng kasalanan, at ang kasalanan kapag malaki na ay nagbubunga ng kamatayan.
+Huwag kayong padaya, mga minamahal kong kapatid.
+Ang bawat mabuting kaloob at ang bawat sakdal na kaloob ay pawang buhat sa itaas, na nanggagaling sa Ama ng mga ilaw, na sa kanya ay walang pag-iiba, o anino man ng pagbabago.
+Alinsunod sa kanyang sariling kalooban, tayo ay ipinanganak niya sa pamamagitan ng salita ng katotohanan, upang tayo'y maging isang uri ng mga unang bunga sa kanyang mga nilalang.
+Unawain ninyo ito, minamahal kong mga kapatid: ang bawat tao ay dapat na maging mabilis sa pakikinig, marahan sa pagsasalita, mabagal sa pagkagalit;
+sapagkat ang galit ng tao ay hindi gumagawa ng katuwiran ng Diyos.
+Kaya't alisin ninyo ang lahat ng karumihan at ang nalalabing kasamaan, at tanggapin ninyo na may kaamuan ang salitang itinanim, na may kapangyarihang magligtas ng inyong mga kaluluwa.
+Ngunit maging tagatupad kayo ng salita, at hindi tagapakinig lamang, na dinadaya ninyo ang inyong mga sarili.
+Sapagkat kung ang sinuman ay tagapakinig ng salita at hindi tagatupad, siya ay katulad ng isang tao na tinitingnan ang kanyang likas na mukha sa salamin;
+sapagkat minamasdan niya ang kanyang sarili at umaalis, at agad niyang nalilimutan kung ano ang kanyang katulad.
+Ngunit ang tumitingin sa sakdal na kautusan, ang kautusan ng kalayaan, at nananatili na hindi tagapakinig na malilimutin, kundi tagatupad na gumagawa, siya ay pagpapalain sa kanyang gawain.
+Kung inaakala ng sinuman na siya'y relihiyoso, subalit hindi pinipigil ang kanyang dila, kundi dinadaya ang kanyang puso, ang relihiyon ng taong iyon ay walang kabuluhan.
+Mga kapatid ko, huwag kayong magkaroon ng pagtatangi habang tinataglay ninyo ang pananampalataya sa ating Panginoong Jesu-Cristo, ang Panginoon ng kaluwalhatian.
+Sapagkat kung pumasok sa inyong pagtitipon ang isang taong may mga gintong singsing sa mga daliri at may magandang kasuotan, at may pumasok ding isang dukha na may hamak na damit,
+at inyong pinansin ang may suot ng damit na maganda, at sinabi, “Maupo ka rito,” at sa dukha ay inyong sinabi, “Tumayo ka riyan,” o “Maupo ka sa ibaba ng tuntungan ng aking mga paa,”
+hindi ba kayo'y gumagawa ng mga pagtatangi sa inyong mga sarili, at nagiging mga hukom na may masasamang pag-iisip?
+Makinig kayo, minamahal kong mga kapatid. Hindi ba pinili ng Diyos ang mga dukha sa sanlibutang ito upang maging mayayaman sa pananampalataya at mga tagapagmana ng kaharian na kanyang ipinangako sa mga nagmamahal sa kanya?
+Ngunit inyong hinamak ang dukha. Hindi ba ang mayayaman ang umaapi sa inyo at kumakaladkad sa inyo sa mga hukuman?
+Hindi ba sila ang lumalapastangan sa mabuting pangalan na itinawag sa inyo?
+Mabuti ang inyong ginagawa kung tunay na inyong ginaganap ang kautusang maka-hari, ayon sa kasulatan, “Ibigin mo ang iyong kapwa na gaya ng iyong sarili.”
+Subalit kung kayo'y nagpapakita ng pagtatangi, kayo ay nagkakasala at kayo'y inilalantad ng kautusan bilang mga lumalabag.
+Sapagkat sinumang tumutupad ng buong kautusan, subalit lumalabag sa isa, ay nagkakasala sa lahat.
+Sapagkat siya na nagsabi, “Huwag kang mangalunya,” ay nagsabi rin, “Huwag kang papatay.” Ngayon, kung ikaw ay hindi nangangalunya, ngunit pumapatay ka, ikaw ay lumalabag sa kautusan.
+Kaya't magsalita kayo at kumilos na gaya ng mga taong hahatulan sa pamamagitan ng kautusan ng kalayaan.
+Sapagkat ang paghuhukom ay walang awa sa mga hindi nagpakita ng awa; ang awa ay nagtatagumpay laban sa paghuhukom.
+Ano ang pakinabang mga kapatid ko, kung sinasabi ng sinuman na siya'y may pananampalataya, ngunit walang mga gawa? Maililigtas ba siya ng kanyang pananampalataya?
+Kung ang isang kapatid na lalaki o babae ay namumuhay nang hubad at kinukulang sa pagkain sa araw-araw,
+at ang isa sa inyo ay magsabi sa kanila, “Humayo kayong payapa, magpainit kayo at magpakabusog,” subalit hindi ninyo sila binibigyan ng mga bagay na kailangan ng katawan; anong pakinabang niyon?
+Kaya't ang pananampalataya na nag-iisa, kung ito ay walang mga gawa ay patay.
+Subalit may magsasabi, “Ikaw ay mayroong pananampalataya, at ako'y mayroong mga gawa.” Ipakita mo sa akin ang iyong pananampalatayang walang mga gawa, at ipapakita ko sa pamamagitan ng aking mga gawa ang aking pananampalataya.
+Sumasampalataya ka na ang Diyos ay iisa; mabuti ang iyong ginagawa. Ang mga demonyo man ay sumasampalataya at nanginginig pa.
+Subalit nais mo bang malaman, O taong hangal, na ang pananampalataya na walang mga gawa ay baog?
+Hindi ba ang ating amang si Abraham ay inaring-ganap sa pamamagitan ng mga gawa, nang kanyang inihandog si Isaac na kanyang anak sa ibabaw ng dambana?
+Nakikita mo na ang pananampalataya ay gumagawang kalakip ng kanyang mga gawa, at ang pananampalataya ay naging ganap sa pamamagitan ng mga gawa.
+Kaya't natupad ang kasulatan na nagsasabi, “Si Abraham ay sumampalataya sa Diyos, at iyo'y ibinilang sa kanya na katuwiran,” at siya'y tinawag na kaibigan ng Diyos.
+Nakikita ninyo na ang tao'y inaaring-ganap sa pamamagitan ng mga gawa at hindi sa pamamagitan ng pananampalataya lamang.
+Gayundin, hindi ba't si Rahab na masamang babae ay inaring-ganap sa pamamagitan ng mga gawa, nang tanggapin niya ang mga sugo at pinalabas sila sa ibang daan?
+Sapagkat kung paanong ang katawan na walang espiritu ay patay, gayundin naman ang pananampalataya na walang mga gawa ay patay.
+Mga kapatid ko, huwag maging guro ang marami sa inyo, yamang nalalaman nating hahatulan tayo ng mas mahigpit.
+Sapagkat tayong lahat ay natitisod sa maraming bagay. Kung ang sinuman ay hindi natitisod sa pananalita, ito ay isang taong sakdal, may kakayahang pigilan ang buong katawan.
+Kung tayo nga'y naglalagay ng mga preno sa bibig ng mga kabayo upang sumunod sila sa atin, ibinabaling natin ang kanilang buong katawan.
+Tingnan ninyo ang mga barko: bagama't napakalalaki at itinutulak ng malalakas na hangin, gayunma'y napapabaling sa pamamagitan ng isang napakaliit na timon saanman naisin ng piloto.
+Gayundin naman, ang dila ay isang maliit na bahagi ngunit nagyayabang ng malalaking bagay. Tingnan ninyo kung paanong sinusunog ng maliit na apoy ang malalaking gubat!
+At ang dila'y isang apoy. Ang dila na kasama ng ating mga sangkap ay isang sanlibutan ng kasamaan. Dinudungisan nito ang buong katawan, at sinusunog ang pag-inog ng kalikasan, at ito mismo ay sinusunog ng impiyerno.
+Sapagkat ang bawat uri ng mga hayop at mga ibon, ng mga hayop na gumagapang at mga nilalang sa dagat ay mapapaamo at napapaamo na ng tao,
+subalit ang dila ay hindi napapaamo ng tao, isang hindi napipigilang kasamaang punô ng lasong nakamamatay.
+Sa pamamagitan nito ay pinupuri natin ang Panginoon at Ama, at sa pamamagitan nito ay nilalait natin ang mga taong ginawa ayon sa larawan ng Diyos.
+Mula sa iisang bibig ay lumalabas ang pagpupuri at panlalait. Mga kapatid ko, hindi dapat maging ganito.
+Ang isang bukal ba ay binubukalan ng matamis at mapait?
+Mga kapatid ko, maaari ba na ang puno ng igos ay magbunga ng olibo, o ng mga igos ang puno ng ubas? Hindi rin maaaring daluyan ng tabang ang maalat na tubig.
+Sino ang marunong at maunawain sa inyo? Ipakita niya sa pamamagitan ng mabuting pamumuhay ang kanyang mga gawa sa kaamuan ng karunungan.
+Ngunit kung kayo'y mayroong mapapait na paninibugho at pagiging makasarili sa inyong puso, huwag kayong magmalaki at huwag kayong magsinungaling laban sa katotohanan.
+Hindi ito ang karunungang bumababa mula sa itaas, kundi makalupa, makalaman, may sa demonyo.
+Sapagkat kung saan mayroong paninibugho at pagiging makasarili, doon ay mayroong kaguluhan at bawat gawang masama.
+Ngunit ang karunungang buhat sa itaas, una'y malinis, saka mapagpayapa, banayad, mapagbigay, puspos ng kaawaan at ng mabubuting bunga, walang pagtatangi, walang pagkukunwari.
+At ang bunga ng katuwiran ay itinatanim sa kapayapaan ng mga gumagawa ng kapayapaan.
+Saan nagmumula ang mga digmaan at saan nagmumula ang mga pag-aaway sa inyo? Hindi ba mula sa inyong mga kalayawan na nakikipaglaban sa inyong mga sangkap?
+Kayo'y naghahangad, at kayo'y wala; kayo'y pumapatay at kayo'y nag-iimbot at kayo'y hindi nagkakamit. Kayo'y nag-aaway at nagdidigmaan. Kayo'y wala, sapagkat hindi kayo humihingi.
+Kayo'y humihingi, at hindi tumatanggap, sapagkat humihingi kayo sa masamang dahilan, upang gugulin ninyo ito sa inyong mga kalayawan.
+Mga mangangalunya! Hindi ba ninyo nalalaman na ang pakikipagkaibigan sa sanlibutan ay pakikipag-away sa Diyos? Kaya't sinumang nagnanais na maging kaibigan ng sanlibutan ay nagiging kaaway ng Diyos.
+O iniisip ba ninyo na walang kabuluhan ang sinasabi ng kasulatan na, “Ang espiritu na pinatira niya sa atin ay nagnanasa na may paninibugho?”
+Ngunit siya'y nagbibigay ng higit pang biyaya. Kaya't sinasabi, “Ang Diyos ay sumasalungat sa mga mapagmataas, subalit nagbibigay ng biyaya sa mga mapagpakumbaba.”
+Kaya't pasakop kayo sa Diyos, labanan ninyo ang diyablo, at siya ay lalayo sa inyo.
+Lumapit kayo sa Diyos, at siya'y lalapit sa inyo. Maglinis kayo ng inyong mga kamay, mga makasalanan, at pabanalin ninyo ang inyong mga puso, kayong mga may dalawang pag-iisip.
+Kayo'y managhoy, magluksa, at umiyak. Palitan ninyo ang inyong pagtawa ng pagluluksa, at ang inyong kagalakan ng kalungkutan.
+Magpakumbaba kayo sa harapan ng Panginoon, at kanyang itataas kayo.
+Mga kapatid, huwag kayong magsalita ng masama laban sa isa't isa. Ang nagsasalita laban sa kapatid, o humahatol sa kanyang kapatid ay nagsasalita ng masama laban sa kautusan, at humahatol sa kautusan. Ngunit kung ikaw ay humahatol sa kautusan, hindi ka na tagatupad ng kautusan, kundi isang hukom.
+Iisa ang tagapagbigay ng kautusan at hukom, siya na may kapangyarihang magligtas at pumuksa. Kaya, sino ka na humahatol sa iyong kapwa?
+Halikayo ngayon, kayong nagsasabi, “Ngayon o bukas ay pupunta kami sa ganito o sa ganoong bayan, at kami ay mangangalakal doon ng isang taon at kikita.”
+Gayunman ay hindi ninyo nalalaman kung ano ang magaganap bukas. Ano ba ang inyong buhay? Kayo nga'y isang singaw na sa sandaling panahon ay lumilitaw, at pagkatapos ay naglalaho.
+Sa halip ay dapat ninyong sabihin, “Kung loloobin ng Panginoon kami ay mabubuhay at gagawin namin ito o iyon.”
+Subalit ngayon ay nagmamalaki kayo sa inyong mga kayabangan. Ang lahat ng gayong pagmamalaki ay masama.
+Kaya't ang sinumang nakakaalam ng paggawa ng mabuti ngunit hindi ito ginagawa, ito ay kasalanan sa kanya.
+Halikayo ngayon, kayong mayayaman, tumangis kayo at humagulhol dahil sa mga kahirapan na sa inyo'y darating.
+Ang inyong mga kayamanan ay bulok na, at ang inyong mga damit ay kinakain na ng bukbok.
+Ang inyong ginto at ang inyong pilak ay kinakalawang na, at ang mga kalawang ng mga ito ay magiging patotoo laban sa inyo, at gaya ng apoy ay lalamunin nito ang inyong laman. Kayo'y nag-imbak ng mga kayamanan para sa mga huling araw.
+Tingnan ninyo, ang sahod ng mga manggagawa na gumapas sa inyong mga bukid na inyong ipinagkakait ay umiiyak; at ang pag-iyak ng mga umani ay nakarating sa pandinig ng Panginoon ng mga hukbo.
+Kayo'y namuhay na may pagpapasasa sa ibabaw ng lupa, at namuhay kayong may karangyaan. Pinataba ninyo ang inyong mga puso sa araw ng katayan.
+Inyong hinatulan at pinaslang ang taong matuwid na hindi lumalaban sa inyo.
+Kaya, maging matiyaga kayo, mga kapatid, hanggang sa pagdating ng Panginoon. Hinihintay ng magsasaka ang mahalagang bunga ng lupa, na siya'y nagtitiis para dito hanggang sa ito ay tumanggap ng una at huling ulan.
+Maging matiyaga rin kayo. Patatagin ninyo ang inyong mga puso, sapagkat ang pagdating ng Panginoon ay malapit na.
+Mga kapatid, huwag kayong magbulung-bulungan laban sa isa't isa, upang huwag kayong mahatulan. Tingnan ninyo, ang hukom ay nakatayo sa harapan ng mga pintuan.
+Mga kapatid, kunin ninyong halimbawa ng pagtitiis at ng pagtitiyaga ang mga propeta na nagsalita sa pangalan ng Panginoon.
+Tunay na tinatawag nating mapapalad ang mga nagtiis. Narinig ninyo ang tungkol sa pagtitiis ni Job, at inyong nakita ang layunin ng Panginoon, kung paanong ang Panginoon ay punô ng pagkahabag at pagkamaawain.
+Ngunit higit sa lahat, mga kapatid ko, huwag ninyong ipanumpa ang langit o ang lupa, o ang anumang ibang panunumpa, kundi ang inyong “Oo” ay maging oo; at ang inyong “Hindi” ay maging hindi, upang kayo'y huwag mahulog sa ilalim ng kahatulan.
+Mayroon ba sa inyong nagdurusa? Manalangin siya. Mayroon bang masaya? Umawit siya ng papuri.
+May sakit ba ang sinuman sa inyo? Ipatawag niya ang matatanda ng iglesya, at kanilang ipanalangin siya, at siya'y pahiran nila ng langis sa pangalan ng Panginoon.
+Ang panalangin na may pananampalataya ay magliligtas sa maysakit, at ibabangon siya ng Panginoon; at kung siya ay nagkasala, siya ay patatawarin.
+Kaya't ipahayag ninyo sa isa't isa ang inyong mga kasalanan, at ipanalangin ninyo ang isa't isa, upang kayo'y gumaling. Ang panalangin ng taong matuwid ay makapangyarihan at mabisa.
+Si Elias ay isang taong may likas na gaya rin ng sa atin, at siya'y taimtim na nanalangin upang huwag umulan, at hindi umulan sa lupa sa loob ng tatlong taon at anim na buwan.
+At muli siyang nanalangin, at ang langit ay nagbigay ng ulan, at ang lupa ay sinibulan ng bunga nito.
+Mga kapatid ko, kung ang sinuman sa inyo ay naliligaw mula sa katotohanan, at siya'y pinapanumbalik ng sinuman,
+dapat niyang malaman na ang nagpapanumbalik sa isang makasalanan mula sa pagkaligaw sa kanyang landas ay magliligtas ng kaluluwa mula sa kamatayan, at magtatakip ng napakaraming kasalanan.
 Sa simula ay ang Salita, at ang Salita ay kasama ng Diyos, at ang Salita ay Diyos.
 Sa simula ay kasama na siya ng Diyos.
 Lahat ng mga bagay ay ginawa sa pamamagitan niya at kung wala siya ay hindi nagawa ang anumang bagay na ginawa.
@@ -2499,6 +3690,30 @@ Sinabi sa kanya ni Jesus, “Kung ibig kong siya'y manatili hanggang sa ako'y du
 Kaya't kumalat ang sabi-sabi sa mga kapatid na ang alagad na iyon ay hindi mamamatay. Subalit hindi sinabi ni Jesus sa kanya na hindi siya mamamatay, kundi, “Kung ibig kong siya'y manatili hanggang sa ako'y dumating ay ano nga sa iyo?”
 Ito ang alagad na nagpapatotoo sa mga bagay na ito at ang sumulat ng mga ito; at nalalaman namin na ang kanyang patotoo ay tunay.
 Subalit marami pa ring ibang mga bagay na ginawa si Jesus, na kung susulating isa-isa, sa palagay ko, kahit sa sanlibutan mismo ay hindi magkakasiya ang mga aklat na isusulat.
+Si Judas, na alipin ni Jesu-Cristo at kapatid ni Santiago, sa mga tinawag, na minamahal ng Diyos Ama, at iniingatan para kay Jesu-Cristo:
+Ang kaawaan, kapayapaan at pag-ibig ay pasaganain nawa sa inyo.
+Mga minamahal, samantalang ako'y lubusang nagsisikap na sumulat sa inyo tungkol sa ating iisang kaligtasan, natagpuan kong kailangang sumulat upang himukin kayo na ipaglaban ang pananampalataya na minsanang ibinigay sa mga banal.
+Sapagkat may ilang taong nakapasok nang lihim, ang mga iyon ay matagal nang itinalaga sa kahatulang ito, mga hindi maka-Diyos, na kanilang pinalitan ng kahalayan ang biyaya ng ating Diyos, at itinatatuwa ang kaisa-isa nating Pinuno at Panginoon na si Jesu-Cristo.
+Ngayon ay nais kong ipaalala sa inyo, bagama't alam na alam ninyo ang mga bagay na ito, na minsang iniligtas ng Panginoon ang isang bayan mula sa lupain ng Ehipto, pagkatapos ay nilipol niya ang mga hindi sumampalataya.
+At ang mga anghel na hindi nag-ingat ng kanilang sariling katungkulan, kundi iniwan ang kanilang sariling tirahan, ay iginapos niya sa mga tanikalang walang hanggan sa pinakamalalim na kadiliman hanggang sa paghuhukom sa dakilang araw.
+Gayundin ang Sodoma at Gomorra, at ang mga lunsod sa palibot ng mga ito, na gumawa naman ng pakikiapid at nalulong sa kakaibang laman, ay inilagay bilang halimbawa, na nagdaranas ng kaparusahan sa apoy na walang hanggan.
+Gayunma'y ang mga ito rin na mahilig managinip ay dinudumihan ang laman, at hinahamak ang mga may kapangyarihan at nilalait ang mga maluwalhating mga anghel.
+Subalit si Miguel na arkanghel nang makipaglaban sa diyablo, at nakipagtalo tungkol sa katawan ni Moises, ay hindi nangahas gumamit ng isang hatol na may pag-alipusta laban sa kanya, kundi sinabi, “Sawayin ka nawa ng Panginoon.”
+Subalit inaalipusta ng mga ito ang anumang bagay na hindi nila nauunawaan, at sa pamamagitan ng mga bagay na likas nilang nalalaman, kagaya ng mga hayop na walang pag-iisip, sila'y winawasak.
+Kahabag-habag sila! Sapagkat sila'y lumakad sa daan ni Cain, at sumunggab sa kamalian ni Balaam dahil sa upa, at napahamak sa paghihimagsik ni Kora.
+Ang mga taong ito'y pawang mga batong natatago sa inyong mga pagsasalu-salong may pag-ibig kapag sila'y nakikipagsalo sa inyo nang walang takot, na ang pinapangalagaan lamang ay ang kanilang sarili. Sila'y mga ulap na walang tubig, na tinatangay ng mga hangin; mga punungkahoy na walang bunga sa pagtatapos ng taglagas, na dalawang ulit na namatay, na binunot hanggang ugat;
+nagngangalit na alon sa dagat, na pinabubula ang kanilang sariling kahihiyan; mga pagala-galang bituin, na silang pinaglaanan ng pusikit na kadiliman magpakailanman.
+At sa mga ito rin naman si Enoc, na ikapitong salinlahi mula kay Adan, ay nagpahayag na sinasabi, “Narito, dumating ang Panginoon na kasama ang kanyang laksa-laksang mga banal,
+upang igawad ang hatol sa lahat at upang sumbatan ang bawat kaluluwa sa lahat ng kanilang masamang gawa na kanilang ginawang may kalikuan, at sa lahat ng mga bagay na malupit na sinalita sa kanya ng mga hindi maka-Diyos na makasalanan.”
+Ang mga iyon ay mga mapagbulong, mga mareklamo, na lumalakad ayon sa kanilang mga sariling pagnanasa at ang kanilang bibig ay nagsasalita ng mga pagmamataas, na pakunwaring pumupuri sa mga tao para sa sariling kapakinabangan.
+Ngunit kayo, mga minamahal, alalahanin ninyo ang mga salitang sinabi noong una ng mga apostol ng ating Panginoong Jesu-Cristo,
+sapagkat sinabi nila sa inyo, “Magkakaroon ng mga manlilibak sa huling panahon, na lumalakad ayon sa kanilang sariling masasamang pagnanasa.”
+Ang mga ito ang lumilikha ng pagkakabaha-bahagi, mga taong makamundo, na mga hindi nagtataglay ng Espiritu.
+Ngunit kayo, mga minamahal, patatagin ninyo ang inyong sarili sa inyong kabanal-banalang pananampalataya; manalangin sa Espiritu Santo;
+ingatan ninyo ang inyong sarili sa pag-ibig ng Diyos, na inyong hintayin ang habag ng ating Panginoong Jesu-Cristo tungo sa buhay na walang hanggan.
+At ang ibang nag-aalinlangan ay inyong kahabagan;
+ang iba'y inyong iligtas, na agawin ninyo mula sa apoy; at ang iba'y inyong kahabagan na may takot; na inyong kapootan maging ang damit na nadungisan ng laman.
+Ngayon sa kanya na may kakayahang mag-ingat sa inyo mula sa pagkatisod, at sa inyo'y makapaghaharap na walang kapintasan sa harapan ng kanyang kaluwalhatian na may malaking kagalakan,
 Yamang marami ang nagsikap mag-ayos ng isang kasaysayan tungkol sa mga bagay na naganap sa gitna natin,
 ayon sa ipinaalam sa atin ng mga taong buhat sa pasimula ay mga saksing nakakita at mga tagapangaral ng salita,
 ay minabuti ko naman, pagkatapos na siyasating mabuti ang lahat ng mga pangyayari buhat sa pasimula, na sumulat ng isang maayos na salaysay para sa iyo, kagalang-galang na Teofilo,
@@ -5447,6 +6662,550 @@ Ang sumasampalataya at mabautismuhan ay maliligtas; ngunit ang hindi sumasampala
 At ang mga tandang ito ay tataglayin ng mga nananampalataya: sa paggamit ng aking pangalan ay magpapalayas sila ng mga demonyo, magsasalita sila ng mga bagong wika;
 sila'y hahawak ng mga ahas, at kung makainom sila ng bagay na nakamamatay, hindi ito makakasama sa kanila, ipapatong nila ang kanilang mga kamay sa mga maysakit, at sila'y gagaling.”
 Kaya't ang Panginoong Jesus nga, pagkatapos na siya'y magsalita sa kanila ay iniakyat sa langit at lumuklok sa kanan ng Diyos.
+Si Pablo, bilanggo ni Cristo Jesus, at si kapatid na Timoteo,
+Kay Filemon na aming minamahal na kaibigan at kamanggagawa,
+at kay Apia na ating kapatid na babae, at kay Arquipo na kapwa namin kawal, at sa iglesya na nasa iyong bahay:
+Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos na ating Ama at sa Panginoong Jesu-Cristo.
+Lagi akong nagpapasalamat sa aking Diyos kapag naaalala kita sa aking mga panalangin,
+sapagkat nabalitaan ko ang iyong pag-ibig para sa lahat ng mga banal at ang pananampalataya mo sa Panginoong Jesus.
+Idinadalangin ko na ang pamamahagi ng iyong pananampalataya ay maging mabisa kapag nalaman mo ang bawat mabuting bagay na maaari nating gawin para kay Cristo.
+Sapagkat ako'y totoong nagalak at naaliw sa iyong pag-ibig, sapagkat ang mga puso ng mga banal ay naginhawahan sa pamamagitan mo, kapatid ko.
+Dahil dito, bagama't kay Cristo ay mayroon akong sapat na lakas ng loob upang utusan kitang gawin ang kinakailangan,
+gayunma'y alang-alang sa pag-ibig ay nanaisin ko pang makiusap sa iyo—akong si Pablo ay matanda na, at ngayon ay isa ring bilanggo ni Cristo Jesus.
+Ako'y nakikiusap sa iyo para sa aking anak na si Onesimo na ako'y naging kanyang ama nang ako'y nasa bilangguan.
+Noon ay wala kang pakinabang sa kanya, ngunit ngayon ay kapaki-pakinabang siya sa iyo at sa akin.
+Siya'y aking pinababalik sa iyo, na kasama ang aking sariling puso.
+Nais kong manatili siyang kasama ko upang siya'y makatulong sa akin bilang kapalit mo sa panahon ng aking pagiging bilanggo para sa ebanghelyo.
+Ngunit ayaw kong gumawa ng anuman na wala kang pahintulot upang ang iyong kabutihang-loob ay hindi maging sapilitan kundi ayon sa sarili mong kalooban.
+Marahil ito ang dahilan kung bakit nahiwalay siya sa iyo nang ilang panahon, upang siya'y mapasaiyo magpakailanman;
+hindi na bilang alipin, kundi higit sa alipin, isang kapatid na minamahal, lalung-lalo na sa akin, at gaano pa kaya sa iyo, maging sa laman at gayundin sa Panginoon.
+Kaya't kung ako ay itinuturing mong kasama, tanggapin mo siya na parang ako.
+Ngunit kung siya'y nagkasala sa iyo ng anuman, o may anumang utang sa iyo, ay ibilang mong utang ko na rin.
+Akong si Pablo ay sumusulat nito sa pamamagitan ng aking sariling kamay: Ako ang magbabayad niyon. Hindi ko na ibig banggitin pa na utang mo sa akin pati ang iyong sarili.
+Oo, kapatid, hayaan mo nang magkaroon ako ng kapakinabangan na ito mula sa iyo sa Panginoon! Sariwain mo ang aking puso kay Cristo.
+Sinulatan kita na may pagtitiwala sa iyong pagsunod, yamang nalalaman ko na gagawin mo ang higit pa kaysa aking sinasabi.
+Isa pa, ipaghanda mo na rin ako ng matutuluyan, sapagkat umaasa ako na sa pamamagitan ng inyong mga panalangin ay maibabalik ako sa inyo.
+Binabati ka ni Epafras na aking kasamang bilanggo kay Cristo Jesus;
+gayundin nina Marcos, Aristarco, Demas, at ni Lucas na aking mga kamanggagawa.
+Si Pablo at si Timoteo, na mga alipin ni Cristo Jesus, sa lahat ng mga banal kay Cristo Jesus na nasa Filipos, kasama ang mga obispo at ang mga diakono:
+Sumainyo nawa ang biyaya at kapayapaang mula sa Diyos na ating Ama at sa Panginoong Jesu-Cristo.
+Ako'y nagpapasalamat sa aking Diyos tuwing kayo'y aking naaalala,
+na laging nananalanging may kagalakan sa bawat panalangin ko para sa inyong lahat,
+dahil sa inyong pakikibahagi sa pagpapalaganap ng ebanghelyo, mula nang unang araw hanggang ngayon.
+Ako'y panatag sa bagay na ito, na ang nagpasimula sa inyo ng mabuting gawa ay siyang magtatapos nito hanggang sa araw ni Jesu-Cristo.
+Matuwid na aking isipin ang gayon tungkol sa inyong lahat, sapagkat kayo'y nasa aking puso, yamang kayong lahat ay kabahagi ko sa biyaya, sa aking mga tanikala, at sa pagtatanggol at pagpapatunay sa ebanghelyo.
+Sapagkat saksi ko ang Diyos, kung gaano ang pananabik ko sa inyong lahat sa pagmamahal ni Cristo Jesus.
+Idinadalangin ko na ang inyong pag-ibig ay lalo pang sumagana sa kaalaman at sa lahat ng pang-unawa;
+upang inyong makilala ang mga bagay na magaling; at kayo'y maging mga tapat at walang kapintasan hanggang sa araw ni Cristo;
+na mapuspos ng mga bunga ng katuwiran, sa pamamagitan ni Jesu-Cristo, sa kaluwalhatian at kapurihan ng Diyos.
+Ibig kong malaman ninyo, mga kapatid, na ang mga bagay na nangyari sa akin ay nakatulong sa paglago ng ebanghelyo,
+anupa't ang aking mga tanikala kay Cristo ay nahayag sa lahat ng mga bantay ng pretorio, at sa mga iba pa,
+at ang karamihan sa mga kapatid sa Panginoon, na nagkaroon ng tiwala dahil sa aking mga tanikala ay lalong nagkaroon ng katapangang ipahayag ng walang takot ang salita ng Diyos.
+Tunay na ipinangangaral ng iba si Cristo dahil sa pagkainggit at sa pakikipagpaligsahan, ngunit ang iba naman ay dahil sa mabuting kalooban.
+Ang huli ay gumagawa dahil sa pag-ibig, palibhasa'y nalalaman na ako'y itinalaga sa pagtatanggol sa ebanghelyo;
+ngunit ipinangangaral ng una si Cristo dahil sa pagkakampi-kampi, hindi sa katapatan, na ang hangarin ay dagdagan ng hirap ang aking mga tanikala.
+Ano nga? Kahit sa anumang paraan, maging sa pagkukunwari o sa katotohanan, ay ipinahahayag si Cristo; at sa ganito'y nagagalak ako. Oo, at ako'y patuloy na magagalak,
+sapagkat nalalaman ko na ang kahihinatnan nito'y sa aking ikaliligtas, sa pamamagitan ng inyong mga panalangin at sa saganang tulong ng Espiritu ni Jesu-Cristo.
+Ayon sa aking lubos na inaasahan at pag-asa, na sa anuman ay hindi ako mapapahiya, kundi sa buong katapangan, na gaya ng dati, gayundin naman ngayon, ay dadakilain si Cristo sa aking katawan, maging sa pamamagitan ng buhay, o sa pamamagitan ng kamatayan.
+Sapagkat sa ganang akin ang mabuhay ay si Cristo, at ang mamatay ay pakinabang.
+Ngunit kung ako ay mabubuhay sa laman, ito'y magiging mabungang pagpapagal para sa akin. Ngunit hindi ko alam kung alin ang aking pipiliin.
+Sapagkat ako'y naiipit sa pagitan ng dalawa: ang aking nais ay umalis at makasama si Cristo, sapagkat ito'y higit na mabuti.
+Gayunma'y ang manatili sa laman ay higit na kailangan dahil sa inyo.
+At sa paniniwalang ito, aking nalalaman na ako'y mananatili at magpapatuloy na kasama ninyong lahat, sa ikasusulong ninyo at ikagagalak sa pananampalataya;
+upang sumagana ang inyong pagmamapuri kay Cristo Jesus sa akin sa pamamagitan ng aking muling pagharap sa inyo.
+Ang inyo lamang pamumuhay ay maging karapat-dapat sa ebanghelyo ni Cristo, na kahit ako ay dumating at kayo'y makita, o wala man sa harap ninyo at mabalitaan ko ang mga bagay patungkol sa inyo na kayo'y naninindigan sa isang espiritu, na may isang isipan na magkakasamang nagsisikap para sa pananampalataya ng ebanghelyo,
+at sa anuman ay huwag kayong matakot sa inyong mga kaaway. Para sa kanila ito ay tanda ng kanilang kapahamakan, ngunit ng inyong kaligtasan, at ito'y mula sa Diyos.
+Sapagkat sa inyo'y ipinagkaloob alang-alang kay Cristo, hindi lamang ang manampalataya sa kanya, kundi ang magtiis din naman alang-alang sa kanya,
+yamang taglay ninyo ang gayunding pakikipaglaban na inyong nakita sa akin, at ngayo'y nababalitaan ninyo tungkol sa akin.
+Kaya nga kung mayroong anumang kasiglahan kay Cristo, kung mayroong anumang kaaliwan ng pag-ibig, kung mayroong anumang pakikisama ng Espiritu, kung mayroong anumang pagkagiliw at habag,
+ay lubusin ninyo ang aking tuwa sa pagkakaroon ng gayunding pag-iisip, magtaglay ng gayunding pag-ibig, na magkaisa ng diwa, at may isa lamang pag-iisip.
+Huwag ninyong gawin ang anuman sa pagpapaligsahan o pagmamataas, kundi sa kababaan, ituring na ang iba ay higit na mabuti kaysa inyong sarili.
+Huwag tingnan ng bawat isa sa inyo ang kanyang sariling kapakanan, kundi ang kapakanan ng iba.
+Magkaroon kayo sa inyo ng ganitong pag-iisip na na kay Cristo Jesus din naman,
+na siya, bagama't nasa anyo ng Diyos,
+ay hindi niya itinuring na isang bagay na dapat panghawakan
+ang pagiging kapantay ng Diyos,
+kundi hinubaran niya ang kanyang sarili
+at kinuha ang anyong alipin
+na naging katulad ng tao.
+At palibhasa'y natagpuan sa anyo ng tao,
+siya'y nagpakababa sa kanyang sarili,
+at naging masunurin hanggang sa kamatayan,
+maging sa kamatayan man sa krus.
+Kaya siya naman ay itinaas ng Diyos,
+at siya'y binigyan ng pangalang higit sa lahat ng pangalan;
+upang sa pangalan ni Jesus
+ay lumuhod ang bawat tuhod,
+sa langit at sa lupa, at sa ilalim ng lupa,
+at ipahayag ng bawat dila
+na si Jesu-Cristo ay Panginoon,
+sa ikaluluwalhati ng Diyos Ama.
+Kaya nga, mga minamahal ko, kung paanong lagi ninyo akong sinusunod, hindi lamang sa harapan ko, kundi higit ngayon na ako'y hindi ninyo kasama, ay isagawa ninyo ang inyong sariling kaligtasan na may takot at panginginig;
+sapagkat Diyos ang gumagawa sa inyo maging sa pagnanais at sa paggawa, para sa kanyang mabuting kalooban.
+Gawin ninyo ang lahat ng mga bagay na walang pabulong-bulong at pagtatalo,
+upang kayo'y maging walang sala at walang malay, mga anak ng Diyos na walang dungis sa gitna ng isang salinlahing liko at masama, na sa gitna nila'y lumiliwanag kayong tulad ng mga ilaw sa sanlibutan,
+na nanghahawakan sa salita ng buhay upang may ipagkapuri ako sa araw ni Cristo, na hindi ako tumakbo nang walang kabuluhan ni nagpagal man nang walang kabuluhan.
+Oo, kahit ako'y ibuhos bilang inuming handog sa ibabaw ng alay at paglilingkod ng inyong pananampalataya, ako'y natutuwa at nakikigalak sa inyong lahat.
+At sa gayunding paraan kayo'y natutuwa at nakikigalak sa akin.
+Kahuli-hulihan, mga kapatid ko, magalak kayo sa Panginoon. Ang sumulat sa inyo ng gayunding mga bagay ay hindi kalabisan sa akin kundi para sa inyong ikaliligtas.
+Mag-ingat kayo sa mga aso, mag-ingat kayo sa masasamang manggagawa, mag-ingat kayo sa mga hindi totoong pagtutuli.
+Sapagkat tayo ang pagtutuli, na sumasamba sa Diyos sa espiritu at nagmamapuri kay Cristo Jesus, at walang anumang pagtitiwala sa laman—
+bagama't ako'y may dahilang magtiwala rin sa laman. Kung ang iba ay may dahilang magtiwala sa laman, ay lalo na ako:
+tinuli nang ikawalong araw, mula sa lahi ng Israel, mula sa lipi ni Benjamin, isang Hebreo na isinilang ng Hebreo; tungkol sa kautusan, ay Fariseo,
+tungkol sa sigasig, ay taga-usig ng iglesya; ayon sa katuwirang nasa kautusan ay walang kapintasan.
+Gayunman ang mga bagay na sa akin ay naging pakinabang, ay inari kong kalugihan, alang-alang kay Cristo.
+Higit pa roon, ang lahat ng mga bagay ay inaari kong kalugihan dahil sa higit na kahalagahan na makilala si Cristo Jesus na Panginoon ko. Alang-alang sa kanya'y tiniis ko ang kalugihan ng lahat ng mga bagay, at inari kong basura lamang, upang makamit ko si Cristo,
+at ako'y matagpuan sa kanya, na walang sarili kong katuwiran na mula sa kautusan, kundi ang katuwiran sa pamamagitan ng pananampalataya kay Cristo, ang katuwirang buhat sa Diyos na batay sa pananampalataya;
+upang makilala ko siya, at ang kapangyarihan ng kanyang muling pagkabuhay at ang pakikisama sa kanyang mga kahirapan, na ako'y matulad sa kanya sa kanyang kamatayan,
+upang aking makamit sa anumang paraan ang muling pagkabuhay mula sa mga patay.
+Hindi sa ito'y aking nakamit na, o ako'y sakdal na; kundi nagpapatuloy ako upang iyon ay aking maabot, kung paanong ako ay inabot din ni Cristo Jesus.
+Mga kapatid, hindi ko pa inaaring naabot ko na, ngunit isang bagay ang ginagawa ko, nililimot ko ang mga bagay na nasa likuran, at tinutungo ang mga bagay na hinaharap,
+nagpapatuloy ako tungo sa mithiin para sa gantimpala ng dakilang pagtawag ng Diyos kay Cristo Jesus.
+Kaya nga, tayong nasa hustong gulang ay magkaroon ng parehong kaisipan; at kung iba ang inyong iniisip tungkol sa anumang bagay, ito rin ay ipahahayag sa inyo ng Diyos.
+Lamang, panghawakan natin ang ating naabot na.
+Mga kapatid, kayo'y magkaisang tumulad sa akin, at tandaan ninyo ang mga lumalakad ng gayon, ayon sa halimbawang nakikita ninyo sa amin.
+Sapagkat marami ang mga lumalakad na siyang madalas kong sabihin sa inyo, at ngayo'y sinasabi ko sa inyo na may pagluha, na sila ang mga kaaway ng krus ni Cristo.
+Ang kanilang kahihinatnan ay kapahamakan, ang kanilang tiyan ang kanilang diyos, at ang kanilang kahihiyan ang kanilang kapurihan, na nakatuon ang isip sa mga bagay na makalupa.
+Sapagkat ang ating pagkamamamayan ay nasa langit; mula roon ay hinihintay naman natin ang Tagapagligtas, ang Panginoong Jesu-Cristo,
+na siyang magbabago ng ating hamak na katawan upang maging katulad ng katawan ng kanyang kaluwalhatian, ayon sa kapangyarihan na kumikilos sa kanya upang maipailalim sa kanyang sarili ang lahat ng mga bagay.
+Kaya nga, mga kapatid kong minamahal at pinananabikan, aking katuwaan at putong, magpakatibay kayo sa Panginoon, mga minamahal ko.
+Nakikiusap ako kina Euodias at Sintique, na magkaisa sila ng pag-iisip sa Panginoon.
+Oo, nakikiusap din naman ako sa iyo, tapat na katuwang sa pasanin na iyong tulungan ang mga babaing ito, sapagkat sila'y nagpagal na kasama ko sa ebanghelyo, at kasama rin naman ni Clemente, at ng ibang aking mga kamanggagawa, na ang kanilang pangalan ay nasa aklat ng buhay.
+Magalak kayong lagi sa Panginoon; muli kong sasabihin, Magalak kayo.
+Malaman nawa ng lahat ng mga tao ang inyong kahinahunan. Ang Panginoon ay malapit na.
+Huwag kayong mabalisa sa anumang bagay; kundi sa lahat ng mga bagay, sa pamamagitan ng panalangin at pagsamo na may pagpapasalamat ay ipaalam ninyo ang inyong mga kahilingan sa Diyos.
+At ang kapayapaan ng Diyos, na hindi maabot ng pag-iisip, ang mag-iingat ng inyong mga puso at mga pag-iisip kay Cristo Jesus.
+Kahuli-hulihan, mga kapatid, anumang bagay na totoo, anumang bagay na kagalang-galang, anumang bagay na matuwid, anumang bagay na malinis, anumang bagay na kaibig-ibig, anumang bagay na kapuri-puri, kung mayroong anumang kagalingan, at kung may anumang nararapat papurihan, ay isipin ninyo ang mga bagay na ito.
+Ang mga bagay na inyong natutunan, tinanggap, narinig at nakita sa akin, ang mga bagay na ito ang gawin ninyo; at ang Diyos ng kapayapaan ay sasainyo.
+Ako'y totoong nagagalak sa Panginoon, na ngayon sa wakas ay inyong muling binuhay ang inyong pagmamalasakit sa akin; na dito'y katotohanang nagkaroon kayo ng malasakit, ngunit wala kayong pagkakataon.
+Hindi sa nagsasalita ako dala ng pangangailangan, sapagkat aking natutunan ang masiyahan sa anumang kalagayang aking kinaroroonan.
+Marunong akong magpakababa, at marunong din akong magpakasagana; sa bawat bagay at sa lahat ng bagay ay natutunan ko ang lihim sa kabusugan, at maging sa kagutuman, at maging sa kasaganaan at maging sa kasalatan.
+Lahat ng mga bagay ay aking magagawa sa pamamagitan niyang nagpapalakas sa akin.
+Gayunman ay mabuti ang inyong ginawa na kayo'y nakiramay sa aking kapighatian.
+At kayong mga taga-Filipos, nalalaman naman ninyo, na nang pasimula ng ebanghelyo, nang ako'y umalis sa Macedonia, wala ni isang iglesya na nakipagkaisa sa akin sa pagbibigay at pagtanggap kundi kayo lamang;
+sapagkat kahit ako'y nasa Tesalonica ay nagpapadala kayong minsan at muli para sa aking kailangan.
+Hindi sa ako'y naghahanap ng kaloob; kundi hinahanap ko ang bunga na dumarami para sa inyo.
+Ngunit mayroon ako ng lahat ng bagay at sumasagana; ako'y busog, palibhasa'y tumanggap kay Epafrodito ng mga bagay na galing sa inyo na mabangong samyo, isang handog na kaaya-aya at kalugud-lugod sa Diyos.
+At pupunuan ng aking Diyos ang bawat kailangan ninyo ayon sa kanyang mga kayamanan sa kaluwalhatian kay Cristo Jesus.
+Ngayon, nawa'y sumaating Diyos at Ama ang kaluwalhatian magpakailanman. Amen.
+Batiin ninyo ang bawat banal kay Cristo Jesus. Binabati kayo ng mga kapatid na kasama ko.
+Binabati kayo ng lahat ng mga banal, lalung-lalo na ng mga kasambahay ni Cesar.
+Sumainyo nawang espiritu ang biyaya ng Panginoong Jesu-Cristo.
+Ang apocalipsis ni Jesu-Cristo, na ibinigay ng Diyos sa kanya upang ipahayag sa kanyang mga alipin ang mga bagay na kinakailangang mangyari sa madaling panahon, at kanyang ipinaalam ito sa pamamagitan ng mga sagisag at pagsusugo ng kanyang anghel sa kanyang aliping si Juan,
+na siyang sumaksi sa salita ng Diyos at sa patotoo ni Jesu-Cristo, sa lahat ng bagay na nakita niya.
+Mapalad ang bumabasa at ang nakikinig ng mga salita ng propesiya at tumutupad ng mga bagay na nasusulat dito, sapagkat ang panahon ay malapit na.
+Si Juan sa pitong iglesya na nasa Asia:
+Biyaya ang sumainyo at kapayapaang mula sa kanya na siyang ngayon, ang nakaraan at ang darating; at mula sa pitong espiritu na nasa harapan ng kanyang trono;
+at mula kay Jesu-Cristo na siyang saksing tapat, ang panganay mula sa mga patay, at ang pinuno ng mga hari sa lupa.
+Doon sa umiibig sa atin, at sa nagpalaya sa atin mula sa ating mga kasalanan sa pamamagitan ng kanyang dugo;
+at ginawa tayong kaharian, mga pari sa kanyang Diyos at Ama; sumakanya ang kaluwalhatian at ang paghahari magpakailanpaman. Amen.
+Tingnan ninyo, siya'y dumarating na nasa mga ulap;
+at makikita siya ng bawat mata,
+at ng mga umulos sa kanya;
+at ang lahat ng mga lipi sa lupa ay tatangis dahil sa kanya.
+Gayon nga. Amen.
+“Ako ang Alpha at ang Omega,” sabi ng Panginoong Diyos, na siyang ngayon at ang nakaraan at ang darating, ang Makapangyarihan sa lahat.
+Akong si Juan, na inyong kapatid at inyong karamay sa kapighatian at sa kaharian at sa pagtitiis alang-alang kay Jesus ay nasa pulo na tinatawag na Patmos, dahil sa salita ng Diyos at sa patotoo ni Jesus.
+Ako'y nasa Espiritu nang araw ng Panginoon, at narinig ko sa aking likuran ang malakas na tinig na tulad sa isang trumpeta,
+na nagsasabi, “Ang iyong nakikita ay isulat mo sa isang aklat at iyong ipadala sa pitong iglesya, sa Efeso, sa Smirna, sa Pergamo, sa Tiatira, sa Sardis, sa Filadelfia, at sa Laodicea.”
+Ako'y lumingon upang makita kung kanino ang tinig na nagsasalita sa akin. At sa aking paglingon, nakita ko ang pitong gintong ilawan,
+at sa gitna ng mga ilawan ay may isang katulad ng isang Anak ng Tao, na may suot na damit na hanggang sa paa, at may gintong bigkis sa kanyang dibdib.
+At ang kanyang ulo at ang kanyang buhok ay mapuputing gaya ng balahibo ng tupa, gaya ng niebe; at ang kanyang mga mata ay gaya ng ningas ng apoy;
+“Sa anghel ng iglesya sa Efeso ay isulat mo: Ang mga bagay na ito ay sinasabi ng may hawak ng pitong bituin sa kanyang kanang kamay, na lumalakad sa gitna ng pitong gintong ilawan.
+“Alam ko ang iyong mga gawa, ang iyong paggawa at pagtitiyaga, at hindi mo mapagtiisan ang masasamang tao, at sinubok mo ang mga nagsasabing sila'y mga apostol, ngunit sila'y hindi gayon, at natuklasan mo silang pawang mga sinungaling.
+Alam ko ring ikaw ay may pagtitiis at nagsikap ka dahil sa aking pangalan, at hindi ka napagod.
+Ngunit ito ang hindi ko gusto laban sa iyo: iniwan mo ang iyong unang pag-ibig.
+Kaya't alalahanin mo kung saan ka nahulog, magsisi ka at gawin mo ang mga bagay na ginawa mo noong una. Kung hindi, darating ako sa iyo at aalisin ko ang iyong ilawan mula sa kinalalagyan nito, malibang magsisi ka.
+Ngunit ito ang mabuti na nasa iyo: kinapopootan mo ang mga gawa ng mga Nicolaita na kinapopootan ko rin.
+Ang may pandinig ay makinig sa sinasabi ng Espiritu sa mga iglesya. Ang magtagumpay ay siya kong pakakainin sa punungkahoy ng buhay na nasa paraiso ng Diyos.
+“At sa anghel ng iglesya sa Smirna ay isulat mo: Ang mga bagay na ito ay sinasabi ng una at ng huli, na namatay at muling nabuhay.
+“Alam ko ang iyong kapighatian, at ang iyong karalitaan, ngunit ikaw ay mayaman. Alam ko ang paninirang-puri ng mga nagsasabing sila'y mga Judio ngunit hindi naman, kundi sila ay isang sinagoga ni Satanas.
+Huwag mong katakutan ang mga bagay na malapit mo nang danasin. Malapit nang ikulong ng diyablo ang ilan sa inyo, upang kayo'y masubok; at magkakaroon kayo ng kapighatian sa loob ng sampung araw. Maging tapat ka hanggang sa kamatayan, at ibibigay ko sa iyo ang korona ng buhay.
+Ang may pandinig ay makinig sa sinasabi ng Espiritu sa mga iglesya. Ang magtagumpay ay hindi masasaktan ng ikalawang kamatayan.
+“At sa anghel ng iglesya sa Pergamo ay isulat mo: Ang mga bagay na ito ay sinasabi ng may matalas na tabak na may dalawang talim.
+“Alam ko kung saan ka naninirahan, sa kinaroroonan ng trono ni Satanas. Ngunit iniingatan mong mabuti ang aking pangalan, at hindi mo ipinagkaila ang pananampalataya mo sa akin, kahit nang mga araw ni Antipas na aking tapat na saksi, na pinatay sa gitna ninyo, kung saan nakatira si Satanas.
+Subalit mayroon akong ilang bagay na laban sa iyo: sapagkat mayroon ka diyang ilan na sumusunod sa aral ni Balaam, na siyang nagturo kay Balak na maglagay ng katitisuran sa harapan ng mga anak ni Israel, upang kumain sila ng mga bagay na inihandog sa mga diyus-diyosan at upang makiapid.
+Gayundin naman, mayroon kang ilan na sumusunod sa aral ng mga Nicolaita.
+Kaya't magsisi ka. Kung hindi, madali akong darating sa iyo, at didigmain ko sila ng tabak ng aking bibig.
+Ang may pandinig ay makinig sa sinasabi ng Espiritu sa mga iglesya. Ang magtagumpay ay bibigyan ko ng nakatagong mana, at siya'y bibigyan ko ng isang batong puti, at sa ibabaw ng bato ay may nakasulat na isang bagong pangalan, na walang nakakaalam kundi ang tumatanggap.
+“At sa anghel ng iglesya sa Tiatira ay isulat mo: Ang mga bagay na ito ay sinasabi ng Anak ng Diyos, na may mga matang gaya ng ningas ng apoy, at ang kanyang mga paa ay gaya ng tansong pinakintab.
+“Alam ko ang iyong mga gawa, ang iyong pag-ibig, pananampalataya, paglilingkod at pagtitiis, at ang iyong mga huling gawa ay higit kaysa mga una.
+Ngunit ito ang hindi ko gusto laban sa iyo: pinahintulutan mo ang babaing si Jezebel, na tinatawag ang kanyang sarili na propeta at kanyang tinuturuan at nililinlang ang aking mga lingkod upang makiapid at kumain ng mga bagay na inihandog sa mga diyus-diyosan.
+Binigyan ko siya ng panahon upang makapagsisi; ngunit ayaw niyang magsisi sa kanyang pakikiapid.
+Akin siyang iniraratay sa higaan at ang mga nakikiapid sa kanya ay ihahagis ko sa malaking kapighatian, maliban na kung sila'y magsisi sa kanyang mga gawa.
+Papatayin ko ng salot ang kanyang mga anak. At malalaman ng lahat ng mga iglesya na ako ang sumisiyasat ng mga pag-iisip at ng mga puso, at bibigyan ko ang bawat isa sa inyo ng ayon sa inyong mga gawa.
+Subalit sinasabi ko sa inyo, sa mga iba na nasa Tiatira, sa mga hindi nagtataglay ng aral na ito, sa mga hindi natuto ng gaya ng sinasabi ng iba ‘na mga malalalim na bagay ni Satanas,’ hindi ako naglalagay sa inyo ng ibang pabigat.
+Gayunma'y ang nasa inyo'y panghawakan ninyong matibay hanggang sa ako'y dumating.
+Sa bawat nagtatagumpay at tumutupad ng aking mga gawa hanggang sa wakas,
+ay bibigyan ko ng pamamahala sa mga bansa;
+at sila'y pangungunahan niya sa pamamagitan ng isang pamalong bakal,
+gaya ng pagkadurog ng mga palayok,
+kung paanong tumanggap din ako ng kapangyarihan mula sa aking Ama; ay ibibigay ko sa kanya ang tala sa umaga.
+Ang may pandinig ay makinig sa sinasabi ng Espiritu sa mga iglesya.
+“At sa anghel ng iglesya sa Sardis ay isulat mo: Ang mga bagay na ito ay sinasabi ng may pitong Espiritu ng Diyos at may pitong bituin:
+“Alam ko ang iyong mga gawa, sa pangalan ikaw ay nabubuhay, ngunit ikaw ay patay.
+Gumising ka, at palakasin mo ang mga bagay na natitira, na malapit nang mamatay, sapagkat hindi ko natagpuang ganap ang iyong mga gawa sa harapan ng aking Diyos.
+Kaya't alalahanin mo kung paano mo ito tinanggap at narinig; tuparin mo ito at magsisi ka. Kaya't kung hindi ka gigising, darating akong gaya ng magnanakaw, at hindi mo malalaman kung anong oras ako darating sa iyo.
+Ngunit mayroon ka pang ilan sa Sardis na hindi dinungisan ang kanilang mga damit; at sila'y kasama kong lalakad na nakaputi, sapagkat sila'y karapat-dapat.
+Ang magtagumpay ay bibihisang gayon ng mapuputing damit; at hindi ko kailanman papawiin ang kanyang pangalan sa aklat ng buhay. At ipahahayag ko ang kanyang pangalan sa harapan ng aking Ama, at sa harapan ng kanyang mga anghel.
+Ang may pandinig ay makinig sa sinasabi ng Espiritu sa mga iglesya.
+“At sa anghel ng iglesya sa Filadelfia ay isulat mo:
+“Ang mga bagay na ito ang sinasabi ng banal, ng totoo,
+na may susi ni David,
+na nagbubukas at hindi maisasara ng sinuman, na nagsasara at walang makakapagbukas.
+“Alam ko ang iyong mga gawa. Tingnan mo, inilagay ko sa harapan mo ang isang pintong bukas, na hindi maisasara ng sinuman. Alam kong ikaw ay may kaunting kapangyarihan, ngunit tinupad mo ang aking salita, at hindi mo itinakuwil ang aking pangalan.
+Ibinibigay ko sa mga sinagoga ni Satanas na nagsasabing sila'y mga Judio, at sila'y hindi, kundi nagsisinungaling: sila'y aking papupuntahin at pasasambahin sa harap ng iyong mga paa, at malalaman nilang ikaw ay aking inibig.
+Sapagkat tinupad mo ang salita ng aking pagtitiis, ikaw naman ay aking iingatan sa oras ng pagsubok na darating sa buong daigdig, upang subukin ang mga naninirahan sa ibabaw ng lupa.
+Ako'y dumarating na madali; panghawakan mong matibay ang nasa iyo, upang walang makaagaw ng iyong korona.
+Ang magtagumpay ay gagawin kong haligi sa templo ng aking Diyos, at hindi na siya lalabas pa roon, at isusulat ko sa kanya ang pangalan ng aking Diyos, at ang pangalan ng lunsod ng aking Diyos, ang bagong Jerusalem, na bumababa buhat sa langit, mula sa aking Diyos, at ang aking sariling bagong pangalan.
+Ang may pandinig ay makinig sa sinasabi ng Espiritu sa mga iglesya.
+“At sa anghel ng iglesya sa Laodicea ay isulat mo: Ang mga bagay na ito ay sinasabi ng Amen, ng saksing tapat at totoo, nang pasimula ng paglalang ng Diyos:
+“Alam ko ang iyong mga gawa; ikaw ay hindi malamig o mainit man. Ibig ko sanang ikaw ay malamig o mainit.
+Kaya, dahil ikaw ay malahininga, at hindi mainit o malamig man, ay isusuka kita mula sa aking bibig.
+Sapagkat sinasabi mo, ‘Ako'y mayaman, at naging mariwasa at hindi ako nangangailangan ng anuman.’ Hindi mo nalalamang ikaw ay aba, kahabag-habag, maralita, bulag at hubad.
+Ipinapayo ko sa iyo na bumili ka sa akin ng gintong dinalisay ng apoy upang ikaw ay yumaman, at ng mapuputing damit upang iyong maisuot, at upang huwag mahayag ang iyong kahiyahiyang kahubaran, at ng pampahid na ilalagay sa iyong mga mata, upang ikaw ay makakita.
+Ang lahat na aking iniibig ay aking sinasaway at dinidisiplina. Ikaw nga'y magsikap, at magsisi.
+Makinig ka! Ako'y nakatayo sa may pintuan at tumutuktok; kung diringgin ng sinuman ang aking tinig at buksan ang pinto, ako'y papasok sa kanya, at kakaing kasalo niya, at siya'y kasalo ko.
+Ang magtagumpay ay pagkakalooban ko na umupong kasama ko sa aking trono, gaya ko naman na nagtagumpay at umupong kasama ng aking Ama sa kanyang trono.
+Pagkatapos ng mga bagay na ito ay tumingin ako, at naroon, ang isang pintong bukas sa langit! At ang unang tinig na aking narinig na nagsasalita sa akin, na gaya ng sa trumpeta, ay nagsabi, “Umakyat ka rito, at ipapakita ko sa iyo ang mga bagay na kailangang mangyari pagkatapos ng mga bagay na ito.”
+Ako'y biglang nasa Espiritu, at doon sa langit ay may isang tronong nakalagay at sa trono ay may isang nakaupo.
+At ang nakaupo doon ay may anyong katulad ng batong jaspe at sardio, at naliligid ang trono ng isang bahaghari na tulad ng esmeralda.
+At sa palibot ng trono ay may dalawampu't apat na trono, at ang nakaupo sa mga trono ay dalawampu't apat na matatanda, na nakasuot ng mapuputing damit; at sa kanilang mga ulo ay may mga koronang ginto.
+At mula sa trono ay may lumalabas na kidlat, at mga tinig at mga dagundong ng kulog, at may pitong nagniningas na sulo ng apoy sa harapan ng trono, na siyang pitong Espiritu ng Diyos;
+at sa harapan ng trono, ay may parang isang dagat na salamin na katulad ng kristal. At sa gitna ng trono, at sa palibot ng trono ay may apat na nilalang na buháy na punô ng mga mata sa harapan at sa likuran.
+Ang unang nilalang ay tulad ng isang leon, ang ikalawang nilalang ay tulad ng isang baka, ang ikatlong nilalang ay may mukha ng isang tao, at ang ikaapat na nilalang ay tulad ng isang agilang lumilipad.
+At ang apat na nilalang na buháy, na may anim na pakpak ang bawat isa sa kanila, ay punô ng mga mata sa palibot at sa loob; at sila'y walang humpay na nagsasabi araw at gabi,
+“Banal, banal, banal,
+ang Panginoong Diyos, ang Makapangyarihan sa lahat,
+ang noon at ang ngayon at ang darating!”
+At kapag ang mga nilalang na buháy ay nagbibigay ng kaluwalhatian, karangalan, at pasasalamat sa nakaupo sa trono, doon sa nabubuhay magpakailanpaman,
+At nakita ko sa kanang kamay ng nakaupo sa trono ang isang aklat na may sulat sa loob at sa likod, na tinatakan ng pitong tatak.
+At nakita ko ang isang makapangyarihang anghel na nagpapahayag sa malakas na tinig, “Sino ang karapat-dapat magbukas ng aklat at magtanggal ng mga tatak nito?”
+At walang sinuman sa langit, o sa ibabaw man ng lupa, o sa ilalim man ng lupa, ang makapagbukas ng aklat o makatingin man sa loob nito.
+Ako'y labis na umiyak, sapagkat walang natagpuang sinuman na karapat-dapat magbukas ng aklat, o tumingin sa loob nito.
+At sinabi sa akin ng isa sa matatanda, “Huwag kang umiyak. Tingnan mo, ang Leon sa lipi ni Juda, ang Ugat ni David, ay nagtagumpay upang mabuksan niya ang aklat at ang pitong tatak nito.”
+Pagkatapos ay nakita ko sa gitna ng trono at ng apat na nilalang na buháy at sa gitna ng matatanda ang isang Korderong nakatayo, na tulad sa isang pinaslang, na may pitong sungay at pitong mata na siyang pitong Espiritu ng Diyos, na sinugo sa buong daigdig.
+Siya'y lumapit, at kinuha ang aklat sa kanang kamay ng nakaluklok sa trono.
+Pagkakuha niya sa aklat, ang apat na nilalang na buháy at ang dalawampu't apat na matatanda ay nagpatirapa sa harapan ng Kordero, na ang bawat isa'y may alpa, at mga mangkok na ginto na punô ng insenso, na siyang mga panalangin ng mga banal.
+At sila'y nag-aawitan ng isang bagong awit, na nagsasabi,
+“Ikaw ay karapat-dapat na kumuha sa aklat
+at magbukas ng mga tatak nito,
+sapagkat ikaw ay pinatay, at sa pamamagitan ng iyong dugo ay binili mo para sa Diyos
+ang mga tao mula sa bawat lipi, wika, bayan, at bansa.
+At sila'y iyong ginawang isang kaharian at mga pari para sa aming Diyos;
+at sila'y maghahari sa ibabaw ng lupa.”
+Nakita ko at narinig ang tinig ng maraming mga anghel sa palibot ng trono at ng mga nilalang na buháy at ng matatanda; at ang bilang nila ay milyun-milyon at libu-libo,
+na nagsasabi ng may malakas na tinig,
+Pagkatapos ay nakita ko nang buksan ng Kordero ang isa sa pitong tatak, at narinig ko ang isa sa apat na nilalang na buháy, na nagsalitang gaya ng tunog ng kulog, “Halika!”
+Tumingin ako at nakita ko ang isang kabayong puti, at ang nakasakay doon ay may isang pana; binigyan siya ng isang korona at siya'y humayong lumulupig, at upang lumupig.
+Nang buksan niya ang ikalawang tatak ay narinig ko ang ikalawang nilalang na buháy, na nagsasabi, “Halika!”
+At may lumabas na isa pang pulang kabayo at ang nakasakay doon ay pinagkaloobang alisin sa lupa ang kapayapaan upang magpatayan ang isa't isa; at binigyan siya ng isang malaking tabak.
+Nang buksan niya ang ikatlong tatak, narinig ko ang ikatlong nilalang na buháy, na nagsasabi, “Halika!” At nakita ko ang isang kabayong itim; at ang nakasakay rito ay may isang timbangan sa kanyang kamay.
+At narinig ko ang gaya ng isang tinig sa gitna ng apat na nilalang na buháy na nagsasabi, “Isang takal na trigo para sa isang denario at sa isang denario ay tatlong takal na sebada; ngunit huwag mong pinsalain ang langis at ang alak!”
+Nang buksan niya ang ikaapat na tatak ay narinig ko ang tinig ng ikaapat na nilalang na buháy na nagsasabi, “Halika!”
+Tumingin ako at naroon ang isang kabayong maputla, at ang nakasakay roon ay may pangalang Kamatayan at ang Hades ay sumusunod sa kanya. At sila'y pinagkalooban ng kapangyarihan sa ikaapat na bahagi ng lupa na pumatay sa pamamagitan ng tabak, at ng taggutom, ng salot, at ng mababangis na hayop sa lupa.
+Nang buksan niya ang ikalimang tatak ay nakita ko sa ilalim ng dambana ang mga kaluluwa ng mga pinaslang dahil sa salita ng Diyos, at dahil sa patotoong taglay nila.
+Sila'y sumigaw nang may malakas na tinig, “Kailan pa, O Makapangyarihang Panginoon, banal at totoo, bago mo hatulan at ipaghiganti ang aming dugo sa mga naninirahan sa ibabaw ng lupa?”
+At binigyan ang bawat isa sa kanila ng isang puting balabal at sa kanila'y sinabi na magpahinga pa sila ng kaunting panahon, hanggang sa mabuo ang bilang ng kanilang mga kapwa alipin at ng kanilang mga kapatid, na mga papataying tulad nila.
+Nang buksan niya ang ikaanim na tatak, nagkaroon ng malakas na lindol; at ang araw ay umitim na gaya ng damit-sako at ang bilog na buwan ay naging gaya ng dugo;
+at ang mga bituin sa langit ay nahulog sa lupa, gaya ng puno ng igos na nalalaglag ang kanyang mga bungang bubot kapag inuuga ng malakas na hangin.
+Ang langit ay nahawi na gaya ng isang balumbong nilululon, at ang bawat bundok at pulo ay naalis sa kanilang kinalalagyan.
+Ang mga hari sa lupa, ang mga prinsipe, ang mga pinuno ng hukbo, ang mayayaman, ang malalakas at ang bawat alipin at ang bawat malaya, ay nagtago sa mga yungib, sa mga bato at sa mga bundok;
+at sinasabi nila sa mga bundok at sa mga bato, “Mahulog kayo sa amin at itago ninyo kami mula sa mukha ng nakaupo sa trono, at mula sa poot ng Kordero;
+sapagkat dumating na ang dakilang araw ng kanilang pagkapoot, at sino ang makakatagal?”
+Pagkatapos nito ay nakakita ako ng apat na anghel na nakatayo sa apat na sulok ng lupa, na pinipigil ang apat na hangin ng lupa, upang huwag humihip ang hangin sa lupa, o sa dagat man, o sa anumang punungkahoy.
+At nakita ko ang isa pang anghel na umaakyat mula sa sikatan ng araw, na taglay ang tatak ng Diyos na buháy at siya'y sumigaw nang may malakas na tinig sa apat na anghel na pinagkalooban ng kapangyarihang pinsalain ang lupa at ang dagat,
+na nagsasabi, “Huwag ninyong pinsalain ang lupa, o ang dagat, o ang mga punungkahoy, hanggang sa aming matatakan sa kanilang mga noo ang mga alipin ng ating Diyos.”
+At narinig ko ang bilang ng mga tinatakan, 144,000, tinatakan mula sa bawat lipi ng mga anak ni Israel:
+Sa lipi ni Juda ay 12,000 ang tinatakan;
+sa lipi ni Ruben ay 12,000;
+sa lipi ni Gad ay 12,000;
+sa lipi ni Aser ay 12,000;
+sa lipi ni Neftali ay 12,000;
+sa lipi ni Manases ay 12,000;
+sa lipi ni Simeon ay 12,000;
+sa lipi ni Levi ay 12,000;
+sa lipi ni Isacar ay 12,000;
+sa lipi ni Zebulon ay 12,000;
+sa lipi ni Jose ay 12,000;
+Nang buksan ng Kordero ang ikapitong tatak ay nagkaroon ng katahimikan sa langit nang may kalahating oras.
+At nakita ko ang pitong anghel na nakatayo sa harapan ng Diyos at sila'y binigyan ng pitong trumpeta.
+Dumating ang isa pang anghel at tumayo sa harap ng dambana, na may hawak na isang gintong lalagyan ng insenso; at binigyan siya ng maraming insenso, upang idagdag ito sa mga panalangin ng lahat ng mga banal sa ibabaw ng dambanang ginto, na nasa harapan ng trono.
+At umakyat ang usok ng insenso, kalakip ng mga panalangin ng mga banal, mula sa kamay ng anghel patungo sa harapan ng Diyos.
+At kinuha ng anghel ang lalagyan ng insenso at pinuno niya ng apoy ng dambana, itinapon niya sa lupa at nagkaroon ng mga kulog, mga tunog, mga kidlat, at ng lindol.
+At ang pitong anghel na may pitong trumpeta ay naghanda upang hipan ang mga trumpeta.
+Hinipan ng unang anghel ang kanyang trumpeta at umulan ng yelo at apoy na may halong dugo, at itinapon ang mga ito sa lupa. Ang ikatlong bahagi ng lupa ay nasunog, at ang ikatlong bahagi ng mga punungkahoy ay nasunog, at ang lahat ng luntiang damo ay nasunog.
+Hinipan ng ikalawang anghel ang kanyang trumpeta at ang tulad sa isang malaking bundok na nagliliyab sa apoy ay itinapon sa dagat.
+Ang ikatlong bahagi ng dagat ay naging dugo, namatay ang ikatlong bahagi ng mga nilalang na may buhay na nasa dagat at ang ikatlong bahagi ng mga barko ay nawasak.
+Hinipan ng ikatlong anghel ang kanyang trumpeta at nahulog mula sa langit ang isang malaking bituin, na nagliliyab na gaya ng isang sulo, at nahulog sa ikatlong bahagi ng mga ilog, at sa mga bukal ng tubig.
+Ang pangalan ng bituin ay Halamang Mapait at ang ikatlong bahagi ng tubig ay naging mapait at maraming tao ang namatay dahil sa tubig, sapagkat ito ay mapait.
+Hinipan ng ikaapat na anghel ang kanyang trumpeta at tinamaan ang ikatlong bahagi ng araw, ang ikatlong bahagi ng buwan, at ang ikatlong bahagi ng bituin kaya't nagdilim ang ikatlong bahagi nila, at ang ikatlong bahagi ng maghapon ay hindi nagliwanag, at gayundin naman ang gabi.
+At tumingin ako, at aking narinig ang isang agila, na lumilipad sa gitna ng himpapawid, na nagsasabi ng malakas na tinig, “Kahabag-habag, kahabag-habag, kahabag-habag ang mga naninirahan sa ibabaw ng lupa, dahil sa mga tunog ng mga trumpeta na malapit nang hipan ng tatlo pang anghel.”
+At hinipan ng ikalimang anghel ang kanyang trumpeta at nakita ko ang isang bituin na nahulog sa lupa mula sa langit at sa kanya'y ibinigay ang susi ng hukay ng di-matarok na kalaliman.
+Binuksan niya ang hukay ng di-matarok na kalaliman at umakyat ang usok mula sa hukay, na gaya ng usok ng isang malaking hurno at nagdilim ang araw at ang himpapawid dahil sa usok ng hukay.
+At naglabasan mula sa usok ang mga balang sa lupa at binigyan sila ng kapangyarihan, na gaya ng kapangyarihan ng mga alakdan sa lupa.
+At sinabi sa kanila na huwag pinsalain ang damo sa lupa, ni ang anumang luntian, ni ang anumang punungkahoy, kundi ang mga tao lamang na walang tatak ng Diyos sa kanilang mga noo.
+Pinahintulutan silang huwag patayin ang mga ito, kundi pahirapan ng limang buwan at ang kanilang pahirap ay gaya ng pahirap ng alakdan kung kumakagat sa isang tao.
+At sa mga araw na iyon ay hahanapin ng mga tao ang kamatayan at sa anumang paraa'y hindi nila matatagpuan; at magnanasang mamatay at ang kamatayan ay tatakas sa kanila.
+Ang anyo ng mga balang ay katulad ng mga kabayong inihanda para sa digmaan, at sa kanilang mga ulo ay mayroong gaya ng mga koronang ginto, at ang kanilang mga mukha ay gaya ng mga mukha ng mga tao.
+Sila'y may buhok na gaya ng buhok ng mga babae, at ang kanilang mga ngipin ay gaya ng sa mga leon.
+At sila'y may mga baluti, na gaya ng baluting bakal; at ang tunog ng kanilang mga pakpak ay gaya ng tunog ng mga karwahe at ng maraming kabayo na rumaragasa sa labanan.
+Sila'y may mga buntot na gaya ng sa mga alakdan at may mga pantusok; at sa kanilang mga buntot ay naroroon ang kanilang kapangyarihan upang pinsalain ang mga tao ng limang buwan.
+Sila'y may isang hari, ang anghel ng di-matarok na kalaliman; ang kanyang pangalan sa wikang Hebreo ay Abadon, at sa Griyego ay tinatawag siyang Apolyon.
+Ang unang kapighatian ay nakaraan na. Mayroon pang dalawang kapighatiang darating.
+At hinipan ng ikaanim na anghel ang kanyang trumpeta, at narinig ko ang isang tinig mula sa apat na sungay ng dambanang ginto na nasa harapan ng Diyos,
+na nagsasabi sa ikaanim na anghel na may trumpeta, “Kalagan mo ang apat na anghel na nakagapos sa malaking ilog ng Eufrates.”
+Kaya't kinalagan ang apat na anghel, na inihanda para sa oras, araw, buwan at taon upang patayin ang ikatlong bahagi ng mga tao.
+Ang bilang ng mga hukbong nangangabayo ay makalawang sampung libong tigsasampung libo; aking narinig ang bilang nila.
+At ganito ko nakita ang mga kabayo sa pangitain: ang mga nakasakay ay may mga baluting gaya ng apoy, ng jacinto at ng asupre; at ang mga ulo ng mga kabayo ay gaya ng mga ulo ng mga leon, at sa kanilang mga bibig ay lumalabas ang apoy, usok at asupre.
+Sa pamamagitan ng tatlong salot na ito ay pinatay ang ikatlong bahagi ng mga tao sa pamamagitan ng apoy at ng usok at ng asupre na lumalabas sa kanilang mga bibig.
+Sapagkat ang kapangyarihan ng mga kabayo ay nasa kanilang bibig at nasa kanilang mga buntot; ang kanilang mga buntot ay katulad ng mga ahas, na may mga ulo; at sa pamamagitan ng mga ito'y nakakapaminsala sila.
+At ang natira sa mga tao na hindi napatay sa mga salot na ito ay hindi nagsisi sa mga gawa ng kanilang mga kamay ni inihinto ang pagsamba sa mga demonyo at sa mga diyus-diyosang ginto, pilak, tanso, bato, at kahoy na hindi nakakakita, ni nakakarinig, ni nakakalakad man.
+At sila'y hindi nagsisi sa kanilang mga pagpatay, o sa kanilang pangkukulam, o sa kanilang pakikiapid, o sa kanilang pagnanakaw.
+At nakita ko ang isa pang makapangyarihang anghel na nanaog mula sa langit, na nababalot ng isang ulap, at may bahaghari sa kanyang ulo, at ang kanyang mukha ay gaya ng araw, at ang kanyang mga paa ay gaya ng mga haliging apoy.
+May isang maliit na balumbon na bukas sa kanyang kamay at kanyang itinuntong ang kanyang kanang paa sa dagat, at ang kaliwang paa sa lupa.
+Siya ay sumigaw nang may malakas na tinig, na gaya ng leon na umuungal; at pagkasigaw niya, ang pitong kulog ay umugong.
+Nang tumunog ang pitong kulog, susulat sana ako, ngunit narinig ko ang isang tinig mula sa langit na nagsasabi, “Tatakan mo ang mga bagay na sinabi ng pitong kulog, at huwag mong isulat ang mga ito.”
+At itinaas ng anghel na aking nakita na nakatayo sa dagat at sa lupa ang kanyang kanang kamay sa langit,
+at nanumpa sa nabubuhay magpakailanpaman, na siyang lumalang ng langit at ng mga bagay na naroroon, at ng lupa at ng mga bagay na naririto, at ng dagat at ng mga bagay na naririto: “Hindi na maaantala pa,
+ngunit sa mga araw na hipan ng ikapitong anghel ang kanyang trumpeta, magaganap ang hiwaga ng Diyos, ayon sa kanyang ipinahayag sa kanyang mga lingkod na propeta.”
+At ang tinig na aking narinig mula sa langit ay muling nagsalita sa akin, na nagsasabi, “Humayo ka, kunin mo ang aklat na bukas na nasa kamay ng anghel na nakatayo sa dagat at sa lupa.”
+Kaya't ako'y lumapit sa anghel at sinabi ko sa kanya na ibigay sa akin ang maliit na aklat. At kanyang sinabi sa akin, “Kunin mo ito at ito'y kainin mo; ito ay magiging mapait sa iyong tiyan, ngunit sa iyong bibig ay magiging matamis na gaya ng pulot.”
+Kinuha ko ang maliit na aklat sa kamay ng anghel, at aking kinain; at sa aking bibig ay matamis na gaya ng pulot, ngunit nang aking makain ay pumait ang aking tiyan.
+At sinabi nila sa akin, “Kailangang muli kang magpahayag ng propesiya tungkol sa maraming mga bayan at mga bansa, mga wika at mga hari.”
+Pagkatapos ay binigyan ako ng isang tambong panukat na tulad ng isang tungkod, at sinabi sa akin, “Tumayo ka at sukatin mo ang templo ng Diyos, ang dambana, at ang mga sumasamba roon.
+Ngunit huwag mong susukatin ang patyo sa labas ng templo; pabayaan mo na iyon, sapagkat ibinigay iyon sa mga bansa at kanilang yuyurakan ang banal na lunsod sa loob ng apatnapu't dalawang buwan.
+Papahintulutan ko ang aking dalawang saksi na magpahayag ng propesiya sa loob ng 1,260 araw, na nakasuot ng damit-sako.”
+Ang mga ito'y ang dalawang punong olibo at ang dalawang ilawan na nakatayo sa harapan ng Panginoon ng lupa.
+At kung naisin ng sinuman na sila'y pinsalain, apoy ang lumalabas sa kanilang bibig at nilalamon ang kanilang mga kaaway; at kung naisin ng sinuman na sila'y pinsalain, siya'y kailangang patayin sa ganitong paraan.
+Ang mga ito'y may kapangyarihang magsara ng langit upang huwag umulan sa loob ng mga araw ng kanilang pagpapahayag ng propesiya at may kapangyarihan sila sa mga tubig na gawing dugo, at pahirapan ang lupa ng bawat salot sa tuwing kanilang naisin.
+At kapag natapos na nila ang kanilang patotoo, ang hayop na umahon mula sa di-matarok na kalaliman ay makikipagdigma sa kanila, lulupigin sila, at papatayin.
+At ang kanilang mga bangkay ay hahandusay sa lansangan ng malaking lunsod, na sa espirituwal na pananalita ay tinatawag na Sodoma at Ehipto, na kung saan ipinako sa krus ang kanilang Panginoon.
+Pagmamasdan ng mga tao mula sa mga bayan at mga angkan at mga wika at mga bansa ang kanilang mga bangkay sa loob ng tatlong araw at kalahati, at hindi ipahihintulot na ang kanilang mga bangkay ay mailibing.
+At ang mga naninirahan sa ibabaw ng lupa ay magagalak tungkol sa kanila at magkakatuwa, at sila'y magpapalitan ng mga handog, sapagkat ang dalawang propetang ito ay nagpahirap sa mga naninirahan sa ibabaw ng lupa.
+Ngunit pagkatapos ng tatlong araw at kalahati, ang hininga ng buhay na mula sa Diyos ay pumasok sa kanila. Sila'y tumindig at dinatnan ng malaking takot ang mga nakakita sa kanila.
+At narinig nila ang isang malakas na tinig mula sa langit na nagsasabi sa kanila, “Umakyat kayo rito!” At sila'y umakyat sa langit sa isang ulap at nakita sila ng kanilang mga kaaway.
+At nang oras na iyon ay nagkaroon ng isang malakas na lindol, at nagiba ang ikasampung bahagi ng lunsod; may namatay sa lindol na pitong libong katao at ang mga iba ay natakot, at nagbigay ng luwalhati sa Diyos ng langit.
+Nakaraan na ang ikalawang kapighatian. Ang ikatlong kapighatian ay napakalapit nang dumating.
+At hinipan ng ikapitong anghel ang kanyang trumpeta at nagkaroon ng malalakas na tinig sa langit na nagsasabi,
+“Ang kaharian ng sanlibutan ay naging kaharian ng ating Panginoon
+at ng kanyang Cristo,
+at siya'y maghahari magpakailanpaman.”
+At ang dalawampu't apat na matatanda na nakaupo sa kanya-kanyang trono sa harapan ng Diyos ay nagpatirapa at sumamba sa Diyos,
+na nagsasabi,
+“Pinasasalamatan ka namin, O Panginoong Diyos na Makapangyarihan sa lahat,
+At ang isang dakilang tanda ay nakita sa langit: isang babae na nakadamit ng araw, at ang buwan ay nasa ilalim ng kanyang mga paa, at sa kanyang ulo ay may isang putong ng labindalawang bituin;
+siya'y nagdadalang-tao at sumisigaw sa hirap sa panganganak at sa sakit ng pagluluwal.
+At may isa pang tanda na nakita sa langit: isang malaking pulang dragon na may pitong ulo at sampung sungay, at sa kanyang mga ulo'y may pitong diadema.
+Kinaladkad ng kanyang buntot ang ikatlong bahagi ng mga bituin sa langit at inihagis ang mga ito sa lupa. At tumayo ang dragon sa harapan ng babae na malapit nang manganak, upang lamunin ang anak ng babae pagkapanganak niya.
+At siya'y nanganak ng isang batang lalaki na siyang magpapastol na may pamalong bakal sa lahat ng mga bansa. Ngunit ang kanyang anak ay inagaw at dinala sa Diyos at sa kanyang trono.
+Tumakas ang babae sa ilang, at doon ay ipinaghanda siya ng Diyos ng isang lugar, upang doon siya'y alagaan nila ng isang libo dalawang daan at animnapung araw.
+At nagkaroon ng digmaan sa langit, si Miguel at ang kanyang mga anghel ay nakipagdigma sa dragon. Ang dragon at ang kanyang mga anghel ay nakipagdigma,
+ngunit hindi sila nagwagi, ni wala ng lugar para sa kanila sa langit.
+At itinapon ang malaking dragon, ang matandang ahas, ang tinatawag na Diyablo at Satanas, ang mandaraya sa buong sanlibutan; siya'y itinapon sa lupa at ang kanyang mga anghel ay itinapong kasama niya.
+At narinig ko ang isang malakas na tinig sa langit na nagsasabi,
+“Ngayo'y dumating ang kaligtasan at ang kapangyarihan,
+at ang kaharian ng ating Diyos,
+at ang kapangyarihan ng kanyang Cristo,
+sapagkat itinapon na ang tagapag-paratang sa ating mga kapatid
+na siyang nagpaparatang sa kanila sa harapan ng ating Diyos, araw at gabi.
+At siya'y kanilang dinaig dahil sa dugo ng Kordero,
+at dahil sa salita ng kanilang patotoo,
+At nakita ko ang isang halimaw na umaahon sa dagat, may sampung sungay at pitong ulo, at sa kanyang mga sungay ay may sampung diadema, at sa kanyang mga ulo ay mga pangalan ng kalapastanganan.
+At ang halimaw na aking nakita ay katulad ng isang leopardo at ang kanyang mga paa ay gaya ng sa oso, at ang kanyang bibig ay gaya ng bibig ng leon. At ibinigay rito ng dragon ang kanyang kapangyarihan, ang kanyang trono, at dakilang kapamahalaan.
+Ang isa sa mga ulo nito ay parang pinatay, ngunit ang sugat nito na ikamamatay ay gumaling, at ang buong lupa ay namamanghang sumunod sa halimaw.
+Ang mga tao'y sumamba sa dragon sapagkat ibinigay niya ang kanyang kapangyarihan sa halimaw; at sinamba nila ang halimaw, na sinasabi, “Sino ang katulad ng halimaw at sinong makakalaban dito?”
+Ang halimaw ay binigyan ng isang bibig na nagsasalita ng mga palalong bagay at ng mga kalapastanganan, at pinahintulutan siyang gumamit ng kapangyarihan sa loob ng apatnapu't dalawang buwan.
+Ibinuka niya ang kanyang bibig upang magsalita ng mga kalapastanganan sa Diyos, upang lapastanganin ang kanyang pangalan at ang kanyang tahanan gayundin ang mga naninirahan sa langit.
+Ipinahintulot din sa kanya na makipagdigma sa mga banal at sila'y lupigin. Binigyan siya ng kapangyarihan sa bawat angkan, bayan, wika at bansa,
+at ang lahat ng naninirahan sa lupa ay sasamba sa kanya, ang lahat na ang pangalan ay hindi nakasulat sa aklat ng buhay ng Kordero na pinaslang buhat nang itatag ang sanlibutan.
+Kung ang sinuman ay may pandinig ay makinig:
+Kung ang sinuman ay patungo sa pagkabihag, sa pagkabihag siya patutungo. Kung ang sinuman ay pumapatay sa pamamagitan ng tabak, sa pamamagitan ng tabak siya dapat papatayin. Ito ay panawagan para sa pagtitiis at pananampalataya ng mga banal.
+At nakita ko ang isa pang halimaw na umaahon sa lupa; at ito ay may dalawang sungay na katulad ng sa isang kordero at siya'y nagsasalita na parang dragon.
+Kanyang ginagamit ang buong kapangyarihan ng unang halimaw na nasa kanyang paningin, at pinasasamba niya ang lupa at ang mga naninirahan dito sa unang halimaw na ang sugat na ikamamatay ay gumaling na.
+Ito'y gumagawa ng mga dakilang tanda, pati na ang pagpapababa ng apoy sa lupa mula sa langit sa paningin ng mga tao.
+At nadadaya nito ang mga naninirahan sa lupa dahil sa mga tanda na pinahintulutang gawin nito sa paningin ng halimaw, na sinasabi sa mga naninirahan sa lupa na dapat silang gumawa ng isang larawan ng halimaw na sinugatan ng tabak ngunit nabuhay.
+At ito'y pinahintulutang makapagbigay ng hininga sa larawan ng halimaw upang ang larawan ng halimaw ay makapagsalita, at maipapatay naman ang lahat ng hindi sumasamba sa larawan ng halimaw.
+At ang lahat, ang hamak at ang dakila, ang mayayaman at ang mga dukha, ang mga malaya at ang mga alipin ay pinalagyan nito ng isang tanda sa kanilang kanang kamay o sa noo,
+upang walang sinumang makabili o makapagbili, maliban ang may tanda, samakatuwid, ng pangalan ng halimaw o ng bilang ng pangalan nito.
+Kailangan dito ang karunungan: ang may pang-unawa ay bilangin ang bilang ng halimaw, sapagkat ito'y bilang ng isang tao. Ang bilang nito ay animnaraan at animnapu't anim.
+Pagkatapos ay tumingin ako, at naroon ang Kordero na nakatayo sa bundok ng Zion! Kasama niya ang isandaan at apatnapu't apat na libong may pangalan niya, at pangalan ng kanyang Ama, na nakasulat sa kanilang mga noo.
+At narinig ko ang isang tinig mula sa langit, na gaya ng lagaslas ng maraming tubig, at gaya ng ugong ng malakas na kulog; ang tinig na aking narinig ay gaya ng sa mga manunugtog na tumutugtog ng kanilang mga alpa.
+At sila'y nag-aawitan ng isang bagong awit sa harapan ng trono, at sa harapan ng apat na nilalang na buháy at ng matatanda. Walang sinumang natuto ng awit na iyon kundi ang isandaan at apatnapu't apat na libo lamang, na tinubos mula sa lupa.
+Hindi dinungisan ng mga ito ang kanilang sarili sa mga babae; sapagkat sila'y malilinis. Ang mga ito'y ang mga sumusunod sa Kordero saan man siya magtungo. Ang mga ito'y ang tinubos mula sa mga tao, bilang mga pangunahing bunga sa Diyos at sa Kordero.
+At sa kanilang bibig ay walang natagpuang kasinungalingan; sila'y mga walang dungis.
+At nakita ko ang isa pang anghel na lumilipad sa gitna ng himpapawid, na may walang hanggang ebanghelyo na ipahahayag sa mga naninirahan sa lupa, sa bawat bansa, lipi, wika at bayan.
+Sinabi niya sa malakas na tinig, “Matakot kayo sa Diyos at magbigay-luwalhati sa kanya, sapagkat dumating na ang oras ng kanyang paghuhukom, at sambahin ninyo ang gumawa ng langit, ng lupa, ng dagat at ng mga bukal ng tubig.”
+At isa pang anghel, ang pangalawa, ay sumunod na nagsasabi, “Bumagsak, bumagsak ang dakilang Babilonia, na siyang nagpainom sa lahat ng bansa ng alak ng poot ng kanyang pakikiapid.”
+At isa pang anghel, ang pangatlo, ay sumunod sa kanila, na sinasabi sa malakas na tinig, “Kung ang sinuman ay sumasamba sa halimaw at sa kanyang larawan, at tumatanggap ng tanda sa kanyang noo, o sa kanyang kamay,
+ay iinom din naman ng alak ng poot ng Diyos, na inihahandang walang halo sa kopa ng kanyang poot at pahihirapan sa apoy at asupre sa harapan ng mga banal na anghel at sa harapan ng Kordero.
+At ang usok ng hirap nila ay papailanglang magpakailanpaman; at sila'y walang kapahingahan araw at gabi, silang mga sumasamba sa halimaw at sa larawan nito, at sinumang tumatanggap ng tanda ng kanyang pangalan.
+Narito ang panawagan para sa pagtitiis ng mga banal, sa mga tumutupad sa mga utos ng Diyos, at humahawak ng matatag sa pananampalataya ni Jesus.
+At narinig ko ang isang tinig mula sa langit na nagsasabi, “Isulat mo ito: Mapapalad ang mga patay na namamatay sa Panginoon mula ngayon.” “Oo,” sinasabi ng Espiritu, “sila'y magpapahinga sa kanilang mga gawa, sapagkat ang kanilang mga gawa ay sumusunod sa kanila.”
+Pagkatapos ay nakita ko roon ang isang puting ulap, at nakaupo sa ulap ang isang katulad ng isang Anak ng Tao na sa kanyang ulo'y may isang gintong korona, at sa kanyang kamay ay may isang matalas na karit.
+Lumabas ang isa pang anghel mula sa templo, na sumisigaw nang may malakas na tinig doon sa nakaupo sa ulap, “Ihulog mo ang iyong karit at gumapas ka, sapagkat dumating na ang oras ng paggapas, at hinog na ang aanihin sa lupa.”
+Kaya't inihagis ng nakaupo sa alapaap ang kanyang karit sa lupa at ang lupa ay nagapasan.
+At lumabas ang isa pang anghel mula sa templo sa langit na siya rin ay may matalas na karit.
+Ang isa pang anghel ay lumabas mula sa dambana, na siyang may kapangyarihan sa apoy, at tumawag siya nang may malakas na tinig doon sa may matalas na karit, “Ihulog mo ang iyong matalas na karit at tipunin mo ang mga buwig sa ubasan sa lupa, sapagkat ang mga ubas nito ay hinog na.”
+Kaya't inihagis ng anghel ang kanyang karit sa lupa, at tinipon ang mga ubas sa lupa, at inihagis sa malaking pisaan ng ubas ng poot ng Diyos.
+At pinisa ang ubas sa pisaan sa labas ng lunsod, at lumabas sa pisaan ng ubas ang dugo, na umabot hanggang sa mga renda ng mga kabayo, sa layong halos dalawandaang milya.
+At nakita ko ang isa pang tanda sa langit, dakila at kamanghamangha: pitong anghel na may pitong salot, na siyang mga panghuli, sapagkat sa mga ito'y matatapos ang poot ng Diyos.
+At nakita ko ang tulad sa isang dagat na kristal na may halong apoy, at ang mga dumaig sa halimaw at sa larawan nito, at sa bilang ng pangalan nito na nakatayo sa tabi ng dagat na kristal at may hawak na mga alpa ng Diyos.
+At inaawit nila ang awit ni Moises na alipin ng Diyos, at ang awit ng Kordero na sinasabi,
+“Dakila at kamanghamangha ang iyong mga gawa,
+O Panginoong Diyos na Makapangyarihan sa lahat!
+Matuwid at tunay ang iyong mga daan,
+ikaw na Hari ng mga bansa.
+Sinong hindi matatakot
+at luluwalhati sa iyong pangalan O Panginoon,
+At narinig ko ang isang malakas na tinig na mula sa templo, na nagsasabi sa pitong anghel, “Humayo kayo at ibuhos ninyo sa lupa ang pitong mangkok ng poot ng Diyos.”
+Kaya't humayo ang una at ibinuhos ang kanyang mangkok sa lupa; at nagkaroon ng nakakapandiri at masamang sugat ang mga taong may tanda ng halimaw, at ang mga sumamba sa larawan nito.
+Ibinuhos naman ng ikalawa ang kanyang mangkok sa dagat at ito'y naging parang dugo ng isang taong patay; at bawat may buhay na nasa dagat ay namatay.
+Ibinuhos ng ikatlo ang kanyang mangkok sa mga ilog at sa mga bukal ng tubig; at naging dugo ang mga ito.
+At narinig ko ang anghel ng tubig na nagsasabi,
+“Matuwid ka, ikaw na siyang ngayon at ang nakaraan, O Banal,
+sapagkat hinatulan mo ang mga bagay na ito,
+sapagkat pinadanak nila ang dugo ng mga banal at ng mga propeta,
+at pinainom mo sila ng dugo.
+Ito'y karapat-dapat sa kanila!”
+At narinig ko ang dambana na nagsasabi,
+“Opo, Panginoong Diyos na Makapangyarihan sa lahat,
+tunay at matuwid ang iyong mga hatol!”
+At ibinuhos ng ikaapat ang kanyang mangkok sa araw at pinahintulutan itong pasuin ng apoy ang mga tao.
+At napaso ang mga tao sa matinding init, ngunit kanilang nilait ang pangalan ng Diyos na may kapangyarihan sa mga salot na ito; at hindi sila nagsisi upang siya'y luwalhatiin.
+Ibinuhos naman ng ikalima ang kanyang mangkok sa trono ng halimaw, at nagdilim ang kanyang kaharian. Kinagat ng mga tao ang kanilang mga dila dahil sa hirap,
+at nilait nila ang Diyos ng langit dahil sa kanilang mga hirap at sa kanilang mga sugat; at hindi sila nagsisi sa kanilang mga gawa.
+Ibinuhos ng ikaanim ang kanyang mangkok sa malaking ilog na Eufrates at natuyo ang tubig nito, upang ihanda ang daraanan ng mga haring mula sa sikatan ng araw.
+At nakita kong lumabas sa bibig ng dragon at mula sa bibig ng halimaw at mula sa bibig ng bulaang propeta ang tatlong espiritung karumaldumal, na gaya ng mga palaka.
+Sila'y mga espiritu ng mga demonyo na gumagawa ng mga tanda; pumupunta sa mga hari ng buong daigdig, upang tipunin sila sa digmaan ng dakilang araw ng Diyos na Makapangyarihan sa lahat.
+(“Masdan ninyo, ako'y dumarating na gaya ng magnanakaw. Mapalad ang nananatiling gising at nakadamit, upang siya'y hindi lumakad na hubad at makita ang kanyang kahihiyan.”)
+At dumating ang isa sa pitong anghel na may pitong mangkok at nagsalita sa akin na nagsasabi, “Halika. Ipapakita ko sa iyo ang hatol sa tanyag na mahalay na babae na nakaupo sa ibabaw ng maraming tubig;
+na sa kanya'y nakiapid ang mga hari sa lupa, at ang mga naninirahan sa lupa ay nalasing sa alak ng kanyang pakikiapid.
+At ako'y kanyang dinalang nasa Espiritu sa isang ilang at nakita ko ang isang babae na nakasakay sa isang halimaw na pula, na punô ng mga pangalan ng kalapastanganan na may pitong ulo at sampung sungay.
+Ang babae ay nakadamit ng kulay-ube at ng matingkad na pula, nagagayakan ng ginto at ng mahahalagang bato at mga perlas, at hawak sa kanyang kamay ang isang kopang ginto na punô ng mga karumaldumal at mga bagay na marurumi ng kanyang pakikiapid,
+at sa kanyang noo ay nakasulat ang isang pangalan, ang isang hiwaga: “dakilang Babilonia, ina ng mga mahalay na babae at ng mga karumaldumal sa lupa.”
+At nakita ko ang babae na lasing sa dugo ng mga banal, at sa dugo ng mga martir ni Jesus. Nang makita ko siya, ako ay lubhang nanggilalas.
+Ngunit sinabi sa akin ng anghel, “Bakit ka nanggilalas? Sasabihin ko sa iyo ang hiwaga ng babae, at ng sinasakyan niyang halimaw na may pitong ulo at sampung sungay.
+Ang halimaw na nakita mo ay buháy noon at ngayo'y wala na, at malapit nang umahon mula sa di-matarok na kalaliman at patungo sa kapahamakan. At silang mga naninirahan sa lupa, na ang kanilang pangalan ay hindi nakasulat sa aklat ng buhay mula nang itatag ang sanlibutan, ay manggigilalas kapag nakita nila ang halimaw, sapagkat buháy noon ngunit ngayo'y wala na at darating pa.
+“Kailangan dito ang pag-iisip na may karunungan: ang pitong ulo ay pitong bundok na kinauupuan ng babae; sila rin ay pitong hari,
+ang lima sa kanila ay bumagsak, ang isa'y nananatili pa, ang isa ay hindi pa dumarating at pagdating niya, kailangang magpatuloy siya nang sandaling panahon.
+At ang halimaw na buháy noon at ngayo'y wala na, ay siya ring ikawalo ngunit kabilang sa pito at siya'y patungo sa kapahamakan.
+At ang sampung sungay na iyong nakita ay sampung hari, na hindi pa tumatanggap ng kaharian; subalit sila'y tatanggap ng kapangyarihan bilang mga hari sa loob ng isang oras, kasama ng halimaw.
+Ang mga ito ay may isang pag-iisip at ibinibigay nila ang kanilang kapangyarihan at kapamahalaan sa halimaw.
+Makikipagdigma ang mga ito laban sa Kordero at sila'y dadaigin ng Kordero, sapagkat siya'y Panginoon ng mga panginoon at Hari ng mga hari, at ang mga kasama niya ay mga tinawag, mga hinirang at tapat.”
+At sinabi niya sa akin, “Ang tubig na iyong nakita, na kinauupuan ng mahalay na babae ay mga bayan, napakaraming tao, mga bansa, at mga wika.
+At ang sampung sungay na iyong nakita, sila at ang halimaw ay mapopoot sa mahalay na babae; siya'y pababayaan at huhubaran nila, lalamunin ang kanyang laman at siya'y lubos na susunugin sa apoy.
+Sapagkat inilagay ng Diyos sa kanilang mga puso na gawin ang kanyang layunin at magkaisa ng pag-iisip at ibigay ang kanilang paghahari sa halimaw, hanggang sa maganap ang mga salita ng Diyos.
+Ang babae na iyong nakita ay ang dakilang lunsod na naghahari sa mga hari sa lupa.”
+Pagkatapos ng mga bagay na ito ay nakita ko ang isa pang anghel na nananaog mula sa langit, na may dakilang kapangyarihan; at ang lupa ay naliwanagan ng kanyang kaluwalhatian.
+At siya'y sumigaw nang may malakas na tinig na nagsasabi,
+“Bumagsak, bumagsak ang dakilang Babilonia!
+Ito'y naging tirahan ng mga demonyo,
+pugad ng bawat espiritung karumaldumal,
+at pugad ng bawat karumaldumal at kasuklamsuklam na mga ibon;
+sapagkat lahat ng mga bansa ay uminom
+ng alak ng galit ng kanyang pakikiapid,
+at ang mga hari sa lupa ay nakiapid sa kanya,
+at ang mga mangangalakal sa lupa ay yumaman dahil sa kapangyarihan ng kanyang kalayawan.”
+At narinig ko ang isa pang tinig na mula sa langit na nagsasabi,
+“Magsilabas kayo sa kanya, bayan ko,
+upang huwag kayong madamay sa kanyang mga kasalanan,
+at huwag kayong makabahagi
+sa kanyang mga salot;
+sapagkat ang kanyang mga kasalanan ay nagkapatung-patong na umaabot hanggang sa langit,
+at natatandaan ng Diyos ang kanyang mga kasalanan.
+Ibigay din ninyo ang ayon sa ibinigay niya sa inyo,
+at bayaran ninyo ng makalawang ulit ang kanyang mga gawa;
+sa kopang kanyang pinaghaluan ay inyong ipaghalo siya ng makalawang ulit.
+Kung gaano siya nagmalaki at namuhay sa kalayawan,
+ay gayundin ang ibigay ninyo sa kanyang pahirap at pagluluksa.
+Sapagkat sinasabi niya sa kanyang puso,
+‘Ako'y nakaupong isang reyna.
+Pagkatapos ng mga bagay na ito ay narinig ko ang gaya ng isang malakas na tinig ng napakaraming tao sa langit, na nagsasabi,
+“Aleluia!
+Ang kaligtasan, at kaluwalhatian, at kapangyarihan ay nauukol sa ating Diyos.
+Sapagkat tunay at matuwid ang kanyang mga paghatol;
+hinatulan niya ang tanyag na mahalay na babae
+na nagpasama sa daigdig sa pamamagitan ng kanyang pakikiapid,
+at ipinaghiganti ng Diyos ang dugo ng kanyang mga alipin laban sa babae.”
+At sa ikalawang pagkakataon ay kanilang sinabi,
+“Aleluia!
+At ang usok ng babae ay pumailanglang magpakailanpaman.”
+At nagpatirapa ang dalawampu't apat na matatanda at ang apat na nilalang na buháy, at sumamba sa Diyos na nakaupo sa trono, na nagsasabi,
+“Amen. Aleluia!”
+At lumabas ang isang tinig sa trono, na nagsasabi,
+“Purihin ninyo ang ating Diyos,
+kayong lahat na mga alipin niya,
+at kayong natatakot sa kanya,
+mga hamak at dakila.”
+Narinig ko ang gaya ng isang tinig ng napakaraming tao, gaya ng lagaslas ng maraming tubig, at gaya ng dagundong ng malalakas na kulog na nagsasabi,
+“Aleluia!
+Sapagkat naghahari ang Panginoon nating Diyos na Makapangyarihan sa lahat.
+Tayo'y magalak at tayo'y magpakasaya
+at ibigay natin sa kanya ang kaluwalhatian,
+At nakita ko ang isang anghel na nananaog mula sa langit, na hawak sa kanyang kamay ang susi ng di-matarok na kalaliman at ang isang malaking tanikala.
+At sinunggaban niya ang dragon, ang matandang ahas, na siyang Diyablo at Satanas, at ginapos siya ng isang libong taon,
+at siya'y itinapon sa di-matarok na kalaliman at sinarhan at tinatakan ito sa ibabaw niya, upang hindi na niya madaya ang mga bansa, hanggang sa matapos ang isang libong taon. Pagkatapos nito, kailangang siya'y pawalan sa maikling panahon.
+Nakakita ako ng mga trono, at ang mga nakaupo sa mga iyon ay pinagkalooban ng kapangyarihang humatol. Nakita ko rin ang mga kaluluwa ng mga pinugutan ng ulo dahil sa patotoo kay Jesus, at dahil sa salita ng Diyos, at ang mga hindi sumamba sa halimaw, o sa kanyang larawan man, at hindi tumanggap ng tanda sa kanilang noo at sa kanilang kamay. Sila'y nabuhay at nagharing kasama ni Cristo sa loob ng isang libong taon.
+Ang mga iba sa mga patay ay hindi nabuhay hanggang sa natapos ang isang libong taon. Ito ang unang pagkabuhay na muli.
+Mapalad at banal ang may bahagi sa unang pagkabuhay na muli! Sa mga ito'y walang kapangyarihan ang ikalawang kamatayan, kundi sila'y magiging mga pari ng Diyos at ni Cristo, at maghaharing kasama niya sa loob ng isang libong taon.
+At kung matapos na ang isang libong taon, si Satanas ay pakakawalan sa kanyang bilangguan,
+at lalabas upang dayain ang mga bansa na nasa apat na sulok ng lupa, sa Gog at sa Magog, upang tipunin sila para sa pakikipagdigma; ang bilang nila ay gaya ng buhangin sa dagat.
+Umakyat sila sa malawak na lupa at pinaligiran ang kampo ng mga banal, at ang lunsod na minamahal; ngunit bumaba ang apoy mula sa langit, at sila'y natupok.
+At ang diyablo na dumaya sa kanila ay inihagis sa lawa ng apoy at asupre, na kinaroroonan din naman ng halimaw at ng bulaang propeta; at sila'y pahihirapan araw at gabi magpakailanpaman.
+At nakita ko ang isang malaking tronong puti at ang nakaupo roon; ang lupa at ang langit ay tumakas sa kanyang harapan at walang natagpuang lugar para sa kanila.
+At nakita ko ang mga patay, mga dakila at mga hamak, na nakatayo sa harapan ng trono, at binuksan ang mga aklat. Binuksan din ang isa pang aklat, ang aklat ng buhay. At ang mga patay ay hinatulan ayon sa kanilang mga gawa, ayon sa nakatala sa mga aklat.
+At iniluwa ng dagat ang mga patay na nasa kanya, at ibinigay ng kamatayan at ng Hades ang mga patay na nasa kanila, at hinatulan ang bawat tao ayon sa kanilang mga gawa.
+Ang kamatayan at ang Hades ay itinapon sa lawa ng apoy. Ito ang ikalawang kamatayan, ang lawa ng apoy;
+at ang sinumang hindi natagpuang nakasulat sa aklat ng buhay ay itinapon sa lawa ng apoy.
+At nakita ko ang isang bagong langit at ang isang bagong lupa; sapagkat ang unang langit at ang unang lupa ay lumipas na, at ang dagat ay wala na.
+At nakita ko ang banal na lunsod, ang bagong Jerusalem, na bumababa mula sa langit buhat sa Diyos, na nakahanda na gaya ng isang babaing ikakasal na nagagayakan para sa kanyang asawa.
+At narinig ko ang isang malakas na tinig na mula sa trono na nagsasabi,
+“Masdan ninyo, ang tabernakulo ng Diyos ay nasa mga tao.
+Siya'y maninirahang kasama nila,
+at sila'y magiging bayan niya.
+Ang Diyos mismo ay makakasama nila, at siya'y magiging Diyos nila.
+At papahirin niya ang bawat luha sa kanilang mga mata,
+at hindi na magkakaroon ng kamatayan;
+hindi na rin magkakaroon pa ng pagdadalamhati, o ng pagtangis man, o ng kirot man,
+sapagkat ang mga unang bagay ay lumipas na.”
+At sinabi ng nakaupo sa trono, “Masdan ninyo, ginagawa kong bago ang lahat ng mga bagay.” Sinabi rin niya, “Isulat mo, sapagkat ang mga salitang ito ay tapat at tunay.”
+At sinabi niya sa akin, “Naganap na! Ako ang Alpha at ang Omega, ang pasimula at ang wakas. Ang nauuhaw ay aking paiinumin nang walang bayad sa bukal ng tubig ng buhay.
+Ang magtagumpay ay magmamana ng mga bagay na ito; at ako'y magiging Diyos niya at siya'y magiging anak ko.
+Ngunit sa mga duwag, sa mga hindi nananampalataya, mga karumaldumal, mga mamamatay-tao, mga mapakiapid, mga mangkukulam, mga sumasamba sa mga diyus-diyosan, at sa lahat na mga sinungaling, ang kanilang bahagi ay sa lawa na nagliliyab sa apoy at asupre, na siyang ikalawang kamatayan.”
+At dumating ang isa sa pitong anghel na may pitong mangkok na punô ng pitong huling salot, at nagsalita sa akin na nagsasabi, “Halika, ipapakita ko sa iyo ang babaing ikakasal, ang asawa ng Kordero.”
+At dinala niya akong nasa Espiritu sa isang malaki at mataas na bundok, at ipinakita sa akin ang banal na lunsod ng Jerusalem, na bumababa mula sa langit buhat sa Diyos,
+na may kaluwalhatian ng Diyos, ang kanyang ningning ay katulad ng isang totoong mahalagang bato, na gaya ng batong jaspe, na malinaw na gaya ng kristal.
+Ito ay mayroong isang malaki at mataas na pader, na may labindalawang pintuan, at sa mga pintuan ay may labindalawang anghel; at sa mga pintuan ay nakasulat ang mga pangalan ng labindalawang lipi ng mga anak ni Israel.
+Sa silangan ay tatlong pintuan, sa hilaga ay tatlong pintuan, sa timog ay tatlong pintuan, at sa kanluran ay tatlong pintuan.
+At ang pader ng lunsod ay may labindalawang saligan, at sa mga ito'y ang labindalawang pangalan ng labindalawang apostol ng Kordero.
+At ang nakipag-usap sa akin ay may gintong panukat upang sukatin ang lunsod at ang mga pintuan at ang pader nito.
+At ang pagkatayo ng lunsod ay parisukat, at ang kanyang haba ay gaya ng kanyang luwang, at sinukat niya ang lunsod ng kanyang panukat, labindalawang libong estadia. Ang haba, luwang at ang taas nito ay magkakasukat.
+Sinukat din niya ang pader nito, isandaan at apatnapu't apat na siko ang taas, ayon sa sukat ng tao, na siyang ginagamit ng anghel.
+Ang malaking bahagi ng pader ay jaspe at ang lunsod ay dalisay na ginto, na tulad ng kristal.
+Ang mga saligan ng pader ng lunsod ay ginagayakan ng sari-saring mahahalagang bato. Ang unang saligan ay jaspe, ang ikalawa ay safiro, ang ikatlo ay calcedonia, ang ikaapat ay esmeralda,
+ang ikalima ay onix, ang ikaanim ay sardio, ang ikapito ay crisolito, ang ikawalo ay berilo, ang ikasiyam ay topacio, ang ikasampu ay crisopasio, ang ikalabing-isa ay jacinto, ang ikalabindalawa ay ametista.
+At ipinakita sa akin ng anghel ang isang ilog ng tubig ng buhay, na maningning na gaya ng kristal, na lumalabas mula sa trono ng Diyos at ng Kordero
+sa gitna ng lansangan ng lunsod. Sa magkabilang panig ng ilog ay naroon ang punungkahoy ng buhay, na namumunga ng labindalawang iba't ibang bunga, na namumunga sa bawat buwan; at ang mga dahon ng punungkahoy ay para sa pagpapagaling sa mga bansa.
+At hindi na roon magkakaroon pa ng isinumpa. Ngunit ang trono ng Diyos at ng Kordero ay matatagpuan doon, at siya'y paglilingkuran ng kanyang mga alipin;
+at makikita nila ang kanyang mukha at ang kanyang pangalan ay masusulat sa kanilang mga noo.
+Hindi na magkakaroon pa ng gabi, at sila'y hindi nangangailangan ng liwanag ng ilawan, ni ng liwanag man ng araw, sapagkat ang Panginoong Diyos ang magbibigay-liwanag sa kanila, at sila'y maghahari magpakailanpaman.
+At sinabi niya sa akin, “Ang mga salitang ito'y tapat at tunay. Ang Panginoon, ang Diyos ng mga espiritu ng mga propeta, ay nagsugo ng kanyang anghel upang ipakita sa kanyang mga alipin ang mga bagay na kailangang mangyari kaagad.
+Ako'y malapit nang dumating! Mapalad ang tumutupad ng mga salita ng propesiya ng aklat na ito.”
+Akong si Juan ang nakarinig at nakakita ng mga bagay na ito. At nang aking marinig at makita, nagpatirapa ako upang sumamba sa harapan ng anghel na nagpakita sa akin ng mga bagay na ito.
+Ngunit sinabi niya sa akin, “Huwag mong gawin iyan! Ako'y kapwa mo alipin at ng iyong mga kapatid na mga propeta, at ng mga tumutupad ng mga salita ng aklat na ito. Ang Diyos ang sambahin mo.”
+At sinabi niya sa akin, “Huwag mong tatakan ang mga salita ng propesiya ng aklat na ito, sapagkat malapit na ang panahon.
+Ang masama ay hayaang magpakasama pa at ang marumi ay hayaang magpakarumi pa, at ang matuwid ay hayaang maging matuwid pa, at ang banal ay hayaang magpakabanal pa.”
+“Ako'y malapit nang dumating at dala ko ang aking gantimpala, upang gantihan ang bawat isa ayon sa kanyang ginawa.
+Ako ang Alpha at ang Omega, ang una at ang huli, ang pasimula at ang wakas.”
+Mapapalad ang naghuhugas ng kanilang damit, upang sila'y magkaroon ng karapatan sa punungkahoy ng buhay at makapasok sa lunsod sa pamamagitan ng mga pintuan.
+Nasa labas ang mga aso, mga mangkukulam, mga mapakiapid, mga mamamatay-tao, mga sumasamba sa mga diyus-diyosan, at ang bawat umiibig at gumagawa ng kasinungalingan.
+“Akong si Jesus ay nagsugo ng aking anghel upang sa inyo'y magpatotoo ng mga bagay na ito sa mga iglesya. Ako ang ugat at ang supling ni David, ang maningning na tala sa umaga.”
+Ang Espiritu at ang babaing ikakasal ay nagsasabi, “Halika.”
+At ang nakikinig ay magsabi, “Halika.”
+At ang nauuhaw ay pumarito,
+ang may ibig ay kumuha ng tubig ng buhay nang walang bayad.
+Aking binabalaan ang bawat taong nakikinig sa mga salita ng propesiya ng aklat na ito: Kung ang sinuman ay magdagdag sa mga ito, idaragdag sa kanya ng Diyos ang mga salot na nakasulat sa aklat na ito,
 Si Pablo na alipin ni Jesu-Cristo, tinawag upang maging apostol, ibinukod para sa ebanghelyo ng Diyos,
 na kanyang ipinangako noong una sa pamamagitan ng kanyang mga propeta sa mga banal na kasulatan,
 tungkol sa kanyang Anak na mula sa binhi ni David ayon sa laman
@@ -5914,3 +7673,51 @@ Ang biyaya ng ating Panginoong Jesu-Cristo ay sumainyong lahat. Amen.]
 At ngayon, sa Diyos na may kapangyarihang magpatibay sa inyo ayon sa aking ebanghelyo at sa pangangaral ni Jesu-Cristo, ayon sa pahayag ng hiwaga na inilihim sa napakahabang panahon,
 subalit nahayag na ngayon, at sa pamamagitan ng mga kasulatan ng mga propeta, ay ipinakilala sa lahat ng mga bansa tungo sa pagsunod sa pananampalataya, ayon sa utos ng Diyos na walang hanggan—
 sa iisang Diyos na marunong, sa pamamagitan ni Jesu-Cristo, sumakanya ang kaluwalhatian magpakailanman. Amen.
+Si Pablo, na alipin ng Diyos, at apostol ni Jesu-Cristo, sa ikasusulong ng pananampalataya ng mga hinirang ng Diyos, at ng kanilang pagkakilala sa katotohanang ayon sa kabanalan,
+sa pag-asa sa buhay na walang hanggan. Bago pa nagsimula ang mga panahon, ito ay ipinangako ng Diyos na hindi nagsisinungaling.
+Ngunit sa takdang panahon ay ipinahayag sa kanyang salita sa pamamagitan ng pangangaral na sa akin ay ipinagkatiwala ayon sa utos ng Diyos na ating Tagapagligtas;
+kay Tito na aking tunay na anak sa iisang pananampalataya: Biyaya at kapayapaan mula sa Diyos Ama at kay Cristo Jesus na ating Tagapagligtas.
+Dahil dito'y iniwan kita sa Creta, upang isaayos mo ang mga bagay na may kakulangan at upang magtalaga ng matatanda sa iglesya sa bawat bayan, na gaya ng ipinagbilin ko sa iyo:
+Siya ay dapat na walang kapintasan, asawa ng isang babae, na ang kanyang mga anak ay mananampalataya, na hindi napaparatangan ng panggugulo o ng pagiging suwail.
+Sapagkat ang obispo bilang katiwala ng Diyos ay dapat na walang kapintasan, hindi mayabang, hindi magagalitin, hindi maglalasing, hindi marahas, hindi sakim sa pakinabang;
+kundi mapagpatuloy ng panauhin, maibigin sa kabutihan, matino ang pag-iisip, matuwid, banal, at mapagpigil sa sarili.
+Dapat na kanyang pinanghahawakang mabuti ang tapat na salita na ayon sa turo, upang makapangaral siya ng wastong aral, at pabulaanan ang mga sumasalungat dito.
+Sapagkat maraming mga suwail, na mapagsalita ng walang kabuluhan at mga mandaraya, lalung-lalo na ang mga nasa panig ng pagtutuli.
+Dapat patigilin ang kanilang mga bibig, sapagkat ginugulo nila ang buong sambahayan sa pagtuturo nila ng mga bagay na hindi nararapat, dahil sa masamang pakinabang.
+Sinabi ng isa sa kanila, ng isang propeta mismo nila,
+‘Ang mga taga-Creta ay laging mga sinungaling, masasamang hayop, mga batugang matatakaw.’
+Ang patotoong ito ay tunay. Dahil dito'y mahigpit mo silang sawayin upang maging malakas sila sa pananampalataya,
+na huwag makinig sa mga kathang-isip ng mga Judio, at sa mga utos ng mga tao na nagtatakuwil sa katotohanan.
+Sa malinis ang lahat ng mga bagay ay malinis; ngunit sa marurumi at hindi nananampalataya ay walang anumang malinis; kundi ang kanilang pag-iisip at budhi ay pawang pinarumi.
+Inaangkin nilang kilala nila ang Diyos; ngunit sa pamamagitan ng kanilang mga gawa, ay ikinakaila nila, palibhasa sila'y kasuklamsuklam, at mga masuwayin, at hindi naaangkop sa anumang gawang mabuti.
+Ngunit ikaw naman, magsalita ka ng mga bagay na angkop sa mahusay na aral.
+Ang matatandang lalaki ay dapat maging mapagpigil sa sarili, kagalang-galang, matino, malakas sa pananampalataya, sa pag-ibig, at sa pagtitiis.
+Sabihan mo rin ang matatandang babae na maging magalang sa kanilang asal, hindi mapanirang-puri, ni paalipin man sa alak; dapat silang magturo ng kabutihan,
+upang kanilang maturuan ang mga kabataang babae na ibigin ang kani-kanilang mga asawa, ibigin ang kanilang mga anak,
+maging matino, dalisay, masipag sa gawaing bahay, mabait, na nagpapasakop sa kani-kanilang asawa, upang huwag lapastanganin ang salita ng Diyos.
+Gayundin naman, himukin mo ang mga kabataang lalaki na maging matino sa pag-iisip.
+Sa lahat ng mga bagay ay ipakita mo ang iyong sarili na isang uliran sa mabubuting gawa; at sa iyong pagtuturo ay magpakita ka ng katapatan, pagiging kagalang-galang,
+wastong pananalita na hindi mapipintasan, upang ang kalaban ay mapahiya, na walang anumang masamang masasabi tungkol sa atin.
+Ang mga alipin ay magpasakop sa kanilang mga panginoon at magbigay ng kasiyahan sa lahat ng mga bagay, at huwag maging palasagot,
+ni huwag mangungupit, kundi magpakita ng lubos at tunay na katapatan, upang sa lahat ng bagay ay mapalamutian nila ang aral ng Diyos na ating Tagapagligtas.
+Sapagkat nagpakita ang biyaya ng Diyos, na nagdadala ng kaligtasan sa lahat ng tao,
+na nagtuturo sa atin na matapos itakuwil ang kasamaan, at mga makamundong pagnanasa, ay dapat tayong mamuhay nang may katinuan, matuwid at banal sa kasalukuyang panahon,
+habang hinihintay natin ang mapalad na pag-asa at ang pagpapakita ng kaluwalhatian ng ating dakilang Diyos at Tagapagligtas na si Jesu-Cristo.
+Siya ang nagbigay ng kanyang sarili alang-alang sa atin, upang tayo'y matubos niya sa lahat ng mga kasamaan, at pakalinisin para sa kanyang sarili ang sambayanang pag-aari niya na masigasig sa mabubuting gawa.
+Ipahayag mo ang mga bagay na ito. Mangaral ka at sumaway na may buong kapamahalaan. Huwag mong hayaang hamakin ka ng sinuman.
+Ipaalala mo sa kanila na pasakop sa mga pinuno at sa mga may kapangyarihan, maging masunurin, maging handa sa bawat mabuting gawa,
+huwag magsalita ng masama tungkol sa kanino man, huwag makipag-away, maging maamo, at magpakita ng hinahon sa lahat ng mga tao.
+Sapagkat tayo rin naman noong dati ay mga hangal, mga suwail, mga nalinlang, mga alipin ng sari-saring pagnanasa at kalayawan, na namumuhay sa kasamaan at inggit; mga kasuklamsuklam at napopoot sa isa't isa.
+Ngunit nang mahayag ang kabutihan at kagandahang-loob ng Diyos na ating Tagapagligtas,
+iniligtas niya tayo, hindi dahil sa mga gawa na ating ginawa sa katuwiran kundi ayon sa kanyang kahabagan, sa pamamagitan ng paghuhugas ng muling kapanganakan at ng pagbabago sa pamamagitan ng Espiritu Santo.
+Ang Espiritung ito na kanyang ibinuhos nang sagana sa atin sa pamamagitan ni Jesu-Cristo na ating Tagapagligtas;
+upang, yamang inaring-ganap sa pamamagitan ng kanyang biyaya, tayo'y maging mga tagapagmana ayon sa pag-asa sa buhay na walang hanggan.
+Tapat ang salita, at nais kong igiit mo ang mga bagay na ito upang ang mga nananampalataya sa Diyos ay maging maingat na ilaan ang kanilang sarili sa mabubuting gawa. Ang mga bagay na ito ay pawang mabubuti at kapaki-pakinabang sa mga tao.
+Ngunit iwasan mo ang mga pagtatalo, at ang mga pagsasalaysay ng salinlahi, at ang mga alitan at pag-aaway tungkol sa kautusan, sapagkat ang mga ito ay walang pakinabang at walang katuturan.
+Ang taong lumilikha ng pagkakabaha-bahagi, pagkatapos nang una at ikalawang pagsaway ay iwasan mo;
+yamang nalalaman mo na ang gayon ay baluktot at nagkakasala, na hinatulan niya ang kanyang sarili.
+Kapag isinugo ko sa iyo si Artemas o si Tiquico ay sikapin mong puntahan ako sa Nicopolis; sapagkat ipinasiya kong gugulin doon ang taglamig.
+Pagsikapan mong tulungan si Zenas na dalubhasa sa batas at si Apolos sa kanilang paglalakbay; tiyakin mong sila'y hindi kukulangin ng anuman.
+At nararapat na ang ating mga tao ay matutong magmalasakit sa mabubuting gawa para sa matitinding pangangailangan upang hindi sila mawalan ng bunga.
+Binabati ka ng lahat ng mga kasama ko. Batiin mo ang mga umiibig sa atin sa pananampalataya.
+Biyaya nawa ang sumainyong lahat.
