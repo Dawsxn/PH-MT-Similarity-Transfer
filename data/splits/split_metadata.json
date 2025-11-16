@@ -6,54 +6,61 @@
     "dev": 0.1,
     "test": 0.1
   },
-  "total_sentences": 2948,
+  "total_sentences": 5916,
   "split_sizes": {
-    "train": 2358,
-    "dev": 294,
-    "test": 296
+    "train": 4732,
+    "dev": 591,
+    "test": 593
   },
   "language_pairs": [
     {
       "pair": "en-tl",
-      "train": 2358,
-      "dev": 294,
-      "test": 296,
-      "total": 2948
+      "train": 4732,
+      "dev": 591,
+      "test": 593,
+      "total": 5916
     },
     {
       "pair": "bik-tl",
-      "train": 2358,
-      "dev": 294,
-      "test": 296,
-      "total": 2948
+      "train": 4732,
+      "dev": 591,
+      "test": 593,
+      "total": 5916
+    },
+    {
+      "pair": "war-tl",
+      "train": 4732,
+      "dev": 591,
+      "test": 593,
+      "total": 5916
     },
     {
       "pair": "en-hil",
-      "train": 2358,
-      "dev": 294,
-      "test": 296,
-      "total": 2948
+      "train": 4732,
+      "dev": 591,
+      "test": 593,
+      "total": 5916
     },
     {
       "pair": "msb-hil",
-      "train": 2358,
-      "dev": 294,
-      "test": 296,
-      "total": 2948
+      "train": 4732,
+      "dev": 591,
+      "test": 593,
+      "total": 5916
     },
     {
       "pair": "en-war",
-      "train": 2358,
-      "dev": 294,
-      "test": 296,
-      "total": 2948
+      "train": 4732,
+      "dev": 591,
+      "test": 593,
+      "total": 5916
     },
     {
       "pair": "hil-war",
-      "train": 2358,
-      "dev": 294,
-      "test": 296,
-      "total": 2948
+      "train": 4732,
+      "dev": 591,
+      "test": 593,
+      "total": 5916
     }
   ]
 }
