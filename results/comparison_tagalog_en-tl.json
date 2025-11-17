@@ -1,0 +1,34 @@
+[
+  {
+    "model_type": "Baseline (NLLB LoRA)",
+    "model_path": "..\\models\\tagalog_baseline_nllb_lora_bf16\\final_model",
+    "pair_name": "en-tl",
+    "base_model": "facebook/nllb-200-distilled-600M",
+    "is_lora": true,
+    "test_size": 773,
+    "metrics": {
+      "bleu": 25.936513672290868,
+      "chrf": 53.18212577857228,
+      "ter": 65.83646897210774
+    },
+    "translation_time": 95.19005,
+    "sentences_per_second": 8.12059663798895,
+    "timestamp": "2025-11-17T21:06:16.546705"
+  },
+  {
+    "model_type": "Experimental Stage 2 (NLLB LoRA)",
+    "model_path": "..\\models\\tagalog_experimental_stage2_nllb_lora_bf16\\final_model",
+    "pair_name": "en-tl",
+    "base_model": "facebook/nllb-200-distilled-600M",
+    "is_lora": true,
+    "test_size": 773,
+    "metrics": {
+      "bleu": 27.08698310331142,
+      "chrf": 53.66496592419182,
+      "ter": 64.49859642835813
+    },
+    "translation_time": 98.541633,
+    "sentences_per_second": 7.84440014303396,
+    "timestamp": "2025-11-17T21:08:12.727665"
+  }
+]

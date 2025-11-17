@@ -1,0 +1,16 @@
+{
+  "model_type": "Tagalog Baseline (NLLB + LoRA + BF16)",
+  "model_path": "..\\models\\tagalog_baseline_nllb_lora_bf16\\final_model",
+  "pair_name": "en-tl",
+  "base_model": "facebook/nllb-200-distilled-600M",
+  "is_lora": true,
+  "test_size": 773,
+  "metrics": {
+    "bleu": 25.936513672290868,
+    "chrf": 53.18212577857228,
+    "ter": 65.83646897210774
+  },
+  "translation_time": 93.491807,
+  "sentences_per_second": 8.26810417729973,
+  "timestamp": "2025-11-17T21:04:12.686498"
+}
