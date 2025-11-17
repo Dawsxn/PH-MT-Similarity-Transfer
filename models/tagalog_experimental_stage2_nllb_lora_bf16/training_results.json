@@ -12,19 +12,20 @@
     "dropout": 0.1,
     "target_modules": [
       "q_proj",
-      "v_proj"
+      "v_proj",
+      "k_proj"
     ]
   },
   "train_results": {
-    "train_loss": 6.267533723298494,
-    "train_runtime": 4985.3654
+    "train_loss": 6.166967394435236,
+    "train_runtime": 8992.1019
   },
   "eval_results": {
-    "eval_loss": 6.045382022857666,
-    "eval_bleu": 27.40642772403078,
-    "eval_runtime": 1280.5488,
-    "eval_samples_per_second": 0.462,
-    "eval_steps_per_second": 0.058,
-    "epoch": 3.0
+    "eval_loss": 6.0538835525512695,
+    "eval_bleu": 27.131317487371454,
+    "eval_runtime": 1193.6197,
+    "eval_samples_per_second": 0.647,
+    "eval_steps_per_second": 0.081,
+    "epoch": 4.0
   }
 }
