@@ -4,13 +4,13 @@
   "pair_name": "en-tl",
   "base_model": "facebook/nllb-200-distilled-600M",
   "is_lora": true,
-  "test_size": 773,
+  "test_size": 1690,
   "metrics": {
-    "bleu": 25.936513672290868,
-    "chrf": 53.18212577857228,
-    "ter": 65.83646897210774
+    "bleu": 18.261616506361467,
+    "chrf": 43.73744700368843,
+    "ter": 79.6474438439034
   },
-  "translation_time": 93.491807,
-  "sentences_per_second": 8.26810417729973,
-  "timestamp": "2025-11-17T21:04:12.686498"
+  "translation_time": 237.29079,
+  "sentences_per_second": 7.122063186691738,
+  "timestamp": "2025-11-18T11:04:47.114070"
 }

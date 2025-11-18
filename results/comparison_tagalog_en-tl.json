@@ -5,15 +5,15 @@
     "pair_name": "en-tl",
     "base_model": "facebook/nllb-200-distilled-600M",
     "is_lora": true,
-    "test_size": 773,
+    "test_size": 1690,
     "metrics": {
-      "bleu": 25.936513672290868,
-      "chrf": 53.18212577857228,
-      "ter": 65.83646897210774
+      "bleu": 18.261616506361467,
+      "chrf": 43.73744700368843,
+      "ter": 79.6474438439034
     },
-    "translation_time": 95.19005,
-    "sentences_per_second": 8.12059663798895,
-    "timestamp": "2025-11-17T21:06:16.546705"
+    "translation_time": 241.903386,
+    "sentences_per_second": 6.986260208858755,
+    "timestamp": "2025-11-18T11:09:07.848899"
   },
   {
     "model_type": "Experimental Stage 2 (NLLB LoRA)",
@@ -21,14 +21,14 @@
     "pair_name": "en-tl",
     "base_model": "facebook/nllb-200-distilled-600M",
     "is_lora": true,
-    "test_size": 773,
+    "test_size": 1690,
     "metrics": {
-      "bleu": 27.08698310331142,
-      "chrf": 53.66496592419182,
-      "ter": 64.49859642835813
+      "bleu": 18.62196984233769,
+      "chrf": 43.98479625660631,
+      "ter": 79.22348390935687
     },
-    "translation_time": 98.541633,
-    "sentences_per_second": 7.84440014303396,
-    "timestamp": "2025-11-17T21:08:12.727665"
+    "translation_time": 246.791626,
+    "sentences_per_second": 6.847882269716882,
+    "timestamp": "2025-11-18T11:13:33.265651"
   }
 ]
