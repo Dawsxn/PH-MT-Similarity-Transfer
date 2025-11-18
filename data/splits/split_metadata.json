@@ -6,40 +6,40 @@
     "dev": 0.1,
     "test": 0.1
   },
-  "total_sentences": 16900,
+  "total_sentences": 12976,
   "split_sizes": {
-    "train": 13520,
-    "dev": 1690,
-    "test": 1690
+    "train": 10380,
+    "dev": 1297,
+    "test": 1299
   },
   "language_pairs": [
     {
       "pair": "en-tl",
-      "train": 13520,
-      "dev": 1690,
-      "test": 1690,
-      "total": 16900
+      "train": 10380,
+      "dev": 1297,
+      "test": 1299,
+      "total": 12976
     },
     {
       "pair": "war-tl",
-      "train": 13520,
-      "dev": 1690,
-      "test": 1690,
-      "total": 16900
+      "train": 10380,
+      "dev": 1297,
+      "test": 1299,
+      "total": 12976
     },
     {
       "pair": "en-war",
-      "train": 13520,
-      "dev": 1690,
-      "test": 1690,
-      "total": 16900
+      "train": 10380,
+      "dev": 1297,
+      "test": 1299,
+      "total": 12976
     },
     {
       "pair": "ceb-war",
-      "train": 13520,
-      "dev": 1690,
-      "test": 1690,
-      "total": 16900
+      "train": 10380,
+      "dev": 1297,
+      "test": 1299,
+      "total": 12976
     }
   ]
 }

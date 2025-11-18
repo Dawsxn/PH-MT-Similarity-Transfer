@@ -1,5 +1,5 @@
 pair,role,src_lang,tgt_lang,num_lines,src_words,tgt_words
-en-tl,baseline + distant,english,tagalog,16900,362952,403914
-war-tl,similar donor,waray,tagalog,16900,407424,403914
-en-war,baseline + distant,english,waray,16900,362952,407424
-ceb-war,similar donor,cebuano,waray,16900,414787,407424
+en-tl,baseline + distant,english,tagalog,12976,299013,320200
+war-tl,similar donor,waray,tagalog,12976,340305,320200
+en-war,baseline + distant,english,waray,12976,299013,340305
+ceb-war,similar donor,cebuano,waray,12976,332147,340305

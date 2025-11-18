@@ -1,0 +1,30 @@
+{
+  "pair": "ceb-war",
+  "stage": "Stage 1 (Similar Language NLLB LoRA + BF16)",
+  "model_name": "facebook/nllb-200-distilled-600M",
+  "model_source": "facebook/nllb-200-distilled-600M",
+  "bf16_enabled": true,
+  "src_lang": "ceb_Latn",
+  "tgt_lang": "war_Latn",
+  "lora_config": {
+    "r": 8,
+    "alpha": 16,
+    "dropout": 0.1,
+    "target_modules": [
+      "q_proj",
+      "v_proj"
+    ]
+  },
+  "train_results": {
+    "train_loss": 6.075722417911047,
+    "train_runtime": 4045.9708
+  },
+  "eval_results": {
+    "eval_loss": 5.718016147613525,
+    "eval_bleu": 22.743503447853985,
+    "eval_runtime": 701.134,
+    "eval_samples_per_second": 1.85,
+    "eval_steps_per_second": 0.464,
+    "epoch": 3.0
+  }
+}
