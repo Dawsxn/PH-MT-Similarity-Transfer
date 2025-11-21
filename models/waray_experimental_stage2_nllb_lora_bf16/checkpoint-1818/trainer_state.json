@@ -1,7 +1,7 @@
 {
-  "best_global_step": 1818,
-  "best_metric": 28.32620384593871,
-  "best_model_checkpoint": "..\\models\\waray_experimental_stage2_nllb_lora_bf16\\checkpoint-1818",
+  "best_global_step": 909,
+  "best_metric": 27.732326449711444,
+  "best_model_checkpoint": "..\\models\\waray_experimental_stage2_nllb_lora_bf16\\checkpoint-909",
   "epoch": 2.0,
   "eval_steps": 500,
   "global_step": 1818,
@@ -11,34 +11,34 @@
   "log_history": [
     {
       "epoch": 1.0,
-      "grad_norm": 0.15709766745567322,
+      "grad_norm": 0.15699483454227448,
       "learning_rate": 3.335166850018335e-05,
-      "loss": 6.5962,
+      "loss": 6.5931,
       "step": 909
     },
     {
       "epoch": 1.0,
-      "eval_bleu": 27.18149030805535,
-      "eval_loss": 6.4150614738464355,
-      "eval_runtime": 171.162,
-      "eval_samples_per_second": 2.652,
-      "eval_steps_per_second": 0.666,
+      "eval_bleu": 27.732326449711444,
+      "eval_loss": 6.412867546081543,
+      "eval_runtime": 177.3284,
+      "eval_samples_per_second": 2.56,
+      "eval_steps_per_second": 0.643,
       "step": 909
     },
     {
       "epoch": 2.0,
-      "grad_norm": 0.3310987651348114,
+      "grad_norm": 0.3247373402118683,
       "learning_rate": 1.6685001833516686e-05,
-      "loss": 6.5406,
+      "loss": 6.5375,
       "step": 1818
     },
     {
       "epoch": 2.0,
-      "eval_bleu": 28.32620384593871,
-      "eval_loss": 6.408348560333252,
-      "eval_runtime": 165.3254,
-      "eval_samples_per_second": 2.746,
-      "eval_steps_per_second": 0.69,
+      "eval_bleu": 26.920162197018644,
+      "eval_loss": 6.406165599822998,
+      "eval_runtime": 183.4056,
+      "eval_samples_per_second": 2.475,
+      "eval_steps_per_second": 0.622,
       "step": 1818
     }
   ],

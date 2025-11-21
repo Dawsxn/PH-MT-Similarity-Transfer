@@ -14,4 +14,4 @@ with open("data/parallel/en-war/en-war.csv", encoding="utf-8") as f:
         if has_long_field:
             rows_with_long_fields += 1
 
-print(f"\nRows with fields > 512 characters: {rows_with_long_fields}")
+print(f"\nRows with fields > 128 characters: {rows_with_long_fields}")

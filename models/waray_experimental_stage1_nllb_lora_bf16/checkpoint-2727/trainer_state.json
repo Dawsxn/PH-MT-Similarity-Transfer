@@ -1,6 +1,6 @@
 {
   "best_global_step": 2727,
-  "best_metric": 28.304417188950747,
+  "best_metric": 28.0609804834034,
   "best_model_checkpoint": "..\\models\\waray_experimental_stage1_nllb_lora_bf16\\checkpoint-2727",
   "epoch": 3.0,
   "eval_steps": 500,
@@ -11,50 +11,50 @@
   "log_history": [
     {
       "epoch": 1.0,
-      "grad_norm": 0.34014156460762024,
+      "grad_norm": 0.37904292345046997,
       "learning_rate": 3.335166850018335e-05,
-      "loss": 8.345,
+      "loss": 8.3392,
       "step": 909
     },
     {
       "epoch": 1.0,
-      "eval_bleu": 25.872636922991386,
-      "eval_loss": 6.649476528167725,
-      "eval_runtime": 234.1998,
-      "eval_samples_per_second": 1.939,
-      "eval_steps_per_second": 0.487,
+      "eval_bleu": 25.79822345127541,
+      "eval_loss": 6.647584438323975,
+      "eval_runtime": 236.087,
+      "eval_samples_per_second": 1.923,
+      "eval_steps_per_second": 0.483,
       "step": 909
     },
     {
       "epoch": 2.0,
-      "grad_norm": 0.2521456480026245,
+      "grad_norm": 0.25304415822029114,
       "learning_rate": 1.6685001833516686e-05,
-      "loss": 6.7716,
+      "loss": 6.7691,
       "step": 1818
     },
     {
       "epoch": 2.0,
-      "eval_bleu": 27.62579866596639,
-      "eval_loss": 6.517551422119141,
-      "eval_runtime": 251.4268,
-      "eval_samples_per_second": 1.806,
-      "eval_steps_per_second": 0.453,
+      "eval_bleu": 27.820799611741737,
+      "eval_loss": 6.516312599182129,
+      "eval_runtime": 243.0547,
+      "eval_samples_per_second": 1.868,
+      "eval_steps_per_second": 0.469,
       "step": 1818
     },
     {
       "epoch": 3.0,
-      "grad_norm": 0.24612917006015778,
+      "grad_norm": 0.2460748851299286,
       "learning_rate": 1.8335166850018336e-08,
-      "loss": 6.6925,
+      "loss": 6.6896,
       "step": 2727
     },
     {
       "epoch": 3.0,
-      "eval_bleu": 28.304417188950747,
-      "eval_loss": 6.509555339813232,
-      "eval_runtime": 254.2072,
-      "eval_samples_per_second": 1.786,
-      "eval_steps_per_second": 0.448,
+      "eval_bleu": 28.0609804834034,
+      "eval_loss": 6.505764961242676,
+      "eval_runtime": 253.4068,
+      "eval_samples_per_second": 1.792,
+      "eval_steps_per_second": 0.45,
       "step": 2727
     }
   ],

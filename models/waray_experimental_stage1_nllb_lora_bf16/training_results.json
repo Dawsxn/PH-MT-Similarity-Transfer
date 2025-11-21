@@ -16,14 +16,14 @@
     ]
   },
   "train_results": {
-    "train_loss": 7.2696841624266595,
-    "train_runtime": 1442.4769
+    "train_loss": 7.265969142487165,
+    "train_runtime": 1427.648
   },
   "eval_results": {
-    "eval_loss": 6.509555339813232,
-    "eval_bleu": 28.304417188950747,
-    "eval_runtime": 252.5552,
-    "eval_samples_per_second": 1.798,
+    "eval_loss": 6.505764961242676,
+    "eval_bleu": 28.0609804834034,
+    "eval_runtime": 252.6329,
+    "eval_samples_per_second": 1.797,
     "eval_steps_per_second": 0.451,
     "epoch": 3.0
   }
