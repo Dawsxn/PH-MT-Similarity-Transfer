@@ -1,137 +1,137 @@
 {
-  "tagalog": {
+  "waray": {
     "baseline": {
-      "model_name": "Tagalog - Baseline",
-      "model_path": "..\\models\\tagalog_baseline_nllb_lora_bf16\\final_model",
+      "model_name": "Waray - Baseline",
+      "model_path": "..\\models\\waray_baseline_nllb_lora_bf16\\final_model",
       "src_lang": "eng_Latn",
-      "tgt_lang": "tgl_Latn",
-      "bleu_score": 31.28878134629878,
+      "tgt_lang": "war_Latn",
+      "bleu_score": 23.710194139914396,
       "bleu_precisions": [
-        65.94553497373514,
-        38.81249104712792,
-        24.95912604042806,
-        16.45173745173745
+        62.787433876713806,
+        32.53911939350935,
+        18.98699786532117,
+        11.505676079667111
       ],
-      "brevity_penalty": 0.9772127708279124,
-      "length_ratio": 0.977468499814208,
-      "translation_length": 28936,
-      "reference_length": 29603,
+      "brevity_penalty": 0.9173252892951612,
+      "length_ratio": 0.9205618312518634,
+      "translation_length": 27789,
+      "reference_length": 30187,
       "num_sentences": 1012,
       "sample_translations": [
         {
           "source": "\"We now have 4-month-old mice that are non-diabetic that used to be diabetic,\" he added.",
-          "reference": "\"Mayroon na tayong 4 na buwang gulang na daga na hindi diabetic na dating diabetic,\" dagdag niya.",
-          "translation": "\"May apat na buwan na tayo ngayon na mga mouse na hindi diabetic na dati ay diabetic\", siya ay nagdagdag."
+          "reference": "\"Mayda na kita yana 4-ka-bulan-an edad nga yatot nga diri-diabetic nga han hadto diabetic,\" dugang pa niya.",
+          "translation": "Nagdadugang hiya: \"May-ada kita yana upat ka bulan nga mga salog nga diri may-ada diabetes nga hadto may-ada diabetes\"."
         },
         {
           "source": "Dr. Ehud Ur, professor of medicine at Dalhousie University in Halifax, Nova Scotia and chair of the clinical and scientific division of the Canadian Diabetes Association cautioned that the research is still in its early days.",
-          "reference": "Nagbabala si Dr. Ehud Ur, isang propesor sa medisina sa Dalhousie University sa Halifax, Nova Scotia at tagapangulo ng siyentipiko at pagsusuri na dibisyon ng Canadian Diabetes Association na ang pananaliksik ay nasa mga unang araw pa nito.",
-          "translation": "Binanggit ni Dr. Ehud Ur, propesor ng medisina sa Dalhousie University sa Halifax, Nova Scotia at chairman ng clinical at scientific division ng Canadian Diabetes Association na ang pananaliksik ay nasa unang araw pa rin."
+          "reference": "Ginpahimatngon ni Dr. Ehud Ur, propesor han medisina ha Dalhousie University ha Halifax, Nova Scotia ngan pangulo han klinikal ngan sayantipiko nga dibisyon han Canadian Diabetes Association nga an pagsaliksik in aada pa ha iya sayo nga mga adlaw.",
+          "translation": "Hi Dr. Ehud Ur, propesor hin medisina ha Dalhousie University ha Halifax, Nova Scotia ngan presidente han clinical ngan scientific division han Canadian Diabetes Association, nagpahamangno nga an panukiduki aada pa ha sayo nga mga adlaw."
         },
         {
           "source": "Like some other experts, he is skeptical about whether diabetes can be cured, noting that these findings have no relevance to people who already have Type 1 diabetes.",
-          "reference": "Tulad ng iba pang eksperto, nag-aalangan siya kung kayang gamutin ang diabetes, binibigyang pansin niya na walang kinalaman ang mga natuklasang ito sa mga taong mayroon nang Type 1 diabetes.",
-          "translation": "Tulad ng ilang iba pang mga dalubhasa, siya'y skeptical tungkol sa kung maiiwasan ba ang diabetes, na binanggit na ang mga natuklasan na ito ay walang kaugnayan sa mga taong may Type 1 diabetes na ngayon."
+          "reference": "Sugad han pira nga iba nga mga eksperto, diri hiya sigurado kon pwede ba matambal an diabetes, nagsisiring nga ini nga mga pinanhibilngan waray paghidabi ngadto han mga tawo nga mayda na daan Type 1 nga diabetes.",
+          "translation": "Pariho ha iba nga eksperto, nagruhaduha hiya kon maiiwas ba an diabetes, kay waray kalabotan ini ha mga tawo nga may Type 1 diabetes."
         },
         {
           "source": "On Monday, Sara Danius, permanent secretary of the Nobel Committee for Literature at the Swedish Academy, publicly announced during a radio program on Sveriges Radio in Sweden the committee, unable to reach Bob Dylan directly about winning the 2016 Nobel Prize in Literature, had abandoned its efforts to reach him.",
-          "reference": "Noong Lunes, Sara Danius, permanenteng sekretarya ng Nobel Committee para sa Literatura sa Swedish na Academy, ay inanunsiyo sa publiko sa panahon ng programa sa radyo sa Sveriges Radio sa Sweden na ang komite, hindi direktang makontak si Bob Dylan tungkol sa pagkakapanalo ng 2016 Nobel Prize sa Literatura, ay inabandona na ang pagkontak sa kanya.",
-          "translation": "Noong Lunes, si Sara Danius, permanenteng sekretaryo ng Nobel Committee for Literature sa Swedish Academy, ay inihayag nang publiko sa panahon ng isang programa sa radyo sa Sveriges Radio sa Sweden na ang komite, hindi maaaring maabot si Bob Dylan nang direkta tungkol sa pagwagi ng 2016 Nobel Prize in Literature, ay iniwan ang mga pagsisikap upang maabot siya."
+          "reference": "Dida han Lunes, iginpasabot ha publiko ni Sara Danius, permanente nga sekretarya han Nobel Committee para ha Literatura ha Swedish Academy, dida han usa ka programa ha radyo nga Sveriges Radio ha Sweden nga an komitiba, nga waray pakakakab-ot hin direkta kan Bob Dylan mahitungod han pagdaog han 2016 Nobel Prize ha Literatura, in ginbayaan an ira mga paningkamot para hiya makab-ot.",
+          "translation": "Han Lunes, hi Sara Danius, permanente nga sekretaryo han Nobel Committee for Literature ha Swedish Academy, nagpahayag ha publiko ha panahon hin programa ha radyo ha Sveriges Radio ha Sweden nga an komite, tungod kay waray makaabot kan Bob Dylan direkta mahitungod han pagdaug han Nobel Prize in Literature 2016."
         },
         {
           "source": "Danius said, \"Right now we are doing nothing. I have called and sent emails to his closest collaborator and received very friendly replies. For now, that is certainly enough.\"",
-          "reference": "Sabi ni Danius, \"Ngayon mismo ay wala tayong ginagawa. Nakatawag na ako sa telepono at nakapagpadala ng mga e-mail sa kaniyang pinakamalapit na katulong at nakatanggap ng mga napakamagiliw na sagot. Sa ngayon, talagang sapat na iyon.\"",
-          "translation": "Sinabi ni Danius, \"Kahit ngayon wala kaming ginagawa. Tinawag ko at nagpadala ng mga email sa kanyang pinakamalapit na katrabaho at nakatanggap ng napaka-mabait na mga sagot. Para sa ngayon, sapat na iyon\"."
+          "reference": "Nagsiring hi Danius, \"Ha pagkayana waray kami ginhihimo. Nagpinanawag ako ngan nagpadara hin mga email ngadto han iya pinakasuok nga kabulig ngan nakakarawat hin duro ka makisasangkayon nga mga baton. Ha pagkayana, igo na gud iton.\"",
+          "translation": "Binmaton hi Daniel, \"Hini nga takna waray na kami mahihimo. Nagtawag ako ngan nagsurat ako hin mga surat ngadto han iya kasangkayan, ngan nakakarawat ako hin maupay nga mga baton. Kundi igo na ini yana\"."
         }
       ]
     },
     "experimental_stage1": {
-      "model_name": "Tagalog - Experimental Stage 1",
-      "model_path": "..\\models\\tagalog_experimental_stage1_nllb_lora_bf16\\final_model",
+      "model_name": "Waray - Experimental Stage 1",
+      "model_path": "..\\models\\waray_experimental_stage1_nllb_lora_bf16\\final_model",
       "src_lang": "eng_Latn",
-      "tgt_lang": "tgl_Latn",
-      "bleu_score": 30.68874160402891,
+      "tgt_lang": "war_Latn",
+      "bleu_score": 26.51645451993188,
       "bleu_precisions": [
-        66.05555944300609,
-        38.72324990932173,
-        24.74960463890353,
-        16.163000078290143
+        63.76047904191617,
+        34.413213766703294,
+        20.502922686665933,
+        12.535797472221162
       ],
-      "brevity_penalty": 0.9649087102065569,
-      "length_ratio": 0.9655102523392899,
-      "translation_length": 28582,
-      "reference_length": 29603,
+      "brevity_penalty": 0.9676188462734893,
+      "length_ratio": 0.9681319773412396,
+      "translation_length": 29225,
+      "reference_length": 30187,
       "num_sentences": 1012,
       "sample_translations": [
         {
           "source": "\"We now have 4-month-old mice that are non-diabetic that used to be diabetic,\" he added.",
-          "reference": "\"Mayroon na tayong 4 na buwang gulang na daga na hindi diabetic na dating diabetic,\" dagdag niya.",
-          "translation": "\"May-ari na tayo ngayon ng apat na buwan na mga mice na hindi diabetic na dati ay diabetic\", dagdag niya."
+          "reference": "\"Mayda na kita yana 4-ka-bulan-an edad nga yatot nga diri-diabetic nga han hadto diabetic,\" dugang pa niya.",
+          "translation": "\"May-ada kita yana upat ka bulan nga mga salog nga diri may-ada diabetes nga hadto may-ada diabetes\", dugang niya."
         },
         {
           "source": "Dr. Ehud Ur, professor of medicine at Dalhousie University in Halifax, Nova Scotia and chair of the clinical and scientific division of the Canadian Diabetes Association cautioned that the research is still in its early days.",
-          "reference": "Nagbabala si Dr. Ehud Ur, isang propesor sa medisina sa Dalhousie University sa Halifax, Nova Scotia at tagapangulo ng siyentipiko at pagsusuri na dibisyon ng Canadian Diabetes Association na ang pananaliksik ay nasa mga unang araw pa nito.",
-          "translation": "Binanggit ni Dr. Ehud Ur, propesor ng medisina sa Dalhousie University sa Halifax, Nova Scotia at chairman ng clinical at scientific division ng Canadian Diabetes Association na ang pananaliksik ay nasa unang araw pa rin."
+          "reference": "Ginpahimatngon ni Dr. Ehud Ur, propesor han medisina ha Dalhousie University ha Halifax, Nova Scotia ngan pangulo han klinikal ngan sayantipiko nga dibisyon han Canadian Diabetes Association nga an pagsaliksik in aada pa ha iya sayo nga mga adlaw.",
+          "translation": "Hi Dr. Ehud Ur, propesor han medisina ha Dalhousie University ha Halifax, Nova Scotia ngan presidente han clinical ngan scientific division han Canadian Diabetes Association nagpahamangno nga an panukiduki aada pa ha sayo nga mga adlaw."
         },
         {
           "source": "Like some other experts, he is skeptical about whether diabetes can be cured, noting that these findings have no relevance to people who already have Type 1 diabetes.",
-          "reference": "Tulad ng iba pang eksperto, nag-aalangan siya kung kayang gamutin ang diabetes, binibigyang pansin niya na walang kinalaman ang mga natuklasang ito sa mga taong mayroon nang Type 1 diabetes.",
-          "translation": "Gaya ng ilang iba pang mga dalubhasa, siya'y skeptical tungkol sa kung maiiwasan ba ang diabetes, na binanggit na ang mga natuklasan na ito ay walang kaugnayan sa mga taong may Type 1 na diabetes."
+          "reference": "Sugad han pira nga iba nga mga eksperto, diri hiya sigurado kon pwede ba matambal an diabetes, nagsisiring nga ini nga mga pinanhibilngan waray paghidabi ngadto han mga tawo nga mayda na daan Type 1 nga diabetes.",
+          "translation": "Pariho ha iba nga eksperto, skeptikal hiya mahitungod kon maiiwas ba an diabetes, nga naghuhunahuna nga ini nga mga hinbaroan diri may kalabotan ha mga tawo nga may Type 1 diabetes na."
         },
         {
           "source": "On Monday, Sara Danius, permanent secretary of the Nobel Committee for Literature at the Swedish Academy, publicly announced during a radio program on Sveriges Radio in Sweden the committee, unable to reach Bob Dylan directly about winning the 2016 Nobel Prize in Literature, had abandoned its efforts to reach him.",
-          "reference": "Noong Lunes, Sara Danius, permanenteng sekretarya ng Nobel Committee para sa Literatura sa Swedish na Academy, ay inanunsiyo sa publiko sa panahon ng programa sa radyo sa Sveriges Radio sa Sweden na ang komite, hindi direktang makontak si Bob Dylan tungkol sa pagkakapanalo ng 2016 Nobel Prize sa Literatura, ay inabandona na ang pagkontak sa kanya.",
-          "translation": "Noong Lunes, si Sara Danius, permanenteng sekretaryo ng Nobel Committee for Literature sa Swedish Academy, ay inihayag sa publiko sa panahon ng isang programa sa radyo sa Sveriges Radio sa Sweden na ang komite, hindi maaaring makipag-usap kay Bob Dylan nang direkta tungkol sa pagwagi ng 2016 Nobel Prize sa Literatura, ay iniwan ang mga pagsisikap upang maabot siya."
+          "reference": "Dida han Lunes, iginpasabot ha publiko ni Sara Danius, permanente nga sekretarya han Nobel Committee para ha Literatura ha Swedish Academy, dida han usa ka programa ha radyo nga Sveriges Radio ha Sweden nga an komitiba, nga waray pakakakab-ot hin direkta kan Bob Dylan mahitungod han pagdaog han 2016 Nobel Prize ha Literatura, in ginbayaan an ira mga paningkamot para hiya makab-ot.",
+          "translation": "Han Lunes, hi Sara Danius, permanente nga sekretaryo han Nobel Committee for Literature ha Swedish Academy, nagpahayag ha publiko ha panahon hin programa ha radyo ha Sveriges Radio ha Sweden nga an komite, tungod kay waray makaharani kan Bob Dylan direkta mahitungod han pagdaug han 2016 Nobel Prize in Literature, binayaan niya an iya mga pangalimbasog ha pagharani ha iya."
         },
         {
           "source": "Danius said, \"Right now we are doing nothing. I have called and sent emails to his closest collaborator and received very friendly replies. For now, that is certainly enough.\"",
-          "reference": "Sabi ni Danius, \"Ngayon mismo ay wala tayong ginagawa. Nakatawag na ako sa telepono at nakapagpadala ng mga e-mail sa kaniyang pinakamalapit na katulong at nakatanggap ng mga napakamagiliw na sagot. Sa ngayon, talagang sapat na iyon.\"",
-          "translation": "Sinabi ni Danius, \"Sa ngayon wala kaming ginagawa. Tinawag ko at nagpadala ng mga email sa kanyang pinakamalapit na katrabaho at nakatanggap ng napaka-mabait na mga sagot. Para sa ngayon, tiyak na sapat na iyon\"."
+          "reference": "Nagsiring hi Danius, \"Ha pagkayana waray kami ginhihimo. Nagpinanawag ako ngan nagpadara hin mga email ngadto han iya pinakasuok nga kabulig ngan nakakarawat hin duro ka makisasangkayon nga mga baton. Ha pagkayana, igo na gud iton.\"",
+          "translation": "Nagsiring hi Danius, \"Hini nga takna waray kami sadang buhaton. Nagtawag ngan nagpadara ako hin mga email ngadto han iya kasangkayan nga kasangkayan ngan kinmarawat ako hin maupay nga mga baton. Para yana igo na ini\"."
         }
       ]
     },
     "experimental_stage2": {
-      "model_name": "Tagalog - Experimental Stage 2",
-      "model_path": "..\\models\\tagalog_experimental_stage2_nllb_lora_bf16\\final_model",
+      "model_name": "Waray - Experimental Stage 2",
+      "model_path": "..\\models\\waray_experimental_stage2_nllb_lora_bf16\\final_model",
       "src_lang": "eng_Latn",
-      "tgt_lang": "tgl_Latn",
-      "bleu_score": 31.458145598739407,
+      "tgt_lang": "war_Latn",
+      "bleu_score": 23.760089372436976,
       "bleu_precisions": [
-        65.64692194504329,
-        38.577150756796996,
-        24.84282510386411,
-        16.397449115973576
+        62.61114880548513,
+        32.37375421436775,
+        18.87678509565418,
+        11.379020306804982
       ],
-      "brevity_penalty": 0.9870807234839855,
-      "length_ratio": 0.9871634631625174,
-      "translation_length": 29223,
-      "reference_length": 29603,
+      "brevity_penalty": 0.9249721558075515,
+      "length_ratio": 0.9276509755855169,
+      "translation_length": 28003,
+      "reference_length": 30187,
       "num_sentences": 1012,
       "sample_translations": [
         {
           "source": "\"We now have 4-month-old mice that are non-diabetic that used to be diabetic,\" he added.",
-          "reference": "\"Mayroon na tayong 4 na buwang gulang na daga na hindi diabetic na dating diabetic,\" dagdag niya.",
-          "translation": "\"May-ari na tayo ngayon ng apat na buwan na mga buto na hindi diabetic na dati ay diabetic\", siya ay nagdagdag."
+          "reference": "\"Mayda na kita yana 4-ka-bulan-an edad nga yatot nga diri-diabetic nga han hadto diabetic,\" dugang pa niya.",
+          "translation": "\"May-ada kita yana upat ka bulan nga mga salog nga diri may-ada diabetes nga hadto may-ada diabetes\", dugang niya."
         },
         {
           "source": "Dr. Ehud Ur, professor of medicine at Dalhousie University in Halifax, Nova Scotia and chair of the clinical and scientific division of the Canadian Diabetes Association cautioned that the research is still in its early days.",
-          "reference": "Nagbabala si Dr. Ehud Ur, isang propesor sa medisina sa Dalhousie University sa Halifax, Nova Scotia at tagapangulo ng siyentipiko at pagsusuri na dibisyon ng Canadian Diabetes Association na ang pananaliksik ay nasa mga unang araw pa nito.",
-          "translation": "Binanggit ni Dr. Ehud Ur, propesor ng medisina sa Dalhousie University sa Halifax, Nova Scotia at pangulo ng clinical at scientific division ng Canadian Diabetes Association na ang pananaliksik ay nasa unang araw pa rin."
+          "reference": "Ginpahimatngon ni Dr. Ehud Ur, propesor han medisina ha Dalhousie University ha Halifax, Nova Scotia ngan pangulo han klinikal ngan sayantipiko nga dibisyon han Canadian Diabetes Association nga an pagsaliksik in aada pa ha iya sayo nga mga adlaw.",
+          "translation": "Hi Dr. Ehud Ur, propesor hin medisina ha Dalhousie University ha Halifax, Nova Scotia ngan presidente han clinical ngan scientific division han Canadian Diabetes Association, nagpahamangno nga an panukiduki diri pa nagtikang."
         },
         {
           "source": "Like some other experts, he is skeptical about whether diabetes can be cured, noting that these findings have no relevance to people who already have Type 1 diabetes.",
-          "reference": "Tulad ng iba pang eksperto, nag-aalangan siya kung kayang gamutin ang diabetes, binibigyang pansin niya na walang kinalaman ang mga natuklasang ito sa mga taong mayroon nang Type 1 diabetes.",
-          "translation": "Tulad ng ilang iba pang mga eksperto, siya'y skeptical tungkol sa kung maiiwasan ba ang diabetes, na binanggit na ang mga natuklasan na ito ay walang kaugnayan sa mga taong mayroon nang Type 1 diabetes."
+          "reference": "Sugad han pira nga iba nga mga eksperto, diri hiya sigurado kon pwede ba matambal an diabetes, nagsisiring nga ini nga mga pinanhibilngan waray paghidabi ngadto han mga tawo nga mayda na daan Type 1 nga diabetes.",
+          "translation": "Pariho ha iba nga eksperto, skeptikoso hiya kon maiiwas ba an diabetes, kay waray kalabotan ini ha mga tawo nga may Type 1 diabetes."
         },
         {
           "source": "On Monday, Sara Danius, permanent secretary of the Nobel Committee for Literature at the Swedish Academy, publicly announced during a radio program on Sveriges Radio in Sweden the committee, unable to reach Bob Dylan directly about winning the 2016 Nobel Prize in Literature, had abandoned its efforts to reach him.",
-          "reference": "Noong Lunes, Sara Danius, permanenteng sekretarya ng Nobel Committee para sa Literatura sa Swedish na Academy, ay inanunsiyo sa publiko sa panahon ng programa sa radyo sa Sveriges Radio sa Sweden na ang komite, hindi direktang makontak si Bob Dylan tungkol sa pagkakapanalo ng 2016 Nobel Prize sa Literatura, ay inabandona na ang pagkontak sa kanya.",
-          "translation": "Noong Lunes, si Sara Danius, permanenteng sekretaryo ng Nobel Committee for Literature sa Swedish Academy, ay inihayag sa publiko sa panahon ng isang programa sa radyo sa Sveriges Radio sa Sweden na ang komite, hindi maaaring makipag-usap kay Bob Dylan nang direkta tungkol sa pagwagi ng 2016 Nobel Prize sa Literatura, ay iniwan ang kanilang mga pagsisikap upang maabot siya."
+          "reference": "Dida han Lunes, iginpasabot ha publiko ni Sara Danius, permanente nga sekretarya han Nobel Committee para ha Literatura ha Swedish Academy, dida han usa ka programa ha radyo nga Sveriges Radio ha Sweden nga an komitiba, nga waray pakakakab-ot hin direkta kan Bob Dylan mahitungod han pagdaog han 2016 Nobel Prize ha Literatura, in ginbayaan an ira mga paningkamot para hiya makab-ot.",
+          "translation": "Han Lunes, hi Sara Danius, permanente nga sekretaryo han Nobel Committee para ha Literatura ha Swedish Academy, nagpahayag ha publiko ha panahon hin programa ha radyo ha Sveriges Radio ha Sweden nga an komite, tungod kay waray makaabot kan Bob Dylan direkta mahitungod han pagdaug han Nobel Prize ha Literatura 2016."
         },
         {
           "source": "Danius said, \"Right now we are doing nothing. I have called and sent emails to his closest collaborator and received very friendly replies. For now, that is certainly enough.\"",
-          "reference": "Sabi ni Danius, \"Ngayon mismo ay wala tayong ginagawa. Nakatawag na ako sa telepono at nakapagpadala ng mga e-mail sa kaniyang pinakamalapit na katulong at nakatanggap ng mga napakamagiliw na sagot. Sa ngayon, talagang sapat na iyon.\"",
-          "translation": "Sinabi ni Danius, Kahit ngayon wala kaming ginagawa. Ako ay tumawag at nagpadala ng mga email sa kanyang pinakamalapit na kasamahan at nakatanggap ng mga mahilig na sagot. Para sa ngayon, sapat na iyon."
+          "reference": "Nagsiring hi Danius, \"Ha pagkayana waray kami ginhihimo. Nagpinanawag ako ngan nagpadara hin mga email ngadto han iya pinakasuok nga kabulig ngan nakakarawat hin duro ka makisasangkayon nga mga baton. Ha pagkayana, igo na gud iton.\"",
+          "translation": "Binmaton hi Daniel, \"Hini nga takna waray na kami mahihimo hin bisan ano. Nagtawag ako ngan nagpadara ako hin mga email ngadto han iya kasangkayan, ngan nakakarawat ako hin maupay nga mga baton. Kundi igo na ini yana\"."
         }
       ]
     }

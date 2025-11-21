@@ -1,0 +1,30 @@
+{
+  "pair": "en-war",
+  "stage": "Stage 2 (Baseline after Similar NLLB LoRA + BF16)",
+  "model_name": "facebook/nllb-200-distilled-600M",
+  "model_source": "..\\models\\waray_experimental_stage1_nllb_lora_bf16\\final_model",
+  "bf16_enabled": true,
+  "src_lang": "eng_Latn",
+  "tgt_lang": "war_Latn",
+  "lora_config": {
+    "r": 8,
+    "alpha": 16,
+    "dropout": 0.1,
+    "target_modules": [
+      "q_proj",
+      "v_proj"
+    ]
+  },
+  "train_results": {
+    "train_loss": 6.554539063932435,
+    "train_runtime": 1230.9786
+  },
+  "eval_results": {
+    "eval_loss": 6.408348560333252,
+    "eval_bleu": 28.32620384593871,
+    "eval_runtime": 164.3527,
+    "eval_samples_per_second": 2.762,
+    "eval_steps_per_second": 0.694,
+    "epoch": 3.0
+  }
+}
