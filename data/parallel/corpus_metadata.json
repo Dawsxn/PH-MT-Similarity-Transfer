@@ -2,7 +2,7 @@
   "description": "Parallel corpora for Philippine low-resource language MT with similarity transfer",
   "creation_date": "2025-11-08",
   "source": "Bible (Matthew, Mark, Luke)",
-  "total_pairs": 2,
+  "total_pairs": 4,
   "sentences_per_corpus": 4543,
   "language_pairs": [
     {
@@ -32,6 +32,34 @@
       "src_file": "..\\data\\parallel\\en-ceb\\en-ceb.en",
       "tgt_file": "..\\data\\parallel\\en-ceb\\en-ceb.ceb",
       "ref_file": "..\\data\\parallel\\en-ceb\\en-ceb.ref"
+    },
+    {
+      "pair": "war-en",
+      "role": "baseline + distant",
+      "src_code": "war",
+      "tgt_code": "en",
+      "src_lang": "waray",
+      "tgt_lang": "english",
+      "num_lines": 4543,
+      "src_words": 68831,
+      "tgt_words": 63872,
+      "src_file": "..\\data\\parallel\\war-en\\war-en.war",
+      "tgt_file": "..\\data\\parallel\\war-en\\war-en.en",
+      "ref_file": "..\\data\\parallel\\war-en\\war-en.ref"
+    },
+    {
+      "pair": "ceb-en",
+      "role": "baseline + distant",
+      "src_code": "ceb",
+      "tgt_code": "en",
+      "src_lang": "cebuano",
+      "tgt_lang": "english",
+      "num_lines": 4543,
+      "src_words": 70315,
+      "tgt_words": 63872,
+      "src_file": "..\\data\\parallel\\ceb-en\\ceb-en.ceb",
+      "tgt_file": "..\\data\\parallel\\ceb-en\\ceb-en.en",
+      "ref_file": "..\\data\\parallel\\ceb-en\\ceb-en.ref"
     }
   ]
 }
