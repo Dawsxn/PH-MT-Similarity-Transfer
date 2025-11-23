@@ -1,0 +1,374 @@
+{
+  "english": {
+    "pretrained": {
+      "model_name": "English - Pretrained NLLB-200",
+      "model_path": "pretrained",
+      "src_lang": "war_Latn",
+      "tgt_lang": "eng_Latn",
+      "bleu_score": 34.52063888786412,
+      "bleu_precisions": [
+        62.00443581924036,
+        39.44370469004291,
+        29.013324873096447,
+        22.089246024961533
+      ],
+      "brevity_penalty": 0.9756276763263706,
+      "meteor_score": 0.5783452075427211,
+      "length_ratio": 0.9759199134199135,
+      "translation_length": 7214,
+      "reference_length": 7392,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "reference": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "translation": "For you yourselves know very well that the day of the Lord will come like a thief in the night."
+        },
+        {
+          "source": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "reference": "So Jacob’s sons did as he had commanded them:",
+          "translation": "And the sons of Jacob did as he commanded them."
+        },
+        {
+          "source": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "reference": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "translation": "The people were distressed because of Benjamin, for Jehovah had disrupted the unity of the tribes of Israel."
+        },
+        {
+          "source": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "reference": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "translation": "Even if after all these punishments you still refuse to listen to me and continue to oppose me,"
+        },
+        {
+          "source": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "reference": "Jesus said to them: “Watch out that no one deceives you.",
+          "translation": "Then Jesus began to instruct them, \"Watch out that you do not take anyone in your hands."
+        }
+      ]
+    },
+    "baseline": {
+      "model_name": "English - Baseline",
+      "model_path": "..\\models\\english_baseline_nllb_lora_bf16\\final_model",
+      "src_lang": "war_Latn",
+      "tgt_lang": "eng_Latn",
+      "bleu_score": 36.01137166426917,
+      "bleu_precisions": [
+        65.67858180761407,
+        43.27057725221721,
+        32.217012726054925,
+        24.705455863694038
+      ],
+      "brevity_penalty": 0.9285729214599214,
+      "meteor_score": 0.5938276881019043,
+      "length_ratio": 0.9310064935064936,
+      "translation_length": 6882,
+      "reference_length": 7392,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "reference": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "translation": "For you yourselves know very well that the day of the Lord will come like a thief in the night."
+        },
+        {
+          "source": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "reference": "So Jacob’s sons did as he had commanded them:",
+          "translation": "So the sons of Jacob did as he commanded them."
+        },
+        {
+          "source": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "reference": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "translation": "The people were distressed because of Benjamin, because the Lord had cut off the unity of the tribes of Israel."
+        },
+        {
+          "source": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "reference": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "translation": "Though after all these things you still refuse to listen to me, but still continue to resist me,"
+        },
+        {
+          "source": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "reference": "Jesus said to them: “Watch out that no one deceives you.",
+          "translation": "Jesus began to instruct them, saying, Watch out that you do not take anyone into your hands."
+        }
+      ]
+    },
+    "experimental_stage1": {
+      "model_name": "English - Experimental Stage 1",
+      "model_path": "..\\models\\english_experimental_stage1_nllb_lora_bf16\\final_model",
+      "src_lang": "war_Latn",
+      "tgt_lang": "eng_Latn",
+      "bleu_score": 35.503330550802204,
+      "bleu_precisions": [
+        65.55913348946136,
+        43.04531911557159,
+        32.0499831138129,
+        24.3826595939272
+      ],
+      "brevity_penalty": 0.9213021648295184,
+      "meteor_score": 0.5910601110299278,
+      "length_ratio": 0.9242424242424242,
+      "translation_length": 6832,
+      "reference_length": 7392,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "reference": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "translation": "For you yourselves know very well that the day of the Lord will come like a thief in the night."
+        },
+        {
+          "source": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "reference": "So Jacob’s sons did as he had commanded them:",
+          "translation": "So the sons of Jacob did as he commanded them."
+        },
+        {
+          "source": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "reference": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "translation": "The people were distressed because of Benjamin, because the Lord had cut off the unity of the tribes of Israel."
+        },
+        {
+          "source": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "reference": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "translation": "Though after all these punishments you still refuse to listen to me and continue to resist me,"
+        },
+        {
+          "source": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "reference": "Jesus said to them: “Watch out that no one deceives you.",
+          "translation": "Jesus began to instruct them, saying, Watch out that no one takes you captive."
+        }
+      ]
+    },
+    "experimental_stage2": {
+      "model_name": "English - Experimental Stage 2",
+      "model_path": "..\\models\\english_experimental_stage2_nllb_lora_bf16\\final_model",
+      "src_lang": "war_Latn",
+      "tgt_lang": "eng_Latn",
+      "bleu_score": 35.36944370437457,
+      "bleu_precisions": [
+        65.94149639864766,
+        43.226212980466286,
+        32.00407262854234,
+        24.255240897388745
+      ],
+      "brevity_penalty": 0.9170626850374721,
+      "meteor_score": 0.5923550681068623,
+      "length_ratio": 0.9203192640692641,
+      "translation_length": 6803,
+      "reference_length": 7392,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "reference": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "translation": "For you yourselves know perfectly well that the day of the Lord will come like a thief in the night."
+        },
+        {
+          "source": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "reference": "So Jacob’s sons did as he had commanded them:",
+          "translation": "So the sons of Jacob did as he commanded them."
+        },
+        {
+          "source": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "reference": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "translation": "The people were distressed because of Benjamin, because the Lord had cut off the unity of the tribes of Israel."
+        },
+        {
+          "source": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "reference": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "translation": "If even after these things you refuse to obey me and continue to rebel against me,"
+        },
+        {
+          "source": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "reference": "Jesus said to them: “Watch out that no one deceives you.",
+          "translation": "Jesus began to warn them, saying, Watch out that you do not take anyone into your hand."
+        }
+      ]
+    }
+  },
+  "waray": {
+    "pretrained": {
+      "model_name": "Waray - Pretrained NLLB-200",
+      "model_path": "pretrained",
+      "src_lang": "eng_Latn",
+      "tgt_lang": "war_Latn",
+      "bleu_score": 20.93190174152458,
+      "bleu_precisions": [
+        52.04792761951339,
+        25.80269290523045,
+        15.07772733525932,
+        9.480481361901967
+      ],
+      "brevity_penalty": 1.0,
+      "meteor_score": 0.45671783184365866,
+      "length_ratio": 1.0275125628140704,
+      "translation_length": 8179,
+      "reference_length": 7960,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "reference": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "translation": "kay maaram gud kamo nga maabot an Adlaw han Ginoo sugad hin kawatan ha gab-i."
+        },
+        {
+          "source": "So Jacob’s sons did as he had commanded them:",
+          "reference": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "translation": "Ngan an mga anak nga kalalakin-an ni Jakob nagbuhat sugad han iya iginsogo ha ira."
+        },
+        {
+          "source": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "reference": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "translation": "Ngan an katawohan nagmasurub-on tungud kan Benjamin, kay an Ginoo nagbulag han mga tulin ni Israel."
+        },
+        {
+          "source": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "reference": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "translation": "Bisan pa hini nga mga bagay, kon diri kamo kumarawat han akon pagsaway, ngan magpadayon kamo ha pagdumut ha akon,"
+        },
+        {
+          "source": "Jesus said to them: “Watch out that no one deceives you.",
+          "reference": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "translation": "Ngan hi Jesus siniring ha ira: Magmatngon kamo, nga waray usa nga maglimbong ha iyo."
+        }
+      ]
+    },
+    "baseline": {
+      "model_name": "Waray - Baseline",
+      "model_path": "..\\models\\waray_baseline_nllb_lora_bf16\\final_model",
+      "src_lang": "eng_Latn",
+      "tgt_lang": "war_Latn",
+      "bleu_score": 28.099939072340682,
+      "bleu_precisions": [
+        60.692888773118,
+        35.276201024505056,
+        22.532505910165483,
+        14.969111357516237
+      ],
+      "brevity_penalty": 0.9639379875915463,
+      "meteor_score": 0.5305397956614154,
+      "length_ratio": 0.964572864321608,
+      "translation_length": 7678,
+      "reference_length": 7960,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "reference": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "translation": "Maaram kamo nga maabot an Adlaw han Ginoo sugad hin kawatan ha gab-i."
+        },
+        {
+          "source": "So Jacob’s sons did as he had commanded them:",
+          "reference": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "translation": "Ginbuhat han mga anak ni Jacob an iginsugo niya ha ira."
+        },
+        {
+          "source": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "reference": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "translation": "Nagmabidoon an mga tawo tungod han mga tribo ni Benjamin, kay ginbahin han Ginoo an mga tribo han Israel."
+        },
+        {
+          "source": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "reference": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "translation": " Kon bisan pa hini nga mga butang diri kamo kumarawat han akon pagturon-an, kundi magdumot kamo ha akon,"
+        },
+        {
+          "source": "Jesus said to them: “Watch out that no one deceives you.",
+          "reference": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "translation": "Nagsiring hi Jesus ha ira, Pagbantay nga waray maglimbong ha iyo."
+        }
+      ]
+    },
+    "experimental_stage1": {
+      "model_name": "Waray - Experimental Stage 1",
+      "model_path": "..\\models\\waray_experimental_stage1_nllb_lora_bf16\\final_model",
+      "src_lang": "eng_Latn",
+      "tgt_lang": "war_Latn",
+      "bleu_score": 21.223774143732975,
+      "bleu_precisions": [
+        52.94849465041055,
+        26.480284847685613,
+        15.20763187429854,
+        9.515959838153753
+      ],
+      "brevity_penalty": 1.0,
+      "meteor_score": 0.46139679557284674,
+      "length_ratio": 1.0097989949748745,
+      "translation_length": 8038,
+      "reference_length": 7960,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "reference": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "translation": "Kay kamo ngahaw maaram gud nga maabot an Adlaw han Ginoo sugad hin kawatan ha gab-i."
+        },
+        {
+          "source": "So Jacob’s sons did as he had commanded them:",
+          "reference": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "translation": "Ngan an mga anak nga kalalakin-an ni Jakob nagbuhat sugad han iya iginsogo ha ira."
+        },
+        {
+          "source": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "reference": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "translation": "Ngan an katawohan nagmabidoon tungud kan Benjamin, kay an Ginoo nagbulag han mga tulin ni Israel."
+        },
+        {
+          "source": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "reference": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "translation": "Kon bisan pa hini nga mga butang diri kamo kumarawat han akon pagtorot-an, kundi magdumot kamo ha akon,"
+        },
+        {
+          "source": "Jesus said to them: “Watch out that no one deceives you.",
+          "reference": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "translation": "Ngan hi Jesus siniring ha ira: Pagbantay kamo nga waray usa nga maglimbong ha iyo."
+        }
+      ]
+    },
+    "experimental_stage2": {
+      "model_name": "Waray - Experimental Stage 2",
+      "model_path": "..\\models\\waray_experimental_stage2_nllb_lora_bf16\\final_model",
+      "src_lang": "eng_Latn",
+      "tgt_lang": "war_Latn",
+      "bleu_score": 28.23489459220237,
+      "bleu_precisions": [
+        61.42317216212694,
+        35.43917982820726,
+        22.68224160875351,
+        14.949270767279645
+      ],
+      "brevity_penalty": 0.9632870008072985,
+      "meteor_score": 0.5371099045357387,
+      "length_ratio": 0.9639447236180905,
+      "translation_length": 7673,
+      "reference_length": 7960,
+      "num_sentences": 455,
+      "sample_translations": [
+        {
+          "source": "for you know very well that the day of the Lord will come like a thief in the night.",
+          "reference": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+          "translation": "Kay maaram gud kamo nga maabot an Adlaw han Ginoo sugad hin kawatan ha gab-i."
+        },
+        {
+          "source": "So Jacob’s sons did as he had commanded them:",
+          "reference": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+          "translation": "Ginbuhat han mga anak ni Jacob an iginsugo niya ha ira."
+        },
+        {
+          "source": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+          "reference": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+          "translation": "Nagmabidoon an mga tawo tungod han mga tribo ni Benjamin, kay ginbahin han Ginoo an mga tribo han Israel."
+        },
+        {
+          "source": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+          "reference": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+          "translation": "Kon diri kamo kumarawat han akon pagturon-an, kundi magdumot kamo ha akon,"
+        },
+        {
+          "source": "Jesus said to them: “Watch out that no one deceives you.",
+          "reference": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+          "translation": "Binmaton hi Jesus, Pagbantay kamo nga waray maglimbong ha iyo."
+        }
+      ]
+    }
+  }
+}

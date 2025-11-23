@@ -26,6 +26,20 @@
       "dev": 454,
       "test": 455,
       "total": 4543
+    },
+    {
+      "pair": "war-en",
+      "train": 3634,
+      "dev": 454,
+      "test": 455,
+      "total": 4543
+    },
+    {
+      "pair": "ceb-en",
+      "train": 3634,
+      "dev": 454,
+      "test": 455,
+      "total": 4543
     }
   ]
 }

@@ -7,24 +7,26 @@
   "src_lang": "eng_Latn",
   "tgt_lang": "ceb_Latn",
   "lora_config": {
-    "r": 8,
-    "alpha": 16,
+    "r": 16,
+    "alpha": 32,
     "dropout": 0.1,
     "target_modules": [
       "q_proj",
-      "v_proj"
+      "v_proj",
+      "k_proj",
+      "o_proj"
     ]
   },
   "train_results": {
-    "train_loss": 7.2696841624266595,
-    "train_runtime": 1442.4769
+    "train_loss": 7.759528557022369,
+    "train_runtime": 1637.5377
   },
   "eval_results": {
-    "eval_loss": 6.509555339813232,
-    "eval_bleu": 28.304417188950747,
-    "eval_runtime": 252.5552,
-    "eval_samples_per_second": 1.798,
-    "eval_steps_per_second": 0.451,
+    "eval_loss": 6.577375411987305,
+    "eval_bleu": 27.183349967536564,
+    "eval_runtime": 284.4648,
+    "eval_samples_per_second": 1.596,
+    "eval_steps_per_second": 0.401,
     "epoch": 3.0
   }
 }
