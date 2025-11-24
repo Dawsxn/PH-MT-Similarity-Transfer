@@ -1,5 +1,5 @@
 pair,role,src_lang,tgt_lang,num_lines,src_words,tgt_words
-en-war,baseline + distant,english,waray,4543,63872,68831
-en-ceb,baseline + distant,english,cebuano,4543,63872,70315
-war-en,baseline + distant,waray,english,4543,68831,63872
-ceb-en,baseline + distant,cebuano,english,4543,70315,63872
+en-war,baseline + distant,english,waray,10597,200726,220149
+en-ceb,baseline + distant,english,cebuano,10597,200726,222662
+war-en,baseline + distant,waray,english,10597,220149,200726
+ceb-en,baseline + distant,cebuano,english,10597,222662,200726

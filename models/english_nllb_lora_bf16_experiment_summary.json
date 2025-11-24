@@ -19,16 +19,16 @@
       ]
     },
     "train_results": {
-      "train_loss": 8.357771299590896,
-      "train_runtime": 809.266
+      "train_loss": 7.286039486291274,
+      "train_runtime": 8488.4058
     },
     "eval_results": {
-      "eval_loss": 6.890298366546631,
-      "eval_bleu": 36.93363710956163,
-      "eval_runtime": 79.0247,
-      "eval_samples_per_second": 5.745,
-      "eval_steps_per_second": 1.443,
-      "epoch": 2.0
+      "eval_loss": 6.725285530090332,
+      "eval_bleu": 34.1639646692391,
+      "eval_runtime": 300.0627,
+      "eval_samples_per_second": 3.529,
+      "eval_steps_per_second": 0.883,
+      "epoch": 5.0
     }
   },
   "experimental_stage1": {
@@ -51,16 +51,16 @@
       ]
     },
     "train_results": {
-      "train_loss": 8.332681217340484,
-      "train_runtime": 997.2684
+      "train_loss": 7.253936744545991,
+      "train_runtime": 11378.4336
     },
     "eval_results": {
-      "eval_loss": 6.873875617980957,
-      "eval_bleu": 43.392943911094584,
-      "eval_runtime": 234.7647,
-      "eval_samples_per_second": 1.934,
-      "eval_steps_per_second": 0.486,
-      "epoch": 2.0
+      "eval_loss": 6.6878981590271,
+      "eval_bleu": 40.377298900099206,
+      "eval_runtime": 1054.6753,
+      "eval_samples_per_second": 1.004,
+      "eval_steps_per_second": 0.251,
+      "epoch": 5.0
     }
   },
   "experimental_stage2": {
@@ -83,16 +83,16 @@
       ]
     },
     "train_results": {
-      "train_loss": 6.889986313084433,
-      "train_runtime": 770.3937
+      "train_loss": 6.78861411040684,
+      "train_runtime": 16202.279
     },
     "eval_results": {
-      "eval_loss": 6.637557506561279,
-      "eval_bleu": 37.13510423672928,
-      "eval_runtime": 133.2794,
-      "eval_samples_per_second": 3.406,
-      "eval_steps_per_second": 0.855,
-      "epoch": 2.0
+      "eval_loss": 6.712006092071533,
+      "eval_bleu": 34.46374669397738,
+      "eval_runtime": 1727.5884,
+      "eval_samples_per_second": 0.613,
+      "eval_steps_per_second": 0.153,
+      "epoch": 5.0
     }
   }
 }

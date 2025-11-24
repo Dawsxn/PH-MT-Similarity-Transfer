@@ -6,40 +6,40 @@
     "dev": 0.1,
     "test": 0.1
   },
-  "total_sentences": 4543,
+  "total_sentences": 10597,
   "split_sizes": {
-    "train": 3634,
-    "dev": 454,
-    "test": 455
+    "train": 8477,
+    "dev": 1059,
+    "test": 1061
   },
   "language_pairs": [
     {
       "pair": "en-war",
-      "train": 3634,
-      "dev": 454,
-      "test": 455,
-      "total": 4543
+      "train": 8477,
+      "dev": 1059,
+      "test": 1061,
+      "total": 10597
     },
     {
       "pair": "en-ceb",
-      "train": 3634,
-      "dev": 454,
-      "test": 455,
-      "total": 4543
+      "train": 8477,
+      "dev": 1059,
+      "test": 1061,
+      "total": 10597
     },
     {
       "pair": "war-en",
-      "train": 3634,
-      "dev": 454,
-      "test": 455,
-      "total": 4543
+      "train": 8477,
+      "dev": 1059,
+      "test": 1061,
+      "total": 10597
     },
     {
       "pair": "ceb-en",
-      "train": 3634,
-      "dev": 454,
-      "test": 455,
-      "total": 4543
+      "train": 8477,
+      "dev": 1059,
+      "test": 1061,
+      "total": 10597
     }
   ]
 }
