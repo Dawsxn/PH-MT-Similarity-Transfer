@@ -1,6 +1,6 @@
 {
   "pair": "en-ceb",
-  "stage": "Stage 1 (Similar Language NLLB LoRA + BF16)",
+  "stage": "Stage 1 (Similar Language)",
   "model_name": "facebook/nllb-200-distilled-600M",
   "model_source": "facebook/nllb-200-distilled-600M",
   "bf16_enabled": true,
@@ -18,15 +18,15 @@
     ]
   },
   "train_results": {
-    "train_loss": 7.759528557022369,
-    "train_runtime": 1637.5377
+    "train_loss": 7.757404435104969,
+    "train_runtime": 3575.2071
   },
   "eval_results": {
-    "eval_loss": 6.577375411987305,
-    "eval_bleu": 27.183349967536564,
-    "eval_runtime": 284.4648,
-    "eval_samples_per_second": 1.596,
-    "eval_steps_per_second": 0.401,
-    "epoch": 3.0
+    "eval_loss": 6.580806255340576,
+    "eval_bleu": 27.26804436744192,
+    "eval_runtime": 241.9995,
+    "eval_samples_per_second": 1.876,
+    "eval_steps_per_second": 0.471,
+    "epoch": 6.0
   }
 }

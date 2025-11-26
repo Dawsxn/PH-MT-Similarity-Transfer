@@ -1,6 +1,6 @@
 {
   "pair": "en-war",
-  "stage": "Baseline (Direct NLLB LoRA + BF16)",
+  "stage": "Baseline",
   "model_name": "facebook/nllb-200-distilled-600M",
   "model_source": "facebook/nllb-200-distilled-600M",
   "bf16_enabled": true,
@@ -18,15 +18,15 @@
     ]
   },
   "train_results": {
-    "train_loss": 7.714640344242758,
-    "train_runtime": 1547.6783
+    "train_loss": 7.714396293144939,
+    "train_runtime": 2774.2531
   },
   "eval_results": {
-    "eval_loss": 6.575768947601318,
-    "eval_bleu": 28.003699007761924,
-    "eval_runtime": 154.533,
-    "eval_samples_per_second": 2.938,
-    "eval_steps_per_second": 0.738,
-    "epoch": 3.0
+    "eval_loss": 6.702627182006836,
+    "eval_bleu": 27.867596214105433,
+    "eval_runtime": 107.3739,
+    "eval_samples_per_second": 4.228,
+    "eval_steps_per_second": 1.062,
+    "epoch": 6.0
   }
 }
