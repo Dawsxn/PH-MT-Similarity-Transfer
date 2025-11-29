@@ -3,7 +3,7 @@
   "creation_date": "2025-11-08",
   "source": "Bible (Matthew, Mark, Luke)",
   "total_pairs": 2,
-  "sentences_per_corpus": 9346,
+  "sentences_per_corpus": 9272,
   "language_pairs": [
     {
       "pair": "en-war",
@@ -12,9 +12,9 @@
       "tgt_code": "war",
       "src_lang": "english",
       "tgt_lang": "waray",
-      "num_lines": 9346,
-      "src_words": 135333,
-      "tgt_words": 142162,
+      "num_lines": 9272,
+      "src_words": 133991,
+      "tgt_words": 140617,
       "src_file": "..\\data\\parallel\\en-war\\en-war.en",
       "tgt_file": "..\\data\\parallel\\en-war\\en-war.war",
       "ref_file": "..\\data\\parallel\\en-war\\en-war.ref"
@@ -26,9 +26,9 @@
       "tgt_code": "ceb",
       "src_lang": "english",
       "tgt_lang": "cebuano",
-      "num_lines": 9346,
-      "src_words": 135333,
-      "tgt_words": 149363,
+      "num_lines": 9272,
+      "src_words": 133991,
+      "tgt_words": 147883,
       "src_file": "..\\data\\parallel\\en-ceb\\en-ceb.en",
       "tgt_file": "..\\data\\parallel\\en-ceb\\en-ceb.ceb",
       "ref_file": "..\\data\\parallel\\en-ceb\\en-ceb.ref"
