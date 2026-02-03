@@ -6,61 +6,40 @@
     "dev": 0.1,
     "test": 0.1
   },
-  "total_sentences": 7723,
+  "total_sentences": 4543,
   "split_sizes": {
-    "train": 6178,
-    "dev": 772,
-    "test": 773
+    "train": 3634,
+    "dev": 454,
+    "test": 455
   },
   "language_pairs": [
     {
-      "pair": "en-tl",
-      "train": 6178,
-      "dev": 772,
-      "test": 773,
-      "total": 7723
-    },
-    {
-      "pair": "bik-tl",
-      "train": 6178,
-      "dev": 772,
-      "test": 773,
-      "total": 7723
-    },
-    {
-      "pair": "war-tl",
-      "train": 6178,
-      "dev": 772,
-      "test": 773,
-      "total": 7723
-    },
-    {
-      "pair": "en-hil",
-      "train": 6178,
-      "dev": 772,
-      "test": 773,
-      "total": 7723
-    },
-    {
-      "pair": "msb-hil",
-      "train": 6178,
-      "dev": 772,
-      "test": 773,
-      "total": 7723
-    },
-    {
       "pair": "en-war",
-      "train": 6178,
-      "dev": 772,
-      "test": 773,
-      "total": 7723
+      "train": 3634,
+      "dev": 454,
+      "test": 455,
+      "total": 4543
     },
     {
-      "pair": "hil-war",
-      "train": 6178,
-      "dev": 772,
-      "test": 773,
-      "total": 7723
+      "pair": "en-ceb",
+      "train": 3634,
+      "dev": 454,
+      "test": 455,
+      "total": 4543
+    },
+    {
+      "pair": "war-en",
+      "train": 3634,
+      "dev": 454,
+      "test": 455,
+      "total": 4543
+    },
+    {
+      "pair": "ceb-en",
+      "train": 3634,
+      "dev": 454,
+      "test": 455,
+      "total": 4543
     }
   ]
 }

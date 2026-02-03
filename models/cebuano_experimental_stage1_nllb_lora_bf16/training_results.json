@@ -1,0 +1,32 @@
+{
+  "pair": "en-war",
+  "stage": "Stage 1 (Similar Language)",
+  "model_name": "facebook/nllb-200-distilled-600M",
+  "model_source": "facebook/nllb-200-distilled-600M",
+  "bf16_enabled": true,
+  "src_lang": "eng_Latn",
+  "tgt_lang": "war_Latn",
+  "lora_config": {
+    "r": 16,
+    "alpha": 32,
+    "dropout": 0.1,
+    "target_modules": [
+      "q_proj",
+      "v_proj",
+      "k_proj",
+      "o_proj"
+    ]
+  },
+  "train_results": {
+    "train_loss": 7.719595584232902,
+    "train_runtime": 3546.3622
+  },
+  "eval_results": {
+    "eval_loss": 6.707290172576904,
+    "eval_bleu": 28.022091963082982,
+    "eval_runtime": 299.9696,
+    "eval_samples_per_second": 1.513,
+    "eval_steps_per_second": 0.38,
+    "epoch": 6.0
+  }
+}

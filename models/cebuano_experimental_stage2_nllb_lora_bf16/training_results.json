@@ -1,0 +1,32 @@
+{
+  "pair": "en-ceb",
+  "stage": "Stage 2 (Baseline after Similar)",
+  "model_name": "facebook/nllb-200-distilled-600M",
+  "model_source": "..\\models\\cebuano_experimental_stage1_nllb_lora_bf16\\final_model",
+  "bf16_enabled": true,
+  "src_lang": "eng_Latn",
+  "tgt_lang": "ceb_Latn",
+  "lora_config": {
+    "r": 16,
+    "alpha": 32,
+    "dropout": 0.1,
+    "target_modules": [
+      "q_proj",
+      "v_proj",
+      "k_proj",
+      "o_proj"
+    ]
+  },
+  "train_results": {
+    "train_loss": 6.726688196163367,
+    "train_runtime": 2448.1847
+  },
+  "eval_results": {
+    "eval_loss": 6.4864912033081055,
+    "eval_bleu": 28.251357640985876,
+    "eval_runtime": 153.9327,
+    "eval_samples_per_second": 2.949,
+    "eval_steps_per_second": 0.741,
+    "epoch": 6.0
+  }
+}

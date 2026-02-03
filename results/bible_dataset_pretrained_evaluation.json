@@ -1,0 +1,48 @@
+{
+  "war-en": {
+    "model_name": "Pretrained NLLB-200 - Bible Dataset (Waray → English)",
+    "model_path": "pretrained (no fine-tuning)",
+    "src_lang": "war_Latn",
+    "tgt_lang": "eng_Latn",
+    "bleu_score": 34.52063888786412,
+    "bleu_precisions": [
+      62.00443581924036,
+      39.44370469004291,
+      29.013324873096447,
+      22.089246024961533
+    ],
+    "brevity_penalty": 0.9756276763263706,
+    "meteor_score": 0.5783452075427211,
+    "length_ratio": 0.9759199134199135,
+    "translation_length": 7214,
+    "reference_length": 7392,
+    "num_sentences": 455,
+    "sample_translations": [
+      {
+        "source": "Kay maaram gud kamo ngahaw nga maabot an Adlaw han Ginoo sugad hin pag-abot hin kawatan ha kagab-ihon.",
+        "reference": "for you know very well that the day of the Lord will come like a thief in the night.",
+        "translation": "For you yourselves know very well that the day of the Lord will come like a thief in the night."
+      },
+      {
+        "source": "Sanglit ginbuhat han mga anak ni Jacob sumala han iginsugo niya ha ira;",
+        "reference": "So Jacob’s sons did as he had commanded them:",
+        "translation": "And the sons of Jacob did as he commanded them."
+      },
+      {
+        "source": "Nabido an mga tawo tungod han mga Benjaminhon kay ginbungkag han Ginoo an pagkaurosa han mga tribo han Israel.",
+        "reference": "The people grieved for Benjamin, because the Lord had made a gap in the tribes of Israel.",
+        "translation": "The people were distressed because of Benjamin, for Jehovah had disrupted the unity of the tribes of Israel."
+      },
+      {
+        "source": "“Kon katapos hini ngatanan nga mga kastigo, diri la gihapon kamo mamati ha akon, kundi magpadayon kamo hin pag-ato ha akon,",
+        "reference": "“ ‘If in spite of these things you do not accept my correction but continue to be hostile toward me,",
+        "translation": "Even if after all these punishments you still refuse to listen to me and continue to oppose me,"
+      },
+      {
+        "source": "Nagtikang pagtutdo ha ira hi Jesus: “Pagbantay kamo basi diri kamo mauwat hin tawo.",
+        "reference": "Jesus said to them: “Watch out that no one deceives you.",
+        "translation": "Then Jesus began to instruct them, \"Watch out that you do not take anyone in your hands."
+      }
+    ]
+  }
+}
